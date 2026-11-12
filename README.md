@@ -10,3 +10,5 @@ Each file in `transcripts/<channel>/` is one video:
 - `Viewer question (read aloud):` lines are live-chat questions, in the viewer's own words, placed at the moment the host read them out. They are matched from the archived live chat.
 
 The captions are automatic, so they contain recognition errors. There are no speaker labels and no summaries.
+
+Variant E: pass A caption lines grouped into ~20 s paragraphs, each opening with a [mm:ss](url&t=Ns) link; chapter headings and a ### heading per read-aloud viewer question.
