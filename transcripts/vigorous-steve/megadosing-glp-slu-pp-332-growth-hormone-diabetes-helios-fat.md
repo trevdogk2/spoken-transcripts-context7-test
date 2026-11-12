@@ -60,6 +60,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [16:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=992s) agreement. I hope that in
 
+### Viewer question at [16:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=992s): Vigorous DILF! Hope the little one is well. Thoughts on Soma’s Helios Extreme blend of: L-CARNITINE, ATP, YOHIMBINE H...
+
 [16:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=992s) Viewer question (read aloud): "Vigorous DILF! Hope the little one is well. Thoughts on Soma’s Helios Extreme blend of: L-CARNITINE, ATP, YOHIMBINE HCL, B-12, and ALBUTEROL for spot reduction, or does the absence of clen hinder that"
 
 [16:33](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=993s) The kids are all right. IN She is doing very well. Her almost 3 months now. Thoughts on Soma's Helios Extreme Lent with Carnitine ATP hydrochloride (B12) and albuterol for reduction of spots, or lack of clinic Does this interfere? No, this is works very well, dude. Albuterol, obviously replaces climbing, and, you know, Belly sells injectable Helios, this is Climbrol and yohimbine. So you could would mix it up, but yeah , the Sims have some good ones mixtures, dude. Ahem, obviously they are not can put there climbing, so they replace it albuterol. I used their premixtures with Amino Asylum, their premixtures with albuterol (B12), Gohim ATP AMP, as it was called ? Super Shredder, and this stain seemed quite good. And I have... Helios by Belly Gust, which I inject into myself the lower part of the chest, and it just melts, yeah ? I am doing 20 micrograms of clay, that is 10 micrograms on each side, and How much is it? Maybe 2 milligrams of yohimbine, 1 milligrams of yohimbine per each side, and you just enter this before training. AND then, uh, you know, you you're a little burnt out, you start to sweat, so I have to use a little chalk, otherwise all these dumbbells flying everywhere. It yes, yes, it's sweating, yes cold, so nervous, so worrying. Hmm, but it still works pretty good. But this just needs time, isn't that right? This is not magic.
@@ -76,9 +78,13 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [21:42](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1302s) Gorilla Chemist did it first, and he didn't die . Then I feel more incentive is do. And I remembered you guys, I mentioned this in video about deep SLU immersion. Said,
 
+### Viewer question at [21:51](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1311s): What do you think about “high dose” SLU in the 100’s MG. Have you or would you try?
+
 [21:51](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1311s) Viewer question (read aloud): "What do you think about “high dose” SLU in the 100’s MG. Have you or would you try?"
 
 [21:52](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1312s) what should happen is this what someone will try this, order this thing in China, will launch higher dose and reports. Well, Kimus reported: he has phenomenal loss fat. I got it from China, and I use equivalent or human dose, based on research on animals, where observed phenomenal loss
+
+### Viewer question at [22:10](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1330s): Best way to use 600mg L canitine from Soma during fat loss phase. timing, doses, and IM/Subq?
 
 [22:10](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1330s) Viewer question (read aloud): "Best way to use 600mg L canitine from Soma during fat loss phase. timing, doses, and IM/Subq?"
 
@@ -104,6 +110,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 ## Thoughts On Raloxifene For Gyno
 
+### Viewer question at [28:12](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1692s): Thoughts on raloxifene for gyno while on EQ? 350eq 700testE 40mg telmisartan 5iuhgh
+
 [28:12](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1692s) Viewer question (read aloud): "Thoughts on raloxifene for gyno while on EQ? 350eq 700testE 40mg telmisartan 5iuhgh"
 
 [28:13](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1693s) roxiphine at gynecomastia, while test EQ 350 EQ 700 40 milligrams starts five-year growth. Well, roxofen blocks only estrogen receptor, and he can temporarily reduce gynecomastia, but when do you stop taking roxifin, gynecomastia will return. So how regarding that check the level estrogen? Look, which one is in your estrogen level at 350 EQ and 700, test how bold font, maybe metabolize into estradiol. So, maybe check and this, because then Estrone below current can metabolize into estradiol directly in nipple area. He will not get into the blood, but is transformed from estrone to estradiol in nipple areas and all can cause the same thing in you have gynecomastia. So check the level estrone and estradiol. If estrone and estradiol low, uh, if estrone is low, but estradiol is low high, then, maybe go to test 500 EQ 500, and this has lower your estradiol. Maybe your Estonian will rise a little, but then you don't relaxin is needed. You you receive antiestrogenic effects, anti-flavoring converting effect from Baldon and three metabolites: diro, baldon and a few more : ADD, ATD and one more. AND then you start with this, and growth hormone, well, growth hormone can interact with receptor prolactin, but you know, very rarely people are sick with gynecomastia from growth hormone, if only their level estrogen and prolactin not tall, and you don't have progenic nitrogen . So yes, I think you just need increase EQ and lower the test. Are there any
@@ -111,6 +119,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 ## Any Updates On Bioglutide?
 
 [29:51](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1791s) news about your an acquaintance who trying NA 931? So no, he hasn't started yet. And I viewed all sources, Chinese peptide manufacturers. I managed to find the one who sells biolutite. NA931-this biolutite. That's it fourfold agonist, right? GIP, GIP, GLP-1, er, glucagon and IGF-1. There is one, uh, Chinese provider peptides, uh, raw, who sells it, but first of all need to protest third side. So I don't 100% sure whether Bluetooth, which is now on the market, there is legitimate, but in one guy here, in Bangkok, he is, you know, and he coming soon to test it. So I will ask him when see you next time week, did he start to accept it already, and Did he notice anything? difference compared to zeppitite and retroite, which he used in past, and then, uh, Let's see what happens. The best levels in
+
+### Viewer question at [30:47](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1847s): does masteron promote muscle growth and does it lower e2 on blood work like we know primo does? basicly why would you...
 
 [30:47](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=1847s) Viewer question (read aloud): "does masteron promote muscle growth and does it lower e2 on blood work like we know primo does? basicly why would you ever pick masteron over Primo?"
 
@@ -130,6 +140,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [35:09](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2109s) Hey, David Roman, testosterone 140
 
+### Viewer question at [35:10](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2110s): Test C - 140mg/wk Deca - 315mg/wk Var - 20mg daily. E2 is 103 & SHBG is 10 (below normal). When on 140mg Test C only,...
+
 [35:10](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2110s) Viewer question (read aloud): "Test C - 140mg/wk Deca - 315mg/wk Var - 20mg daily. E2 is 103 & SHBG is 10 (below normal). When on 140mg Test C only, e2 is at 14. My understanding is that Deca doesn't aromatize. Is Var lowering SHBG causing the e2?"
 
 [35:10](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2110s) milligrams per week. Deca 350 milligrams per week. At 20 milligrams daily. Estradiol 103. I guess this is a peak. grams per milliliter. Glucocorticoid for 10 below normal. Yes, what? you expect from so many exercises, taking only 140 grams of testosterone cipat? Stage on 14. As far as I understand, decacorm not aromatized. He is predecessor estradiol. Dude, spend some research. Or viral glucose- glucose phosphate causes E2? No. Nandrolone promotes transformation. It metabolic intermediate product between testosterone and variety show. Men actually produce trace amounts nandralone, but no referent range. Believe me, I was looking for. Um, so you can you find scientific evidence about nandrolone, where is it actually there is intermediate link between testosterone. He moves from testosterone to estradiol. Some part of nandrolone not really enters the bloodstream. AND precisely because when you are you taking nandrolone, detection threshold the goal is achieved eternity, was it? 0.5 nanograms per? I am not I know anything, regardless of detection. Limit is 0.5,2, or two, or five, I forget, but there is a detection limit nandrolone in urine, and it is artificially inflated nanderlone, which you produce. That's why detection time nandrolone is like this long, because trenbolone you are not produce; he fully metabolized. IN all products metabolism from trenbolone, sulfates, glucaronidates, etc., it disappears in five months, regardless from ester. But with nanderlone it can to occupy from 12 to 18 months, because yours the body constantly It's replenishing, brother.
@@ -147,6 +159,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 [38:50](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2330s) do a blood test on the thyroid gland, this is done in faceted state without T4? Yes, you do this in faceted state for the day before or about after not took T3 and T4 within 24 hours. So you accept it in the morning, and then through 24 hours you do blood test. And if you do tests on T3 and T4 before bed, then you miss an appointment the night before. Thus, you See what you have. actual level thyroid hormones glands. But, obviously, if you use a combination of T4 and T3, e- uh, constantly, then you want to see which one your level in this specific dose. So you should continue it accept. Yes, it is. a little confused, depending on, What do you want? You want to see yours natural function thyroid gland, who is depressed now by taking exogenous T3 and T4, do you want to see which one level you have in blood serum will lead this specific T3 dose, T3 and T4, depends on whether Will you answer mine? question. Now no shedding hair or problems with skin, I want to continue to look like A pretty boy.
 
 [39:53](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2393s) Okay, then just start CRT. But yes, you have a little Eyes watering. You know, everyone has sometimes a little moon-shaped face, dude, under cycle time. So, you know , it's part of the game, or you need lose weight. I don't need to do " Minea" all day. Or I will need it.
+
+### Viewer question at [40:17](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2417s): will I likely need caber with 400deca/250tren/600test/125eq? Will be taking p5p and was fine when just using 150tren ...
 
 [40:17](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2417s) Viewer question (read aloud): "will I likely need caber with 400deca/250tren/600test/125eq? Will be taking p5p and was fine when just using 150tren without p5p. e2 likely at 40-45"
 
@@ -168,6 +182,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [43:37](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2617s) It is clear that I am not talked for hours in a row. So, a little irritated him. I just leave everything as is. Yes, dude. And I allow steroids do your work and I use fat burners, because I mean that more T3 simply means that you will become more sobbing, hotter, and, uh, and hungrier, and 50 micrograms of T3 is what where the retroid stops work. 25 micrograms of T3- retroid still works . You get good appetite suppression, but if you increase T3 above that's most people just again are starting to starve , otherwise you get weight loss. So, 25 micrograms of T3, 3 milligrams, I don't know, how many milligrams you need, and then use SLU PP332 in a higher dose. Simply
 
+### Viewer question at [44:28](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2668s): i have slu inject 1000mcg pr ml - u said in deep dive 200mcg 3 times a day, but i can up dose that alot considering w...
+
 [44:28](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2668s) Viewer question (read aloud): "i have slu inject 1000mcg pr ml - u said in deep dive 200mcg 3 times a day, but i can up dose that alot considering what you just said about slu?"
 
 [44:29](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2669s) add a little soam, and then fat loss It will be a miracle. Jonas, in
@@ -188,6 +204,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [47:20](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2840s) goods, B1 receptors
 
+### Viewer question at [47:20](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2840s): Could Retatrutide’s GLP1 receptor and brain signaling effects actually blunt tren rage by stabilizing glucose levels ...
+
 [47:20](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2840s) Viewer question (read aloud): "Could Retatrutide’s GLP1 receptor and brain signaling effects actually blunt tren rage by stabilizing glucose levels and reducing neuroinflammation?"
 
 [47:21](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=2841s) and signal effects brain actually dull the rage trend, stabilizing glucose level and reducing neuroinflammation. Ahem, maybe a problem with most of these GLP1 and, and you know GLP, 2, 3 and 4 soon, that neuronal bad effects documented in scientific evidence. AND believe me, I looked. I have a little dopaminergic effects and serotonin effects, but I think that's simple the absence of this chronic hunger on diet already improves your mood, because you are not focused on food all the time. You remove the noise of food, and it dulls negative effects trend. Now I use fluoxamine, methylene blue and retro. I am a walker. Pharmacy? Don't ask, truth? Steve, what are you doing? Are you doing it, did I accept it? I accept all drugs in effective doses, all simultaneously, in parallel. Yes, but they...I don't accept two receptions, right? Apart from steroids, these are; double techniques that affect androgen receptor , hmm, but yes. And I don't I accept Android.
@@ -204,6 +222,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [51:03](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3063s) Took three milligrams per week.
 
+### Viewer question at [51:05](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3065s): Been on 3mg of reta a week plan to be off for 10days cold turkey going to Oktoberfest. How cooked am I, megadose pref...
+
 [51:05](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3065s) Viewer question (read aloud): "Been on 3mg of reta a week plan to be off for 10days cold turkey going to Oktoberfest. How cooked am I, megadose preflight? lol (love the content btw)"
 
 [51:05](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3065s) I plan not to take 10 days. Cold turkey . I'm going to October. festival. As far as I have already prepared for megadosing before by flight? No, not. accept, don't accept megadoses. Simply increase the dose until October will begin festival, and then just stop, because period semi-extraction is seven days, six days, 8 days, that's quite a long time. So, if you stop for 10 days, only remains one and a half life. It doesn't matter. It'll work, dude. It doesn't matter. will work. That's all. it will dull your appetite. Maybe you worth stopping by two to three weeks before this, if you want eat all the sausages and drink all the beer. That's what October is here for. Fest, right? Sausages and beer. And this , uh, pork sausages, not men's sausages. If you like it like it, then go to the parade at the gate in Amsterdam. This, uh, is me. I don't know. I don't know what. This is a parade at the gate. , dude. I am straight, straight as hell. Um, yes, maybe you worth stopping by two to three weeks before this, dude, because otherwise, uh, you don't you will be able to enjoy all food. Jeremy, Synergy Trap, ancient
@@ -211,6 +231,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 ## Should You Stop Pregnenolone If Using Progestogenic Steroids?
 
 [52:13](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3133s) fan, Steve. Or
+
+### Viewer question at [52:13](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3133s): Long time fan Steve. Should supplementation of pregnenolone be stopped when using progesterogenic compounds like nand...
 
 [52:13](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3133s) Viewer question (read aloud): "Long time fan Steve. Should supplementation of pregnenolone be stopped when using progesterogenic compounds like nandrolone?"
 
@@ -238,6 +260,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [58:27](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3507s) Mayor, 46 years old, HRT since 10
 
+### Viewer question at [58:27](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3507s): 46yo trt since 10 years trt++ since 2 years. 175 test, 91 primo/week 10mg var/day startet 50mg npp/week. Should i sta...
+
 [58:27](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3507s) Viewer question (read aloud): "46yo trt since 10 years trt++ since 2 years. 175 test, 91 primo/week 10mg var/day startet 50mg npp/week. Should i stack hcg in case I wanna restore own production some day or 0 chance thatfor anyway"
 
 [58:29](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3509s) years. No, he accepts. HRT for 10 years. HRT ++ from two years old. And then in 2027 it will be on HRT ++++ actual cycles . 175 tests, 91 applications week, 10 milligrams anovara per day, started with 50 milligrams MPP per week. Worth it combine ACG if I want to someday restore one's own production, otherwise there is zero chance of that. Well, if you are 46 and you are all Do you still want to have children? you will need at least three months. I don't know whether Do you want to have children? or not. I am completely stopped taking HRT, dude. From me end. Damn it, me. Take it away, it's over. IN I have one daughter, two embryos in development. Damn it, get the hell out of me. end. My libido wonderful, especially in train. Hmm, mine wife is still hot . I earn well. What still needed for good libido, Dude? I am eating. great, right? So, I look good. IN I am beautiful...I have there is no dad bot. IN I'm wonderful, you know, I get compliments. from beauties in gym. Like, Steve, you have really good shape for dad. So no start calling I'm just a dad. Yes, girl. Um, but yes, if you want to impregnate someone in at this age, be please start taking HCG. Um, Nandlon has some negative consequences for parameters fertility, watch the video about steroids vs.
@@ -249,6 +273,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 ## When Should You Up The Dose?!
 
 [1:01:23](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3683s) Hey Steve, I'm doing daily injections
+
+### Viewer question at [1:01:24](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3684s): Hey Steve I’m running 250 a week daily injections still running adex .5 twice a week. Can I up my test or add in anot...
 
 [1:01:24](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3684s) Viewer question (read aloud): "Hey Steve I’m running 250 a week daily injections still running adex .5 twice a week. Can I up my test or add in another compound"
 
@@ -270,11 +296,15 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [1:05:53](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3953s) Daniel. Uh, what are yours?
 
+### Viewer question at [1:05:53](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3953s): Whats your best tips for filling all your micronutrients, are you heavy on vegetables?
+
 [1:05:53](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3953s) Viewer question (read aloud): "Whats your best tips for filling all your micronutrients, are you heavy on vegetables?"
 
 [1:05:54](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3954s) best tips for travel? What are yours? best tips for filling all trace elements? You Do you eat a lot of vegetables? Vegetables are not that great rich in nutrients substances, but if you eat healthy food and a variety of food, and you, we have Chronometer and several such programs, and they can just to give out, you know, which one your DRR, recommended daily allowance consumption rate, daily values, and then see if You meet the norm. And multivitamins, Dude, you're filling up. gaps in multivitamins. So, Gorilla Mite has multivitamins. In Alife there are multivitamins. IN Torren is a multivitamin. Gorilla gives you the best discount is 10%. The rest to get 5% discounts on IH herbs. So, Gorilla Elite with 10% discount with code Vigor. And then you take two pills a day, and then everything is covered. So, just eat. nutritious food, right? I eat. a lot of cabbage kale. I eat a lot. sauerkraut, uh, kimchi. I eat a little. quinoa. I eat some rice. . I eat a lot of fruit. And I eat beef, beef liver, chicken, a little pork.
 
 [1:06:55](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4015s) I eat salmon. I eat. walnuts and, uh- uh, cashew nuts and almond. Just eat. all the food that is super nutritious, and eat sufficient quantity portions, so as not to overdo it with calories. And then everything It'll be okay, dude. AND you fill in gaps with additives, Yes? If you can't get enough zinc from your diet that you can track by using a stopwatch , or you go to website Ministries rural US economy, enter everything manually in Excel spreadsheet and you see, that you only get 11 milligrams of zinc per day, but you want 25. Okay, add 12. milligrams of zinc, um, as a supplement, or 20 milligrams of zinc as supplement. You get another 10 milligrams of multivitamins, and then reduce 10% from bioavailability, for example, and then you You'll cover everything, man. It's easy. Eat well. healthy food and take supplements, to fill gaps. Uh,
+
+### Viewer question at [1:07:49](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4069s): Best PEDs for increasing collagen synthesis?
 
 [1:07:49](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4069s) Viewer question (read aloud): "Best PEDs for increasing collagen synthesis?"
 
@@ -296,6 +326,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [1:10:29](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4229s) Maldonia (Maldonius) ideal cardio-
 
+### Viewer question at [1:10:31](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4231s): would meldonium be the ideal cardio tool for the sugar diet? and could u add motc and slupp332?
+
 [1:10:31](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4231s) Viewer question (read aloud): "would meldonium be the ideal cardio tool for the sugar diet? and could u add motc and slupp332?"
 
 [1:10:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4232s) tool for sugar diet? Yes, absolutely. Newly I saw the list. ice climbers. Good. Iceman got maldonium. Not could you add SLP33 modifications? Yes, I think insulin, maldonium, maldronate, suppi very good will be combined with sugar diet. Ahem, insulin, obviously, to move all carbohydrates in skeletal muscles. Meldonium, to switch, um, or prevent production carnitine, um, switch energy production exclusively from glucose on ATP production; and then, uh, SLP332, MSI, SS31 and ubiquinol, peroquinolinquinone, to improve mitochondrial health, mitochondrial biogenesis and ATP production; and then you have a street with one-way traffic from the mouth, uh, to stomach, and then, uh, exogenous insulin, so that your pancreas the gland could a little to cool down through skeletal blood flow muscles where it just will turn into fuel and fire. Yes.
@@ -312,11 +344,15 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [1:13:19](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4399s) track progress in
 
+### Viewer question at [1:13:20](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4400s): How do youtrack progresses in the offseason? Everyone says you should only be gaining 1-2 poundsa weekbut never take ...
+
 [1:13:20](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4400s) Viewer question (read aloud): "How do youtrack progresses in the offseason? Everyone says you should only be gaining 1-2 poundsa weekbut never take intoconsideration starting acycle"
 
 [1:13:20](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4400s) off-season? All they say you should to recruit only one- two pounds a week and never consider possibility of starting cycle. What? I know. If you continue to become stronger, then Everything is fine. If you continue to become stronger, but not really If you get fat, then you are making progress, I would say. And, damn it take it, even if you're getting fat, that's not doomsday. You can you become again slim. Is there anything? to say that to be beautiful, fluffy and pumped up, you know? This is fun. I was damn strong this last one off-season. This is very fun. Of course, I became obese a fool, but I was damn strong, dude. Oh my God. I was too. huge. 122 kilograms. Cruelly. But yes, you check progress, keeping a journal and taking pictures, and weighing- this is just an indicator, dude. Image in the magazine will tell you are more than just a weight. Will there be any
 
 ## Do You Need To Cycle Cardarine?
+
+### Viewer question at [1:14:17](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4457s): Will there be any risks taking 10mg cardarine Indefinitely for better morning fasted cardio? Or should it be cycled 4...
 
 [1:14:17](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4457s) Viewer question (read aloud): "Will there be any risks taking 10mg cardarine Indefinitely for better morning fasted cardio? Or should it be cycled 4 weeks on 4 weeks off?"
 
@@ -326,6 +362,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [1:16:31](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4591s) Steve, hypothetically,
 
+### Viewer question at [1:16:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4592s): steve, hypothetically can i make it bigger without surgery?
+
 [1:16:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4592s) Viewer question (read aloud): "steve, hypothetically can i make it bigger without surgery?"
 
 [1:16:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4592s) can I improve is this without surgery? Yes, dude. Gram-monialis before sleeping and pumping penis with DHT cream. I should have made a video about this, but I just Damn lazy. Actually, I don't lazy. I just I finally find it. some time for yourself. Hmm, yes, but yes, growth hormone Sealis before bed, DHT cream and pumping, and there is article on my website. Simply Read it. Imagine itself. Steve, I miss you. his brother, who finally managed get a good night's sleep and wake up on time, to see yours questions and direct answers on air. That's all. It superchat. Well, you participant, so you don't need superchat, but Glad to see you here. , brother. Imagine. How are you, Mufa? It's like what a 16-year-old would ask year-old teenager. And Well, man. You don't even have to. thinking about Anavar, if you can't do it yourself answer this
@@ -333,6 +371,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 ## Do You Have To Lose Fat Before Blasting?
 
 [1:17:32](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4652s) question. Hey, Steve. 25
+
+### Viewer question at [1:17:33](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4653s): hey steve, 25mg of test e and 3iu gh daily brought my test levels up 140% to 980. e2 went from 19 to 41 (no bad effec...
 
 [1:17:33](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4653s) Viewer question (read aloud): "hey steve, 25mg of test e and 3iu gh daily brought my test levels up 140% to 980. e2 went from 19 to 41 (no bad effects). am I aromatizing too much? should i lose more fat before a proper blast ?"
 
@@ -349,6 +389,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 [1:21:03](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4863s) Nice try, FBI. THERE ARE, then it won't work. But, Well, "friendly armies" are in night areas life, such as Nana Soy Cowboy, not so much cowboy, but, uh, around Nana and around Punk Night Market. Yes. Way Carterin cancer, proven in rats, not exists in humans. In this context of it not studied in humans. So it is impossible to claim that this was not the case shown on none bodybuilders, but this never studied in public, because that would be unethical. Let's see, shall we make a dose Carine for people if they will get sick cancer. That's why we have animal models, so that we don't have to you know, to expose people in danger. Hey Steve, I hope that dad
 
 ## Start Low & Build Your Way Up! (For Everything)
+
+### Viewer question at [1:21:51](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4911s): Hi Steve, hope daddy life is treating you well. Thinking about 1 to 2iu gh(thinking generic) for trt plus. my igf1 is...
 
 [1:21:51](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=4911s) Viewer question (read aloud): "Hi Steve, hope daddy life is treating you well. Thinking about 1 to 2iu gh(thinking generic) for trt plus. my igf1 is naturally top of the reference range, Would i need to start higher?"
 
@@ -370,6 +412,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 [1:25:18](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5118s) will change something for you,
 
+### Viewer question at [1:25:18](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5118s): I’ll change things up for ya Steve - what type of humidor do you have for your cigars and what temp is it at?
+
 [1:25:18](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5118s) Viewer question (read aloud): "I’ll change things up for ya Steve - what type of humidor do you have for your cigars and what temp is it at?"
 
 [1:25:19](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5119s) Steve. What is your type? cigar humidor and What is its temperature? Uh, I think I have. cedar yumador, which I bought on AliExpress. I buy everything on AliExpress, dude. Uh, I need to. save a little money. Contributions the difference in cryptocurrency. So, uh- eh, AliExpress. I bought nice cedar, uh, a clown. He cost about 30 bucks or something. From the top of the glass. Hmm, and below is just a tree. I seasoned it, uh, not sterile water. Hmm, demineralized with water. Seasoned it demineralized with water. Then I put it there small, uh, a thing for measurement humidity and temperature. AND, I think I had 72%. Uh, temperature depends on air conditioner. Air conditioning usually works about 26 degrees Celsius. So 72-73% humidity, and, uh, I bought Bveta packages there.
@@ -380,9 +424,13 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 
 ## Thoughts On Increasing Test Dose Vs. Adding Primo
 
+### Viewer question at [1:27:44](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5264s): Cutting to 12% BF for first TRT+ cycle. Been 200mg test since Jan. Current plan 500mg test for 16 weeks, I can get Pr...
+
 [1:27:44](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5264s) Viewer question (read aloud): "Cutting to 12% BF for first TRT+ cycle. Been 200mg test since Jan. Current plan 500mg test for 16 weeks, I can get Primo. Test only or add in Primo?"
 
 [1:27:44](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5264s) body fat for my first cycle of TRT plus. I accept 200 milligrams testosterone since January. Abbreviation, uh, current plan–500 tests for 16 weeks. Uh, I can. add only Primo, or add Primo. Well, out of 200 tests up to 500 tests– it's a small jump. So why don't you do 375 tests for several weeks, look, How do you like it? and then go to 250 tests, 250 Primo. Yes, I would. So he did. What action between them? It seems that this so that you can to see how you are you tolerate higher doses, and then you have increment between 200 and 500. Imagine that you are traveling with at a speed of 20 miles per hour an hour, and then You accelerate for a second. up to 50 miles per hour. This is a big leap, dude. Not that 50 miles per hour–this quickly, but, well, if you are naked On a bicycle, maybe. Actually, not quite. But yes, if you are on a bike, it's fast . But yes, 375 between them, and then reduce the dose up to 250 for the test and add Primo when blood test for 250 every time. Vincent
+
+### Viewer question at [1:28:50](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5330s): Sent you a message on there (same name). Thanks for the answers, the karting sounds cool, karting race pending??
 
 [1:28:50](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5330s) Viewer question (read aloud): "Sent you a message on there (same name). Thanks for the answers, the karting sounds cool, karting race pending??"
 
@@ -399,6 +447,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 [1:33:08](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5588s) This is an analysis. blood every month, and you, Damn it, use each corner, but I spend more than most people earn money for month, considering your salary. And what else? more, you know what else worse, this is what I get all my drugs free. Uh, so I can do it. truth? But I can easy to spend 5000 dollars per month drugs, auxiliary means, preparations for improvement productivity, blood tests, everything like this. I can easily to afford it, because I am part of the fitness industries, and all want to sponsor me in this. But yes, I wouldn't be surprised if I will spend on couple's equipment thousand dollars for month. And this is more, than most people can afford to allow Um, me too I also spend on blood tests much more than most people, truth? I am doing this. monthly. 700 bucks, dude. You know, I indifferently. So, how long? Will I train? It's been two, how many? weeks? I probably will. to train, I don't I know, in November, 10 150 weeks milligrams. Or, maybe I'll stop this sooner, if I feel it, what are the work parameters my buttocks are changing. Past once is a little bit increased my cyclosporine and calcium at 25 milligrams per week. So, if I feel that the level my cycle is increasing too fast or too high, then I am trying to restore the trend and again use Tristalon, if I may.
 
 [1:34:19](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5659s) to get it, and in otherwise I add primabol, you know. But again Yes, you guys, not me. I have a whole pharmacy. at home and access to free medicines. THERE ARE -eh, but how much is it worries at 35 milligrams per week? Personally, I would felt comfortable, using the whole melatonin and antioxidants. I would took 35 milligrams Trianon for a week for 12 weeks. It my risk assessment for 12 weeks. Dude, I personally I'm more worried about neurotoxicity from all cigars and alcohol that I drink. When I talk about the whole the alcohol I drink at vacation, for example, The last time I drank alcohol for two weeks ago or a week ago, when my friend arrived here, and a week ago I was in Bali, and it was in April. So, here's what I did one, two, three, four, five months without alcohol. And when I I'm drinking, that's too much. It Just me, brother. Augmented athlete Primo Ace oral was
+
+### Viewer question at [1:35:30](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5730s): Primo Ace oral has been fun: sweet spot was 100mg (no liver issues) next time might call for 150mg daily. Feels like ...
 
 [1:35:30](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=5730s) Viewer question (read aloud): "Primo Ace oral has been fun: sweet spot was 100mg (no liver issues) next time might call for 150mg daily. Feels like a stronger Proviron, strength just slightly less than Anavar. No bloat and veins are nutty!"
 
@@ -427,6 +477,8 @@ url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
 [1:42:11](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=6131s) so in the lower back. Um, ah then I have, you know, thick skin on quadriceps, etc. So the diet will continue. by the end of the year. And then I want to be completely chopped into Christmas. 100 milligrams comprehensive variability before the patent was withdrawn. I ran with the pumps on 100 milligrams was hard. Yes, that's a lot, dude. Dude, when I run with 50 milligrams. anar-hydroxytoluene , I also passed many tests. It was hard, man. Many side effects effects. But I was God in the gym. When you pick up a dumbbell weighing 50 pounds or 50 kilograms, how are you? flies from the rack. Therefore, I am going to do chest press 50 kilograms. You are like this: "Damn, I have to do it." posterior deltoids exercises", and then you're taking on 60 compressed ends belly and you think, right? I'll tear off your breasts. muscles. Uh, three years prednisone, I need it 30, from vasculitis. AT yes, vasculitis is deadly It's dangerous, man. That's what killed me abusporin. Yes, prednisone is Brutal, dude. [ __ ], dude. This is something like that will destroy your physical form. So yes, Respect to you, that survived this [ __ ] and made changes to get back to good form. 240. Let's do it. 240 chopped. 240 chopped. I take 150 milligrams.
 
 ## There Are Better Fat Burners Than Thyroid Hormones
+
+### Viewer question at [1:43:26](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=6206s): I’m on TRT 150 mg Test doc just put me on 57 mcg T4 and 13.5 mcg T3 to cut. Can I take this dose higher and for how l...
 
 [1:43:26](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=6206s) Viewer question (read aloud): "I’m on TRT 150 mg Test doc just put me on 57 mcg T4 and 13.5 mcg T3 to cut. Can I take this dose higher and for how long would I wanna run this for? ￼ I don’t wanna shut down TSH. ￼"
 

@@ -64,11 +64,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [16:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=1001s) Hey Steve, your YK11 inspired me to YK11
 
+### Viewer question at [16:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=1001s): Hey Steve, your yk11 video inspired me to try. if the yk.is suspended in mct oil like my trt can those be combined an...
+
 [16:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=1001s) Viewer question (read aloud): "Hey Steve, your yk11 video inspired me to try. if the yk.is suspended in mct oil like my trt can those be combined and does yk11 need to be split 2 doses per day am and pm?"
 
 [16:43](https://www.youtube.com/watch?v=637NmaMJBBA&t=1003s) video inspired me to try it. If the YK11 is suspended in MCT oil like my TRT, can those be combined and does YK11 need to be split into two doses per day AM and PM? No, I don't think that's necessary because again, the injection depot keeps it there for approximately 24 hours. So, once per day dosing is more than enough. And yes, if it's an MCT oil, then you can mix it with your TRT, and whether that's sesame oil or castor oil, excuse me, or other or MCT oil as well. Any oil-based compounds you can mix together. It will turn to a lava lamp if you mix MCT with castor oil because MCT is kind of viscous and castor oil is kind of thick, so it will kind of you know, bubble all together. But that was never an issue for me, man. I I injected my YK11 with MCT oil and castor oil all at the same time, you know, a little bit of tren, a little bit of ment, a little bit of YK11, and sometimes I would just take it all intramuscularly and be done with it. All good.
 
 [17:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=1064s) Hypertrophy warlord Steve on test and
+
+### Viewer question at [17:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=1064s): Hypertrophy Warlock Steve, on Test and Deca with calories solid, what non obvious factors usually drive cold hands or...
 
 [17:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=1064s) Viewer question (read aloud): "Hypertrophy Warlock Steve, on Test and Deca with calories solid, what non obvious factors usually drive cold hands or flat pumps from a performance standpoint?"
 
@@ -77,6 +81,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## Thoughts On Dropping NPP For MENT
 
 [18:15](https://www.youtube.com/watch?v=637NmaMJBBA&t=1095s) Hey Steve, I'm on 600 testosterone
+
+### Viewer question at [18:15](https://www.youtube.com/watch?v=637NmaMJBBA&t=1095s): Hey Steve! I’m on 600 TE, 400 NPP and 400 EQ bulk. About to drop NPP after the 12 wk, another 12 wks left. Makes sens...
 
 [18:15](https://www.youtube.com/watch?v=637NmaMJBBA&t=1095s) Viewer question (read aloud): "Hey Steve! I’m on 600 TE, 400 NPP and 400 EQ bulk. About to drop NPP after the 12 wk, another 12 wks left. Makes sense to introduce MENT or stay on TE and EQ and ramp up the dose? Thx for all u doing"
 
@@ -94,6 +100,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [21:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=1269s) Hey Steve, G here again. For fixing
 
+### Viewer question at [21:11](https://www.youtube.com/watch?v=637NmaMJBBA&t=1271s): Hey Steve, G here again. For fixing muscle imbalances or side-to-side asymmetry, do you recommend unilateral machines...
+
 [21:11](https://www.youtube.com/watch?v=637NmaMJBBA&t=1271s) Viewer question (read aloud): "Hey Steve, G here again. For fixing muscle imbalances or side-to-side asymmetry, do you recommend unilateral machines, specific training splits or styles? Any peptides that help bring up weaker sides?"
 
 [21:12](https://www.youtube.com/watch?v=637NmaMJBBA&t=1272s) muscle imbalances or side-by-side asymmetry, do you recommend unilateral machines specifically training splits or styles? Any peptides that help bring up weaker sides? The first you got to fix an uh spinal imbalance or maybe a neuromuscular imbalance, and there's no exercise for that. For that, you need to do maybe uh Graston Technique, deep tissue massage therapy, and then eventually some spinal adjustments with chiropractic work. So, it it's multifactorial, right? And and dude, I have imbalanced chest, imbalanced shoulders, imbalanced biceps. I see it. Nobody else sees it. And I just don't give a [ __ ] I it's Steve, your one chest is smaller than the other one. So what? Suck my dick. Get on your [ __ ] knees. Let me fart in your face. It Honestly, man, nobody gives a [ __ ] dude. I I'm I lost one calf. That I'm that I'm upset about, right? One calf is gone. I could go through all of the efforts to inject GHK copper and insulin and do uh like locally where the where the muscles going to atrophy, and then do shockwave therapy, and use ARA-290 in sterile saline to help regrow nerve tissue, and it's it's too much work. For what? Okay, I lost one calf. Okay, I'm never going to get married. Oh, wait.
@@ -103,6 +111,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 [23:29](https://www.youtube.com/watch?v=637NmaMJBBA&t=1409s) Yeah. And that takes time and money and effort, and I'm not willing to I'm just going to be big. Big and jacked and lean. Ooh. It's more than enough, man. It's more than enough. Uh 95 just joined joined the Vigorous Crew, right? Already has a question. I'm
 
 ## How To Offset Sleep Deprivation (Being A Father)
+
+### Viewer question at [23:49](https://www.youtube.com/watch?v=637NmaMJBBA&t=1429s): I’m going to be a father soon. I’m currently on TRT. Any compounds or supplements to offset sleep deprivation? I was ...
 
 [23:49](https://www.youtube.com/watch?v=637NmaMJBBA&t=1429s) Viewer question (read aloud): "I’m going to be a father soon. I’m currently on TRT. Any compounds or supplements to offset sleep deprivation? I was considering selank and semax"
 
@@ -114,6 +124,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [25:43](https://www.youtube.com/watch?v=637NmaMJBBA&t=1543s) If 150 mg test E has my SHBG at 25, then
 
+### Viewer question at [25:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=1544s): If 150 test E has my SHBG at 25, then I add primo and anavar for ~12 weeks (obviously reducing SHBG), and then gk bac...
+
 [25:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=1544s) Viewer question (read aloud): "If 150 test E has my SHBG at 25, then I add primo and anavar for ~12 weeks (obviously reducing SHBG), and then gk back to just 150 test, should my SHBG return back up to 25 after a few weeks?"
 
 [25:47](https://www.youtube.com/watch?v=637NmaMJBBA&t=1547s) I added the primo and Anavar for 12 weeks, obviously reducing SHBG, and then going back to just 150 test, should my SHBG return back to 25 after a few weeks? Yes. Yes, but primo might take 6 weeks to metabolize, Anavar about 3 weeks, and then it will start to creep up. So, if you took it for 12 weeks and SHBG ends up at 6, for example, you take the primo and Anavar out, then 6 weeks later, it will start to creep up, and then maybe that takes another 6 weeks. So, I would say 12 weeks for everything to normalize. Why so slow? Take some thyroid hormones, get your estrogen up. You can speed up the process, bring it SHBG up because SHBG is being produced by thyroid hormones and estradiol. Or you take some Turkesterone and Ecdysterone. Can also raise SHBG a little bit, couple points. Does it move the needle? Probably not, besides uh denting your wallet.
@@ -124,9 +136,13 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [26:52](https://www.youtube.com/watch?v=637NmaMJBBA&t=1612s) Trade Junior, 300 test, 2 IU of growth
 
+### Viewer question at [26:53](https://www.youtube.com/watch?v=637NmaMJBBA&t=1613s): 300 test 2 units hgh 20 mg accutane. 300 mg injectable glutathione labs show a platelet drop of 100 points alt 46 ast...
+
 [26:53](https://www.youtube.com/watch?v=637NmaMJBBA&t=1613s) Viewer question (read aloud): "300 test 2 units hgh 20 mg accutane. 300 mg injectable glutathione labs show a platelet drop of 100 points alt 46 ast 56 should i take any action?"
 
 [26:54](https://www.youtube.com/watch?v=637NmaMJBBA&t=1614s) hormone, 20 mg Accutane. Is it daily or per week? There's a big difference there. 300 mg injectable glutathione lab show a platelet drop of 100 points, ALT/AST about 50. Should I take any action? Hmm. I would need to see the entire blood work, man. Just telling me your platelets and liver en- liver enzymes are not that high. Could be elevated from training. Will the injectable glutathione bring down? And again, I it's a 20 mg Accutane per day or per week? Just to bring the acne down slightly. 10 mg Accutane Monday-Friday, 20 mg a week. But if it's 20 mg per day, then I would say that those liver enzymes are not that bad. Well, and platelets can drop, can fluctuate. You know, take some B vitamins. Will help with normal platelet production. Take some vitamin K, help with normal platelet aggregation. And 300 mg injectable glutathione might not be enough to prevent any liver
+
+### Viewer question at [27:50](https://www.youtube.com/watch?v=637NmaMJBBA&t=1670s): Hey Steve, I got some Test E 250 from AP, India Warehouse. Not one of the ampules had a full ML. They are all about ....
 
 [27:50](https://www.youtube.com/watch?v=637NmaMJBBA&t=1670s) Viewer question (read aloud): "Hey Steve, I got some Test E 250 from AP, India Warehouse. Not one of the ampules had a full ML. They are all about .8ml. First time dealing with ampules. Is this common ?"
 
@@ -138,11 +154,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 ## Injectable Anadrol In Guaiacol? Trash!
 
+### Viewer question at [29:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=1740s): Bought some injectable Anadrol, found out that it contains 15% guaiacol, according to the suplplier. Planning on usin...
+
 [29:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=1740s) Viewer question (read aloud): "Bought some injectable Anadrol, found out that it contains 15% guaiacol, according to the suplplier. Planning on using it 3x week on my heavy lift days. Trash it or Try it ?"
 
 [29:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=1740s) Bought some injectable Anadrol only to find out it contains 50% guaiacol, according to the supplier. Planning on using it three times a week on my heavy lift days. Trash it or try it? Trash it. Why risk raising your inflammatory markers to the point it looks like you have cancer? Um I have some injectable Anadrol here. It crashed. It's an MCT oil, benzyl benzoate, benzyl alcohol. It crashed. And I tried to heat it up, and it didn't get back into solution, so I binned it. Respect your body, man. Just because you have the drugs laying around, doesn't mean you have to take it, you know? It's that simple. Guaiacol, I would never touch again. I did it one time from MTS from UK years ago through the what is it? The GH15 forum. It was like injectable Anadrol with Dianabol and um methyltrienolone and oh man oh man I had crazy workouts but the I felt toxic as [ __ ] So no. Now that you know, just bin it.
 
 [30:01](https://www.youtube.com/watch?v=637NmaMJBBA&t=1801s) Just bin it and don't buy from that source again because they're trying to kill you. You should not use guaicol. Welcome to
+
+### Viewer question at [30:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=1805s): hopped on my first cycle through your youtube guidance, feel amazing! on 300mg of TE at 25% bf, it’s not ideal but wo...
 
 [30:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=1805s) Viewer question (read aloud): "hopped on my first cycle through your youtube guidance, feel amazing! on 300mg of TE at 25% bf, it’s not ideal but wondering if i can build maximally in a deficit or shall i maingain? idm being fluffy"
 
@@ -158,6 +178,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [32:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=1920s) ST is curious if you would run DC
 
+### Viewer question at [32:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=1920s): Hey Steve curious if you would ever run DHT Prop or DHT E considering its now being sold
+
 [32:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=1920s) Viewer question (read aloud): "Hey Steve curious if you would ever run DHT Prop or DHT E considering its now being sold"
 
 [32:02](https://www.youtube.com/watch?v=637NmaMJBBA&t=1922s) propionate or DC enanthate considering it's now being sold. Yeah, I found a source for it. Thank you guys for sending it to me. Uh it's kind of expensive. Oh what was the price? >> [panting] >> 100 milligrams per milliliter of DC enanthate $220. I know I can get Primo cheaper than that. >> [laughter] >> I have a whole [ __ ] drawer full of Primo before the drought. Um yeah, I might buy some and run it but I'm going on a cruise man. Let you can see from the thumbnail it's time to cruise. So I will put an order in eventually and then try to get it in and maybe stock up. And then if it's good I'll get you guys a discount code at this website. >> [laughter] >> You know, you might as well make some money if it's good. [ __ ] Yeah, it's higher on the to do list than DHB. But when I don't know like ideally or I run cycles by the calendar right so it's now December it's nice and cool. I could basically push it until February but I started a high dose cycle too early so now I'm kind of fried. Like my whole body hurts dude. My [ __ ] triceps are [ __ ] my elbows my knees.
@@ -170,11 +192,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [35:07](https://www.youtube.com/watch?v=637NmaMJBBA&t=2107s) Uh how healthy is TRT plus 1400
 
+### Viewer question at [35:08](https://www.youtube.com/watch?v=637NmaMJBBA&t=2108s): how healthy is TRT+(1400ng/dl-1600ng/dl) long term/longevity wise? i do cardio (zone 2 & hiit 2x week), and eat few s...
+
 [35:08](https://www.youtube.com/watch?v=637NmaMJBBA&t=2108s) Viewer question (read aloud): "how healthy is TRT+(1400ng/dl-1600ng/dl) long term/longevity wise? i do cardio (zone 2 & hiit 2x week), and eat few saturated fats and high fiber diet"
 
 [35:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=2109s) nanograms per deciliter to 600 nanograms per deciliter long-term vitality-wise I do cardio zone two and hit cardio twice a week and do eat a few saturated fats and high fiber diet. I I think it's fine man. I think it's fine. I can think you can run this TRT plus up until you're 60 and then I don't mind until you need to reduce the dose a little bit to bring yourself back into the reference range but it depends on what else you're doing right? Are you doing the ancillaries? Are you living the lifestyle or doing the daily fasted cardio up until then? I think TRT is very sustainable but with age you tolerate higher doses less and you just get smaller and you know, you can't train as hard you got some injuries so you need less testosterone to sustain the muscle that you have because you can't train as hard and you need training and testosterone to you know keep your physique going but eventually it will just start to deteriorate. So I plan to be on TRT maybe until 50 60 years old and then or TRT plus and then maybe 150 test and then maybe 100 test at 70 years old or 100 75 years old right? 75 years old on 100 test. Maybe a little bit of growth hormone or or maybe my priorities change and I just don't mind being androgen deficient and not going to the gym. I don't know. But I think TRT is the most sustainable thing you can do for your male body man better than drinking alcohol or smoking cigars or taking recreational drugs.
 
 [36:32](https://www.youtube.com/watch?v=637NmaMJBBA&t=2192s) Um you know, I I think you can run TRT
+
+### Viewer question at [36:34](https://www.youtube.com/watch?v=637NmaMJBBA&t=2194s): Hey Steve, running my TRT at 240 test/week (split daily). My e2 is 66 (ultra sensitive). When adding Primo can I go w...
 
 [36:34](https://www.youtube.com/watch?v=637NmaMJBBA&t=2194s) Viewer question (read aloud): "Hey Steve, running my TRT at 240 test/week (split daily). My e2 is 66 (ultra sensitive). When adding Primo can I go with 240 as well or should I start at 120? Don't want to drop e2 too low."
 
@@ -186,6 +212,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [37:40](https://www.youtube.com/watch?v=637NmaMJBBA&t=2260s) I don't get it. All these Instagram models that look absolutely phenomenal and all they can think about is cheesecake. >> [laughter] >> What's the point? Bro. So 240 test 240 Primo do your blood work four weeks five weeks into that and then see where you're at. Uh thanks Daddy Steve for all that you
 
+### Viewer question at [38:02](https://www.youtube.com/watch?v=637NmaMJBBA&t=2282s): Thanks, Daddy Steve for all that you do. With your help I've gone from 75kg to 92kg in 2.5 years. Much love!
+
 [38:02](https://www.youtube.com/watch?v=637NmaMJBBA&t=2282s) Viewer question (read aloud): "Thanks, Daddy Steve for all that you do. With your help I've gone from 75kg to 92kg in 2.5 years. Much love!"
 
 [38:03](https://www.youtube.com/watch?v=637NmaMJBBA&t=2283s) do with your help I've gone from 75 kilos to 92 kilos in two and a half years. Much love. There you go. That's great to hear Chop Suey 911 or 911. Is it 911 or 911? That's the the the numbers are similar but the results are different or the causes. Anyway, uh happy to hear that bro. I'll put that 5 euros in the cheesecake fund. Tomorrow we'll not have cheesecake we'll have Vietnamese food. So we'll have some some pho and some pho for your $5. Yeah. Oh five five dollar me love you long time. >> [laughter] >> Let me get some sucky sucky for that $5. Yeah, maybe 1976. >> [laughter] >> Nowadays they don't even look at your dick for $5. Don't even get to take your pants off.
@@ -194,17 +222,23 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [38:55](https://www.youtube.com/watch?v=637NmaMJBBA&t=2335s) Uh dose is recommended for somebody
 
+### Viewer question at [38:55](https://www.youtube.com/watch?v=637NmaMJBBA&t=2335s): Dosage recommendation for someone taking Anavar and TBol at same time? Have both, goal is gain as much strength as po...
+
 [38:55](https://www.youtube.com/watch?v=637NmaMJBBA&t=2335s) Viewer question (read aloud): "Dosage recommendation for someone taking Anavar and TBol at same time? Have both, goal is gain as much strength as possible , also taking 300mg test."
 
 [38:56](https://www.youtube.com/watch?v=637NmaMJBBA&t=2336s) taking Anavar and Trenbolone at the same time. I have both goals to gain as much strength as possible also taking 300 test. Uh 30 milligrams of or 25 milligrams of Anavar and keep the Trenbolone What's the point? There's no additional benefit of adding Trenbolone to the Anavar unless you want to cramp up. There's no benefit. You don't get additional collagen synthesis. You don't get additional performance. You don't get additional anabolism. Anavar is superior in any way shape or form. The only reason why you would want to run Trenbolone is because you ran out of Anavar. >> [laughter] >> Or you can't get Anavar or you can't afford Anavar or it's the first time you're running an oral steroid. So the first time running an oral steroid or running running out of Anavar. Uh that's the only practical application of trenbolone. Um and again, it's a it's a aldosterone synthesis inhibitor, so you might cramp by promoting too much sodium excretion. And then it might feel like Winstrol, right? Like everything is cramping up and you're like, "Ah, it doesn't really feel good. I'm not really sure if I can do max efforts because everything feels so crampy and sodium depleted." And then you have an injury and the Anavar is going to recover you from that injury, but it's not going to prevent it. So, 25 mg Anavar, shut the [ __ ] up and throw your trenbolone in the trash or somewhere in the back absolute back of the drawer that when you run through all of your boxes of Anavar, then trenbolone is there and you're like, "Ooh, I know I ran out of Anavar, but I still want to continue two more weeks on oral steroids and I have a box of trenbolone.
 
 [40:29](https://www.youtube.com/watch?v=637NmaMJBBA&t=2429s) All right, 30 mg trenbolone, 50 mg trenbolone and added sodium to every meal. Let's go." Yeah, let's go. Ment is good. I agree. If tren had no sides, would everybody
 
+### Viewer question at [40:42](https://www.youtube.com/watch?v=637NmaMJBBA&t=2442s): If tren had no sides, would everyone run grams?
+
 [40:42](https://www.youtube.com/watch?v=637NmaMJBBA&t=2442s) Viewer question (read aloud): "If tren had no sides, would everyone run grams?"
 
 [40:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=2444s) run grams? Yeah, I think so. Yeah. Yeah, but the the the the nature of the beast, the the bug in the matrix is that all the good things in life uh come with side effects. Yeah. Sucks. It's not fair, man. It's no free rides. Adam, all right. Here we go. Here's the question.
 
 ## How To Dose Choline Inositol & L-Methionine
+
+### Viewer question at [41:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=2465s): Dosage recommendation for Choline inositol and L-methionine for a liver cleanse cycle? Would taking them fasted have ...
 
 [41:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=2465s) Viewer question (read aloud): "Dosage recommendation for Choline inositol and L-methionine for a liver cleanse cycle? Would taking them fasted have any further benifits?"
 
@@ -216,6 +250,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [42:20](https://www.youtube.com/watch?v=637NmaMJBBA&t=2540s) >> Hey, Steve, planning to buy MOTS-c,
 
+### Viewer question at [42:21](https://www.youtube.com/watch?v=637NmaMJBBA&t=2541s): hey steve planning to buy mots c slu and semax how do we know the shelf life once Reconstituted?also any peds/peptide...
+
 [42:21](https://www.youtube.com/watch?v=637NmaMJBBA&t=2541s) Viewer question (read aloud): "hey steve planning to buy mots c slu and semax how do we know the shelf life once Reconstituted?also any peds/peptide that can help with marathon prep"
 
 [42:22](https://www.youtube.com/watch?v=637NmaMJBBA&t=2542s) SELANK, and Semax. How do we know the shelf life once reconstituted? Any peptides that can help with the marathon prep? Uh a million of them, man. Watch the endurance deep dive. It's all explained there. So, let's see. MOTS-c, when you reconstitute that, I would say that it's before they would say, "Oh, you need to inject it right away." And then everybody would get anaphylactic shock and all kinds of bubbles and and lesions and >> [laughter] >> and cellulitis at the site of injection and then redness and stuff. And then even other injections, it's so weird. You get some sort of allergic response. So, you would do like your testosterone shot and then maybe HCG and some other stuff and then you inject MOTS-c. And then wherever you injected before, you would get like rashes. It's so [ __ ] up if you were to go 5 mg, 10 mg shots. I 10 mg is how Oh my my man, I would be on the floor. So, MOTS-c, uh I I put 1 ml into a 10 mg vial and inject 1 mg per day and it works just fine. It works just fine. Uh SELANK is a powder, don't inject that. Semax, I got Semax nasal sprays that don't seem to denature. They're still effective. I got a nasal spray that's like 4 months old.
@@ -225,6 +261,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 [44:35](https://www.youtube.com/watch?v=637NmaMJBBA&t=2675s) And otherwise, you well, you got to up the dose, bro. >> [laughter] >> I want to make it last a month. [ __ ] you, dude. [ __ ] you, [ __ ] That's not how I get affiliate sales. Man, I expect you to run through these vials in a couple days, man. So, you have to buy a lot. That's what the [ __ ] Black Friday was for. I just [ __ ] run through this [ __ ] I bought like um 4K worth of peptides from China. From China. Um through one of my suppliers cuz I stocked up this year. Again, if you're coming to Thailand, "Steve, can I buy some of your supply?" No, [ __ ] you. I'll block you in real life with one of my batons. >> [laughter] >> You'll be surprised what you can store in a motorcycle. You just and then >> [snorts] >> you won't even see it. So, uh don't ask. Uh I'll I'll I'll I'll whip you into [ __ ] respect again. But uh yeah, I stocked up on peptides because next year they're going to tax all the packages, so that will last probably 3 months.
 
 [45:37](https://www.youtube.com/watch?v=637NmaMJBBA&t=2737s) And then they get tired at you know, the customs and then they'll probably relax a little bit, but I might as well I felt like I stocked up. So, that's all in the fridge ready to be used and I reconstitute when I need it and run through it in a couple days. How it should be. And don't make it last 60 days. That's
+
+### Viewer question at [45:54](https://www.youtube.com/watch?v=637NmaMJBBA&t=2754s): Big Poppa Steve, Running 300 TE/300 EQ. Going to add 25mg Superdrol tabs. Is it better to cut Super in half & take AM...
 
 [45:54](https://www.youtube.com/watch?v=637NmaMJBBA&t=2754s) Viewer question (read aloud): "Big Poppa Steve, Running 300 TE/300 EQ. Going to add 25mg Superdrol tabs. Is it better to cut Super in half & take AM & PM? Also what about only running on training days to give the liver a break?"
 
@@ -240,6 +278,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [47:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=2864s) For recovery after surgery, I want to
 
+### Viewer question at [47:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=2864s): For recovery after surgery i wanna use HGH, GHK-Cu, collagen, vitamin C, and hyaluronic acid.Can/Should i add anythin...
+
 [47:44](https://www.youtube.com/watch?v=637NmaMJBBA&t=2864s) Viewer question (read aloud): "For recovery after surgery i wanna use HGH, GHK-Cu, collagen, vitamin C, and hyaluronic acid.Can/Should i add anything else, AAS? Would Anavar help?"
 
 [47:45](https://www.youtube.com/watch?v=637NmaMJBBA&t=2865s) use growth hormone, GHRP-6, copper, collagen, vitamin C, and hyaluronic acid. Can should I add anything BPC-157 obviously to help with the surgery incision site. Uh Anavar helps, at least testosterone replacement therapy after the surgery not before the surgery. And and I think that pretty much covers it. The silicon and and uh or silica and copper. But that's already in the GH copper. That helps with collagen synthesis as well. If you go through some of the previous Q&As and the gyno videos, I discuss recovery protocols for surgery. Um and it's all explained there. It's It's really It's so in-depth. Man, you you don't even know where to start. Actually, you know exactly where to start. You know exactly where to order and what to buy. And then after surgery, the doctor's like, "What the [ __ ] did you do?" Say, "I got that Wolverine healing factor, bitch." >> [laughter] >> You don't tell them.
@@ -248,11 +288,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [48:46](https://www.youtube.com/watch?v=637NmaMJBBA&t=2926s) 3 and 1/2 weeks on 250 IUs HCG, natty. No, you're not natty anymore, man. You're you're You're welcome to the club. This [snorts] is like the the like uh Z-tier steroid use. Yeah, even lower than SARMs. >> [laughter] >> Increased my test by 35% 69 animals to
 
+### Viewer question at [49:03](https://www.youtube.com/watch?v=637NmaMJBBA&t=2943s): 3.5 weeks on 250iu hcg (natty) increased test by 35% 16nmol to 21.6, 0 aromatisation, doubled the dose. Very Impresse...
+
 [49:03](https://www.youtube.com/watch?v=637NmaMJBBA&t=2943s) Viewer question (read aloud): "3.5 weeks on 250iu hcg (natty) increased test by 35% 16nmol to 21.6, 0 aromatisation, doubled the dose. Very Impressed HCG DEEP DIVE."
 
 [49:06](https://www.youtube.com/watch?v=637NmaMJBBA&t=2946s) 21.6 year aromatization. Double the dose, very impressed. HCG deep dive. All right, so you're not natty, but it's good to hear that it's working. Go to 500 IUs HCG three times per week and then uh do blood work again. And then maybe 1,000. And then maybe 1,000 every day. But then at that point, your balls start to hurt and your serum estradiol might be elevated, so you need some Aromasin or calcium D-glucarate or dinomethane or you know, some other methods like metformin or Cialis to bring your estrogen levels down by manipulating your aromatase enzyme expression. Uh and and the next step is steroids because 21.6 nanomoles is cute. But 50 is better. You might not get there with 1,000 IU's HCG three times a week or maybe every single day, but you will get there on TRT, bro. And then you drop the HCG down to 250 IU's again. Keep those testicles active and supplement your testosterone on top. And yeah, there's some primo, some Anavar, some growth hormone. You're in the TRT plus plus plus plus plus plus club.
 
 [50:07](https://www.youtube.com/watch?v=637NmaMJBBA&t=3007s) And then instead of doing the gang signs, you got front double biceps. Now, you will not get like this, obviously. You will not get this. Look at this little hole. Straight edge, bro. Straight edge. Um they will not look like this on TRT plus. You'll need to do an actual real man cycle. But HCG monotherapy is a gateway drug into uh that. You know? Kratos, hey big guy, don't want to name any
+
+### Viewer question at [50:39](https://www.youtube.com/watch?v=637NmaMJBBA&t=3039s): Big guy, I don’t want to name names, but I paid $1,130 to one of your affiliates on 11/5. They admitted forgetting to...
 
 [50:39](https://www.youtube.com/watch?v=637NmaMJBBA&t=3039s) Viewer question (read aloud): "Big guy, I don’t want to name names, but I paid $1,130 to one of your affiliates on 11/5. They admitted forgetting to process it, but it still hasn’t shipped and I’ve been stonewalled. Any advice?"
 
@@ -263,6 +307,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## Does Reta Hinder Your Endurance?
 
 [51:48](https://www.youtube.com/watch?v=637NmaMJBBA&t=3108s) Has Reddit hindered your cardio
+
+### Viewer question at [51:49](https://www.youtube.com/watch?v=637NmaMJBBA&t=3109s): Has reta hindered your cardio/ endurance or anyone you know?
 
 [51:49](https://www.youtube.com/watch?v=637NmaMJBBA&t=3109s) Viewer question (read aloud): "Has reta hindered your cardio/ endurance or anyone you know?"
 
@@ -278,6 +324,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [54:11](https://www.youtube.com/watch?v=637NmaMJBBA&t=3251s) Steve, currently 12 weeks into my cycle,
 
+### Viewer question at [54:12](https://www.youtube.com/watch?v=637NmaMJBBA&t=3252s): Hey Steve, currently 12 weeks into my cycle scaled up to 500 mg of test. Been taking 12.5arimistane m/w/f per your eb...
+
 [54:12](https://www.youtube.com/watch?v=637NmaMJBBA&t=3252s) Viewer question (read aloud): "Hey Steve, currently 12 weeks into my cycle scaled up to 500 mg of test. Been taking 12.5arimistane m/w/f per your ebook. Just added in EQ at 400 mg. When should I drop the Al?"
 
 [54:13](https://www.youtube.com/watch?v=637NmaMJBBA&t=3253s) scaled up to 500 mg of test. There you go. And this guy gets it. Matt gets it. He's scaling up to 500 test after 12 weeks. Been taking 12.5 mg of Aromasin Monday, Wednesday, Friday as per your ebook. Just added in EQ at 400 mg. When should I drop the AI? You can drop it right now because Aromasin, Arimidex uh anastrozole and even letrozole have a reasonably long half-life. And EQ will start to work as soon as you inject it. Okay, it has a long half-life, too, so it needs to build up. But as the Aromasin tapers from your body, the EQ is coming up, so you you have a little bit of an overlap in the middle where estradiol might come up, but but it's it's not that narrow. It's easier to overshoot than uh so you keep the Aromasin in for two more weeks and EQ with a three-week half-life starts to finally peak. And then you take the Aromasin out, but it still needs to metabolize for another week or so, uh 5 days, and then and then and then you're overshooting and estradiol is low and you're like, [ __ ] [ __ ] [ __ ] why can't I [ __ ] Why am I not horny?
@@ -287,6 +335,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## What Goodies Would Steve Stock Up If Buying Today?
 
 [55:40](https://www.youtube.com/watch?v=637NmaMJBBA&t=3340s) >> What would you stock up if ordering
+
+### Viewer question at [55:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=3341s): What would you stock up if orderring aas today?
 
 [55:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=3341s) Viewer question (read aloud): "What would you stock up if orderring aas today?"
 
@@ -308,11 +358,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:01:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=3669s) What dosage of primo and anavar would
 
+### Viewer question at [1:01:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=3669s): What dosage of Primo or Anavar would you recommend to shred at the end of the first cycle for a recomp/cut with 250-3...
+
 [1:01:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=3669s) Viewer question (read aloud): "What dosage of Primo or Anavar would you recommend to shred at the end of the first cycle for a recomp/cut with 250-300 mg of test?"
 
 [1:01:10](https://www.youtube.com/watch?v=637NmaMJBBA&t=3670s) you recommend to strip at the end of the first cycle for a comp cut at 250 to 300 milligrams test? Uh same dose of primo and maybe 10 to 20 milligrams anavar on top for 6 weeks? 8 weeks? Or you could go to 200 test 200 primo and then and 10 milligrams anavar. Depends on how much results you got on your first cycle and what side effects you're facing. Right? It it's um it's very individual. So, maybe 250 test to 250 test plus 250 primo plus 70 to 140 milligrams anavar per week is too much of a jump. Maybe you need to lower the test, add in a little moderate amount of primo. So, 200 test 200 primo if you're at 300 test right now. That's an increase of 100 milligrams or 25% and if you look at the percentage, it's a significant amount of gains. Imagine getting 25% of your Bitcoin right now. You'd be very happy. And then add 10 milligrams anavar. So, again, it depends on uh how you feel, how you're doing, how your blood pressure, how everything is managed. And uh I I would do it moderately, man.
 
 [1:02:12](https://www.youtube.com/watch?v=637NmaMJBBA&t=3732s) 200 test 200 primo 10 milligrams anavar per day. And uh and it the test and primo's obviously per week, I guess. All right, don't do what I did. 250 milligrams test per day. That's that's next level [ __ ] That's next level [ __ ] And when I say 250, I actually mean 312 and a half because those bear ampules are overfilled and you get 1.25 milligrams or milliliters out of those amps, which means not 250 test, but 312 and a half.
+
+### Viewer question at [1:02:37](https://www.youtube.com/watch?v=637NmaMJBBA&t=3757s): I have bloods on Tuesday. I want to take 20mg oral Superdrol pwo today. Will it affect my panels? Currently running 3...
 
 [1:02:37](https://www.youtube.com/watch?v=637NmaMJBBA&t=3757s) Viewer question (read aloud): "I have bloods on Tuesday. I want to take 20mg oral Superdrol pwo today. Will it affect my panels? Currently running 350 Tren, 350mast,1.3 test, 900EQ"
 
@@ -324,6 +378,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:03:56](https://www.youtube.com/watch?v=637NmaMJBBA&t=3836s) >> Hey Steve, is mild water retention in
 
+### Viewer question at [1:03:57](https://www.youtube.com/watch?v=637NmaMJBBA&t=3837s): Hey Steve, is mild water rathention in the lower legs/ankle normal on cycle? 700 mg test, 560 Eq and 4 iu GH everythi...
+
 [1:03:57](https://www.youtube.com/watch?v=637NmaMJBBA&t=3837s) Viewer question (read aloud): "Hey Steve, is mild water rathention in the lower legs/ankle normal on cycle? 700 mg test, 560 Eq and 4 iu GH everything pinned daily. Ways to mitigate this?"
 
 [1:03:58](https://www.youtube.com/watch?v=637NmaMJBBA&t=3838s) the lower legs ankle normal on cycle? No. That's heart failure. 700 milligrams test 560 milligrams EQ 4 IU growth hormone every day pinned daily. Ways to mitigate that? Uh go check your heart. Dude, I'm on 600 test 600 EQ 150 men 150 deca up until last week and growth hormone at 10 IU's a couple times a week. I don't have any edema. But I have a good ejection fraction. So, please guys, don't don't neglect this. Yeah, I have a little bit of water retention in the ankles. It's not normal. I I know a guy that walked around with that for a year and then his ejection fraction was like 17% cuz he didn't want to get checked. So, go get checked, come off cycle and sort it out. Sort it out cuz it's not a good place to be in, man. And of course later on it could find you could find out that your ejection fraction is normal and maybe you have some lymphatic um backing up fluid that that doesn't allow you to drain all the fluids, but >> [sighs] >> you [gasps] know, it 700 test 560 EQ your estradiol shouldn't be too high for you. Your growth hormone shouldn't make you hold a lot of water unless you use riptropin or another one of these generic GH's with antidiuretic hormone in there that makes you hold about a lot of water. So, maybe switch GH brands, but um this cycle should not make you hold copious amounts of water in your lower extremities to the point you have edema.
@@ -334,6 +390,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:05:54](https://www.youtube.com/watch?v=637NmaMJBBA&t=3954s) Hey Steve, 23 years old natural 1.85
 
+### Viewer question at [1:05:55](https://www.youtube.com/watch?v=637NmaMJBBA&t=3955s): hey steve 23 years old. natural 1m85 got my blood work tested for the first time. T was at 433, low SHBG high free T ...
+
 [1:05:55](https://www.youtube.com/watch?v=637NmaMJBBA&t=3955s) Viewer question (read aloud): "hey steve 23 years old. natural 1m85 got my blood work tested for the first time. T was at 433, low SHBG high free T and my E2 is on the higher side. i take OTC sups. want to keep natural production. what is the best protocol"
 
 [1:05:57](https://www.youtube.com/watch?v=637NmaMJBBA&t=3957s) centimeters. Got my bloods work tested for the first time. Testosterone 433 low SHBG high free testosterone and my estradiol is on the higher side. I take over-the-counter supplements. Want to keep natural production. What is the best protocol? The best protocol for what? To increase your testosterone levels? Could be a million different things, man. Could be improving your sleep quality. Uh I'm surprised your SHBG is low. So, it maybe you eat about a lot of carbohydrates and not enough protein, right? That that could be a sign of or could cause SHBG to be low. Maybe your growth hormone is high and your insulin secretion is high. That's why SHBG is low. If your estradiol is on the higher side, I would expect expect your SHBG to be elevated or at least in the middle of the range binding up your testosterone. But if your insulin is high and your growth hormone is high, then it can suppress SHBG more than the estradiol can bring back up. Maybe you could take calcium d-glucarate and diindolylmethane to bring your estrogen down.
@@ -343,6 +401,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## You Get Reta’s Benefits As Soon As You Inject
 
 [1:08:01](https://www.youtube.com/watch?v=637NmaMJBBA&t=4081s) Hey Steve, I'm a hyper responder to the
+
+### Viewer question at [1:08:02](https://www.youtube.com/watch?v=637NmaMJBBA&t=4082s): Hey Steve, I’m a hyper responder to Tirz and getting results on <3mg p/w. Any point in trying Reta when the Glucagon ...
 
 [1:08:02](https://www.youtube.com/watch?v=637NmaMJBBA&t=4082s) Viewer question (read aloud): "Hey Steve, I’m a hyper responder to Tirz and getting results on <3mg p/w. Any point in trying Reta when the Glucagon benefits start at 4mg+? Also how do you cycle Tirz/Reta after reaching goal weight?"
 
@@ -360,6 +420,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:11:58](https://www.youtube.com/watch?v=637NmaMJBBA&t=4318s) Uh hey Steve, 31 years old, natural 15
 
+### Viewer question at [1:11:59](https://www.youtube.com/watch?v=637NmaMJBBA&t=4319s): Hey steve, 31 year old, natural 15yrs. Post-surgery on GHK-Cu, BPC, TB, 2 IU HGH. Once healed & training, wanting to ...
+
 [1:11:59](https://www.youtube.com/watch?v=637NmaMJBBA&t=4319s) Viewer question (read aloud): "Hey steve, 31 year old, natural 15yrs. Post-surgery on GHK-Cu, BPC, TB, 2 IU HGH. Once healed & training, wanting to start TRT: 25mg test daily + HCG 125IU M/W/F. Thoughts? Any point at this dosing?"
 
 [1:12:00](https://www.youtube.com/watch?v=637NmaMJBBA&t=4320s) years, post-surgery GHK-Cu, BPC-157, TB-500, 2 years growth hormone. Once healed and training, want to start TRT, 25 mg testosterone daily plus hCG 125 IU Monday to Friday. Thoughts? Any point at these dosages? I would start with 250 IU hCG Monday to Wednesday to Friday 4 weeks after 4 weeks after you started your TRT at 175 mg per week because you want to see where your levels are at at 175 mg TRT without the hCG and where your serum estradiol levels end up. Cuz then you can Like with testosterone, it takes a while for your estradiol to come up, but with hCG, it's basically within a week, estradiol is up. So, you need to assess where you respond to TRT. All right, you're 31 years old. Yeah, get some sperm frozen. All right, like four samples. That's enough for IVF. Just do that [ __ ] jerk off [ __ ] hard. >> [laughter] >> Steve told you to jerk off [ __ ] hard in the in the cup.
@@ -372,6 +434,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:14:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=4481s) My favorite came from docs taking
 
+### Viewer question at [1:14:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=4481s): my fear came from docs taking patients off if their levels go above 900ng/dl. Also my blood work/bp look good,do i st...
+
 [1:14:41](https://www.youtube.com/watch?v=637NmaMJBBA&t=4481s) Viewer question (read aloud): "my fear came from docs taking patients off if their levels go above 900ng/dl. Also my blood work/bp look good,do i still need to look into ancillaries"
 
 [1:14:42](https://www.youtube.com/watch?v=637NmaMJBBA&t=4482s) patients off if their levels go above 900 ng/dL. Also, my blood work and blood pressure were good. Do I still need to look into ancillaries? Uh I I can't remember for the life of me your previous question, but I would go with your overall health, not just a couple numbers on paper. So, if your overall health is good at 1,500 ng/dL on your total testosterone, so [ __ ] be it. Lipids fine, blood pressure range, uh no sleep apnea, no hair loss, no gyno, no acne, no nothing, just just rock hard boners and and uh you know, good positive aggression and motivation to work and train and and bang, what more do you want, man? The docs, they just follow the guidelines. They're scared to lose their medical license, especially in the US, man, cuz other patients are pieces of [ __ ] and they'll sue you for nothing. So, they have to adhere to the guidelines cuz they don't want to get sued and they don't want to lose their medical license. So, you got to take life into your own hands and say, "You know what? 900 is cute, but 1,500 is better until 1,500 is too much and then I go to a cute 900 ng/dL when I'm like 70 years old." You know? But for me, I would Dude, I would run it as high as possible for as long as I can.
@@ -383,6 +447,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## Thoughts On Combining ATP With A Stim Pre-Workout
 
 [1:17:45](https://www.youtube.com/watch?v=637NmaMJBBA&t=4665s) Is it okay to take ATP pre-workout being that one is vasod- You mean the pre-workout is a vasoconstrictor? Which ingredient is a vasoconstrictor? How do I counteract it?
+
+### Viewer question at [1:18:04](https://www.youtube.com/watch?v=637NmaMJBBA&t=4684s): Is it OK to take ATP wi/ preworkout being that one is vasodilator and the other works as a vasoconstrictor do they co...
 
 [1:18:04](https://www.youtube.com/watch?v=637NmaMJBBA&t=4684s) Viewer question (read aloud): "Is it OK to take ATP wi/ preworkout being that one is vasodilator and the other works as a vasoconstrictor do they counteract with one another"
 
@@ -397,6 +463,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 [1:20:53](https://www.youtube.com/watch?v=637NmaMJBBA&t=4853s) Yeah, I really appreciate it, bro. Thanks for bringing that [ __ ] over. And it's [snorts] good that you're part of the [ __ ] uh wallpaper here because we need bigger and more bigger dudes. All right, let's see.
 
 ## How To Reverse/Prevent LVH
+
+### Viewer question at [1:21:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=4865s): How to reverse/prevent left ventricular hypertrophy
 
 [1:21:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=4865s) Viewer question (read aloud): "How to reverse/prevent left ventricular hypertrophy"
 
@@ -414,11 +482,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:24:33](https://www.youtube.com/watch?v=637NmaMJBBA&t=5073s) If you had to come up with an
 
+### Viewer question at [1:24:33](https://www.youtube.com/watch?v=637NmaMJBBA&t=5073s): if you had to come up with an all inclusive looksmaxxing stack, what would you include? a lot of these influencers ha...
+
 [1:24:33](https://www.youtube.com/watch?v=637NmaMJBBA&t=5073s) Viewer question (read aloud): "if you had to come up with an all inclusive looksmaxxing stack, what would you include? a lot of these influencers have some of the worst stacks ive ever seen lol"
 
 [1:24:34](https://www.youtube.com/watch?v=637NmaMJBBA&t=5074s) all-exclusive look-maxing stack, what would you include? A lot of these influencers have some sort of the worst stacks I've ever seen. Um I did this TRT, man. Just TRT because everything makes you look water. Look at my face. I'm water as [ __ ] especially at the end of the day. So, look at the Benjamin Button stack on how to look youthful. Um I think it's just TRT, low-dose growth hormone before bed. It seems to retain the least amount of water during the day. Um maintaining your estrogen in the middle of the reference range with an aromatase inhibitor or Primo. Again, it would be 150 test, 150 Primo. That's it. 300 mg of steroids. After that, your face starts to mutate. Low-dose growth hormone, we're talking about 1.2 to 2 IUs per day. And then um GHK-Cu or TB-500, BBC-157 cycled in and out just to have a youthful appearance. Maybe some injectable glutathione, 600 mg subQ or intramuscularly three times a week depending on the concentration.
 
 [1:25:37](https://www.youtube.com/watch?v=637NmaMJBBA&t=5137s) And a little bit of mewing. No. I I don't need it cuz I lift [ __ ] heavy. >> [laughter] >> Uh I don't know, man. It's not really look at something I look into. It's It's uh look-maxing is for teenagers. I'm an adult and I'm married and I just don't give a [ __ ] Steve, your ears are pointy, okay? Whatever, bro. I'm not going to do surgery for you. I don't have to look at myself. Steve, your teeth are yellow. >> [snorts] >> I'm going to smoke more cigars, make them more yellow. >> [laughter] [gasps] >> Steve, I did Anadrol first time. Holy
+
+### Viewer question at [1:26:19](https://www.youtube.com/watch?v=637NmaMJBBA&t=5179s): Steve, I did Anadrol 1st time, holy crap, this is cheating at lifts. I recommend it.
 
 [1:26:19](https://www.youtube.com/watch?v=637NmaMJBBA&t=5179s) Viewer question (read aloud): "Steve, I did Anadrol 1st time, holy crap, this is cheating at lifts. I recommend it."
 
@@ -434,11 +506,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:27:30](https://www.youtube.com/watch?v=637NmaMJBBA&t=5250s) Uh I noticed you mentioned you're doing
 
+### Viewer question at [1:27:31](https://www.youtube.com/watch?v=637NmaMJBBA&t=5251s): I notice you mentioned you're doing a 3-day split. Do you think this is more effective as you age? Currently do PPL t...
+
 [1:27:31](https://www.youtube.com/watch?v=637NmaMJBBA&t=5251s) Viewer question (read aloud): "I notice you mentioned you're doing a 3-day split. Do you think this is more effective as you age? Currently do PPL twice over 8 days and it's wearing on me a bit. (400test, 400npp, 70tren ace)"
 
 [1:27:32](https://www.youtube.com/watch?v=637NmaMJBBA&t=5252s) a three-day uh split. Do you think this is more effective as you age? Currently doing push, pull, legs twice over 8 days and it's wearing on me a bit. 400 test, 400 MPP, 70 mg tren ace. Yeah, just this is what works right now. So, I do push, uh legs, rest, push, legs, and then back. I would do back once per week because it's OP. My back is huge. It's my rear delts, my lats, my adductors. Uh >> [laughter] >> Somewhere else, bro. Uh erectors. Uh my traps. I haven't even trained traps and they're [ __ ] popping. So, yeah, so I the only reason why I train back once is because it's OP. Today I did [ __ ] heavy [ __ ] man. Jesus Christ. And some kid fresh at the gym, 13 years old, 4 months in the gym, he's like, "What the [ __ ] bro?" I say, "Yeah, do this for 10 years, you'll get the same. Then then add in the steroids." >> [laughter] >> I didn't say that. I didn't say that.
 
 [1:28:37](https://www.youtube.com/watch?v=637NmaMJBBA&t=5317s) But, do this for 10 years. But, anyway, you got to train how you feels right. And after a while it doesn't feel right anymore, you got to change it. So, push, pull, legs might work now. And if you feel that it's wearing on you a bit, maybe go to a bro split for a while. Reduce the volume. Reduce the frequency. You know, you do a pull, rest, push or push, rest, pull, rest, legs, rest, and then you repeat. Maybe you need more rest days. I mean, it's wearing on me a bit, too. So, I'm I'm going to take out the gear and go down
+
+### Viewer question at [1:29:07](https://www.youtube.com/watch?v=637NmaMJBBA&t=5347s): Ju stsuper chatti be cause you are the man. Tried both DHT prop andd enth btw. Ove rhyoed imo fromm the twitter briga...
 
 [1:29:07](https://www.youtube.com/watch?v=637NmaMJBBA&t=5347s) Viewer question (read aloud): "Ju stsuper chatti be cause you are the man. Tried both DHT prop andd enth btw. Ove rhyoed imo fromm the twitter brigadee. Very tricky dosing too."
 
@@ -454,11 +530,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:30:20](https://www.youtube.com/watch?v=637NmaMJBBA&t=5420s) Do you ever want a David Jones prequel
 
+### Viewer question at [1:30:20](https://www.youtube.com/watch?v=637NmaMJBBA&t=5420s): You ever want a Davy Jones prequel from Pirates of Caribbean?
+
 [1:30:20](https://www.youtube.com/watch?v=637NmaMJBBA&t=5420s) Viewer question (read aloud): "You ever want a Davy Jones prequel from Pirates of Caribbean?"
 
 [1:30:22](https://www.youtube.com/watch?v=637NmaMJBBA&t=5422s) from Pirates of the Caribbean? Uh, I'm done with sequels and prequels and and reimaginings. Uh, I look at the Street Fighter trailer. Mortal Kombat 2, sure. That looks exciting, but Street Fighter it's like the worst casting ever, dude. All of them. Okay, maybe Blanca is one of the wrestlers I did uh, or that's Jason Momoa and Akuma is another wrestler that actually looks the same as Jason Momoa. That that that I can get behind, but everybody else don't even work out. What the [ __ ] dude? What the [ __ ] What's going on? So, no, I want to see some original content. And and it's all Marvel [ __ ] Like of course I'm going to watch Avatar 3, but uh, from the reviews I'm not too excited. So, might have to [ __ ] double dose and go there. Just have a good time.
 
 ## Thoughts On Magazine Dreams Movie
+
+### Viewer question at [1:31:18](https://www.youtube.com/watch?v=637NmaMJBBA&t=5478s): Movie Q&A, were you able to watch Magazine Dreams yet?
 
 [1:31:18](https://www.youtube.com/watch?v=637NmaMJBBA&t=5478s) Viewer question (read aloud): "Movie Q&A, were you able to watch Magazine Dreams yet?"
 
@@ -468,6 +548,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 ## Daily Injections Are Best
 
+### Viewer question at [1:33:06](https://www.youtube.com/watch?v=637NmaMJBBA&t=5586s): Thoughts on T Phenyl Prop? Using Prop for the last year, I like the dryness, but tired of ED injections. I tried Cyp/...
+
 [1:33:06](https://www.youtube.com/watch?v=637NmaMJBBA&t=5586s) Viewer question (read aloud): "Thoughts on T Phenyl Prop? Using Prop for the last year, I like the dryness, but tired of ED injections. I tried Cyp/E, both give moonface and start shrinking my nuts. Would TPP be any better?"
 
 [1:33:06](https://www.youtube.com/watch?v=637NmaMJBBA&t=5586s) Thoughts on test feel propionate using prop over the last couple years. I like the dryness, but tired of everyday injections. Tried cypionate and enanthate. Both giving me a moon face and steroid shrinking my nuts. Uh, did you inject once per week or did you keep injecting every single day? >> [gasps and sighs] >> Would testosterone feel propionate be any better? Um, I don't know, man. I think if you inject every single day it doesn't really matter. But if you want to get away from frequent injections, then Nebido is the way to go. So, if you want to inject twice per week and not get the moon face, then maybe Nebido. That has the longest half-life. Uh Yeah, but I think you would get less of a moon face with cypionate and enanthate or test feel propionate compared to test propionate if you keep doing the daily injection. Yo, Paul's here. What's up, bro? Man, I'm 20 minutes late. >> [laughter]
@@ -475,6 +557,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## How Much Tren To Take Before The Arnold?!
 
 [1:34:01](https://www.youtube.com/watch?v=637NmaMJBBA&t=5641s) >> How much tren should I take before the
+
+### Viewer question at [1:34:01](https://www.youtube.com/watch?v=637NmaMJBBA&t=5641s): How much tren should I take for the arnold? LOL
 
 [1:34:01](https://www.youtube.com/watch?v=637NmaMJBBA&t=5641s) Viewer question (read aloud): "How much tren should I take for the arnold? LOL"
 
@@ -486,11 +570,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:35:24](https://www.youtube.com/watch?v=637NmaMJBBA&t=5724s) Steve, you previously rated deca as
 
+### Viewer question at [1:35:25](https://www.youtube.com/watch?v=637NmaMJBBA&t=5725s): Hey Steve, since you previously rated Deca as D tier and said YK-11 not worth the irritability, what made you add the...
+
 [1:35:25](https://www.youtube.com/watch?v=637NmaMJBBA&t=5725s) Viewer question (read aloud): "Hey Steve, since you previously rated Deca as D tier and said YK-11 not worth the irritability, what made you add them to your cycle?"
 
 [1:35:26](https://www.youtube.com/watch?v=637NmaMJBBA&t=5726s) D-tier and said YK11 not worth the irritability. What made you add them to your cycle? Uh, YK11 made me irritable, really? I don't remember saying that. But yeah, deca as D-tier and I know that this time I wanted to add it in because I knew I wanted to get stronger again, PR my way until uh, you know, maximum uh capacity. And I'm just I'm disappointed. I'm going to be honest. I expected more from the deca. Um, and it's a reputable source, man. I mean I've seen the the the [ __ ] third-party test and it it's 300 mg for 1 ml. So, I I still have some other deca here that's 250 mg for 1 ml. It's homebrew from my guy that I really respected lived in Pattaya. Um, he he knew his [ __ ] and he had good sources. Uh, he hooked everybody up uh, especially during COVID when when everything was drying up. So, he was homebrewing for all of the bros. So, much appreciated B. You know who you are. Um, I still have some of his deca laying around. So, I could switch to that see if it's any better, but yeah, I was a little bit disappointed. I expected more um, more padding.
 
 [1:36:38](https://www.youtube.com/watch?v=637NmaMJBBA&t=5798s) Um, cuz my my joints were hurting a little bit before I added in the YK11 and now it really hurts. And the irritability I don't know. Last time I ran YK11 without the tren I was not irritable, but now it's Yeah, now now it's time to take the tren out. Cuz there's too much online shopping. And um You have any of my vices that's in the corner there. It's like a whole mountain of [ __ ] >> [laughter] >> But yeah, I think the irritability came from the tren not from the YK11 and and maybe being on low calories for a long time, you know. It sucks. I think the deca just make my face bloated, but not my joints. It's not cool. Like my face looks like 15% body fat. And then everything else looks like eight. You know, I'm like bro. Next time I'll just do a high test and Primo, man. [ __ ] it. I've got so much
+
+### Viewer question at [1:37:32](https://www.youtube.com/watch?v=637NmaMJBBA&t=5852s): Should test and primo be dose dependent on bodyweight during a cut? Or same mg fits for all heights and sizes? 170lbs...
 
 [1:37:32](https://www.youtube.com/watch?v=637NmaMJBBA&t=5852s) Viewer question (read aloud): "Should test and primo be dose dependent on bodyweight during a cut? Or same mg fits for all heights and sizes? 170lbs 15% bf"
 
@@ -502,6 +590,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:39:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=5949s) So tired. So, I I already know that I have to buy a proper humidor when I go to a new house. Um, but then we'll do the built-in with the wine cellar and the you know, the other the other stuff that needs to be temperature controlled. Um, and those are airtight, right? Until you open it up. So, we'll we'll do that in the future. But until then, the tupperdor is the way to go. >> [laughter] >> So, yeah, I got you Well, you'll see it when I see you at the gym. We'll see you over there in the evening. You'll you'll get some some Cubans. And once you smoke these, man, you can't have anything else. No, that's not true, but they're good, man. They're good. All right, I mean, you give me something, I give you something back, bro. That's how it goes. Especially if you give me 13 cigars, at least you get a couple back. Medically, left ventricular hypertrophy is treated with diuretics and they decrease load quickly. Also, reverse left ventricular hypertrophy faster than other meds. If you're worried about left ventricular hypertrophy, basically blood pressure control, blood glucose control with exercise. There you go. But that's end stage, man. That's end stage left ventricular hypertrophy where
 
+### Viewer question at [1:40:11](https://www.youtube.com/watch?v=637NmaMJBBA&t=6011s): whats injection fraction?
+
 [1:40:11](https://www.youtube.com/watch?v=637NmaMJBBA&t=6011s) Viewer question (read aloud): "whats injection fraction?"
 
 [1:40:12](https://www.youtube.com/watch?v=637NmaMJBBA&t=6012s) ejection fraction is is zero, basically. Like or like, you know, 17% when it should be like 60 plus. Um, or so, prevention is the best cure.
@@ -509,6 +599,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## HDL Is Hard To Control While On Cycle
 
 [1:40:28](https://www.youtube.com/watch?v=637NmaMJBBA&t=6028s) Joshua, I finally address question. Okay. I'm on 350 test, 610 50 mg Anadrol
+
+### Viewer question at [1:40:30](https://www.youtube.com/watch?v=637NmaMJBBA&t=6030s): I'm on 350 test, 600 tren, 50mg anadrol pwo, LDL went to 57 and HDL dropped from 50 to 22, is this expected with drol...
 
 [1:40:30](https://www.youtube.com/watch?v=637NmaMJBBA&t=6030s) Viewer question (read aloud): "I'm on 350 test, 600 tren, 50mg anadrol pwo, LDL went to 57 and HDL dropped from 50 to 22, is this expected with drol? Tren/test is controlled by hiit cardio, dfc, rosuvastatin and Ezetimibe"
 
@@ -528,6 +620,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 ## How To Control Water Gain From Cheat Meals
 
+### Viewer question at [1:45:08](https://www.youtube.com/watch?v=637NmaMJBBA&t=6308s): Post 2 day cheat / off plan I can gain 10-12lbs of water ( even at 7-8% bf). Best and fast way to drop it? Healthy or...
+
 [1:45:08](https://www.youtube.com/watch?v=637NmaMJBBA&t=6308s) Viewer question (read aloud): "Post 2 day cheat / off plan I can gain 10-12lbs of water ( even at 7-8% bf). Best and fast way to drop it? Healthy or not - diuretics? Dandelion root and sauna do not help much"
 
 [1:45:08](https://www.youtube.com/watch?v=637NmaMJBBA&t=6308s) Post two-day cheat off plan. I gained 10 to 12 lbs of water even at 78% body fat. Best and fastest way to drop it. Don't cheat like that that you gained so much. Healthy or not, diuretics tend to lean root and sauna do not help much. Yeah, so your sodium intake is not consistent during the week. And then when you do have a cheat meal and it's high sodium intake, then you gain 10 to 12 lbs of water because your aldosterone levels are sky high, retaining all the sodium, which causes you to retain all the water. So, what do you need to do? Increase your sodium intake, increase your water intake, and then the next time you have a cheat meal with high sodium, it doesn't phase you. And maybe take some unbuffered niacin before bed. All right, it has a diuretic effect, promotes sodium excretion, glucose excretion in excess, but you still need to have your sodium intake high during the week. Like I do, I eat like or I get like 5 to 6 to 7 g of sodium per day. And then when I have a cheat meal, it's probably 5 g. So, I actually dry out.
@@ -540,11 +634,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:47:35](https://www.youtube.com/watch?v=637NmaMJBBA&t=6455s) How to set an Anastrozole dosage on 250
 
+### Viewer question at [1:47:36](https://www.youtube.com/watch?v=637NmaMJBBA&t=6456s): how to set anastrozol dosage on test 750mg/w? Better to split every day 0,5mg or 1mg eod even the long halflife? when...
+
 [1:47:36](https://www.youtube.com/watch?v=637NmaMJBBA&t=6456s) Viewer question (read aloud): "how to set anastrozol dosage on test 750mg/w? Better to split every day 0,5mg or 1mg eod even the long halflife? when do bloodwork After two weeks or every week to set the dosage? thank you"
 
 [1:47:39](https://www.youtube.com/watch?v=637NmaMJBBA&t=6459s) mg testosterone per week? Better to split it every other day, half a milligram or 1 mg every other day or every day half a milligram, 1 mg every other day, even long half-life? When do blood work, after two weeks or every week to set the dosage? Uh, at 750 mg of test, after four weeks, four weeks is usually a good time. Check your serum estradiol levels. I would think that 1 mg Anastrozole or 25 mg Aromasin, which is what I prefer because it keeps your lipids more favorable. Cuz Anastrozole inhibits uh, cholesterol metabolism, raising total cholesterol and LDL levels in the body cuz it prevents the metabolism of cholesterol. >> [clears throat] >> Um, 1 mg of Anastrozole for every 250 mg testosterone is a good guideline for most people with average body fat levels. So, if you're 15% body fat, that's not average, that's high. From a bodybuilding perspective, you might need more Anastrozole. And if you're 6 to 8% body fat, that's below average, which is better than average from a cosmetic perspective, then you probably need less Anastrozole because again, your aromatization occurs in the body fat. So, if you're let's say 8 to 12% body fat, 1 mg Anastrozole or 25 mg Aromasin for every 250 mg testosterone. From my personal experience having coached many many many a bodybuilder that actually did the blood work, is a good guideline.
 
 [1:49:05](https://www.youtube.com/watch?v=637NmaMJBBA&t=6545s) All right, so if you're taking 750 milligrams of testosterone a week. 250 milligrams Monday, Wednesday, Friday, and you take 1 milligram anastrozole or Arimidex Monday, Wednesday, Friday, or 25 milligrams Aromasin exemestane Monday, Wednesday, Friday at the exact same time you inject your testosterone. That seems to work quite well. And then every 4 weeks you do blood work to
+
+### Viewer question at [1:49:27](https://www.youtube.com/watch?v=637NmaMJBBA&t=6567s): Yo Steve. On TRT, have everything dialed according to bloods, sleep my 9 hours, do fasted cardio but still feel slugg...
 
 [1:49:27](https://www.youtube.com/watch?v=637NmaMJBBA&t=6567s) Viewer question (read aloud): "Yo Steve. On TRT, have everything dialed according to bloods, sleep my 9 hours, do fasted cardio but still feel sluggish and tired when working out. What might I be missing? Thinking about mots-c"
 
@@ -560,11 +658,15 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:51:08](https://www.youtube.com/watch?v=637NmaMJBBA&t=6668s) Hey coach, I've been on 600 test 400
 
+### Viewer question at [1:51:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=6669s): hey coach, been on 600T 400P 150 NPP for 20 weeks. Want to close off the cycle by pulling out the NPP and adding Tren...
+
 [1:51:09](https://www.youtube.com/watch?v=637NmaMJBBA&t=6669s) Viewer question (read aloud): "hey coach, been on 600T 400P 150 NPP for 20 weeks. Want to close off the cycle by pulling out the NPP and adding Tren-A for the last 6 weeks. Fist timer with T. would 100mg be too much to start?"
 
 [1:51:11](https://www.youtube.com/watch?v=637NmaMJBBA&t=6671s) primo 150 NPP for last 20 weeks. Want to close off the cycle by pulling out the NPP and adding in tren ace for last 6 weeks. First time ever trenbolone. Would 100 milligrams be too much to start? No. No, I think that's fine. I think 150 milligrams is even fine. I 25 milligrams would be better but you have 6 weeks. You're already on a gram and a little bit. So it's it's 10% of your steroid intake. I would go from 150 NPP to 150 tren. Um 50 milligrams Monday, Wednesday, Friday. And then if you're scared to run 25 milligrams that seems to be side effect free but still gives you some good results. Not going to lie, test primo and Anavar such a good stack. I hate to say I told you so. But I told you so. Blue collar bodybuilding, what's up, bro? Hope all is well. Wanted to share
 
 ## Mitochondrial Support Stack & GLP-1s Keeps You Healthier
+
+### Viewer question at [1:52:10](https://www.youtube.com/watch?v=637NmaMJBBA&t=6730s): What's up big guy. hope all is well. Wanted to share got bloods back a week after show 11/5/25. Never been better, li...
 
 [1:52:10](https://www.youtube.com/watch?v=637NmaMJBBA&t=6730s) Viewer question (read aloud): "What's up big guy. hope all is well. Wanted to share got bloods back a week after show 11/5/25. Never been better, lipids, a1c, F Insulin all dead on point. Though iron and ferritin low from reta."
 
@@ -578,9 +680,13 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 
 [1:54:14](https://www.youtube.com/watch?v=637NmaMJBBA&t=6854s) How should I feel or physique change by
 
+### Viewer question at [1:54:15](https://www.youtube.com/watch?v=637NmaMJBBA&t=6855s): How should i feel or physique change by removing 150 tren, and adding 100mg masteron 30 winstrol 30 anavar? Compared??
+
 [1:54:15](https://www.youtube.com/watch?v=637NmaMJBBA&t=6855s) Viewer question (read aloud): "How should i feel or physique change by removing 150 tren, and adding 100mg masteron 30 winstrol 30 anavar? Compared??"
 
 [1:54:16](https://www.youtube.com/watch?v=637NmaMJBBA&t=6856s) removing 150 tren and adding 100 milligrams masteron 30 milligrams Anavar 30 milligrams Winstrol compared? How should I change? Well, you feel less angry. But the anger might take a couple weeks to go away. And since you're you know, you're 2 weeks out for your end of year uh one look good cycle, I think you'll still have a little bit of lingering irritation by the end of the year. Masteron can make you irritable also. Winstrol also. So feeling wise you'll probably feel the same. And physique wise you'll probably end up looking drier because Winstrol dries you out. So you look better and feel the same. How do I fix or reduce damage of a binge
+
+### Viewer question at [1:55:07](https://www.youtube.com/watch?v=637NmaMJBBA&t=6907s): Hiw to fix or reduce damage of a binge eat lunch?
 
 [1:55:07](https://www.youtube.com/watch?v=637NmaMJBBA&t=6907s) Viewer question (read aloud): "Hiw to fix or reduce damage of a binge eat lunch?"
 
@@ -589,6 +695,8 @@ url: https://www.youtube.com/watch?v=637NmaMJBBA
 ## How To Lower LDL While On 350mg Test & 500mg Primo
 
 [1:55:39](https://www.youtube.com/watch?v=637NmaMJBBA&t=6939s) I got an HDL an LDL of 163 HDL 28 and
+
+### Viewer question at [1:55:39](https://www.youtube.com/watch?v=637NmaMJBBA&t=6939s): I GOT 163 LDL 28 HDL AND CHOLESTEROL 210 HOW CAN I REDUCE MY LDL ? I RUN ON 350 TEST 500 PRIMO AND 40 VAR
 
 [1:55:39](https://www.youtube.com/watch?v=637NmaMJBBA&t=6939s) Viewer question (read aloud): "I GOT 163 LDL 28 HDL AND CHOLESTEROL 210 HOW CAN I REDUCE MY LDL ? I RUN ON 350 TEST 500 PRIMO AND 40 VAR"
 

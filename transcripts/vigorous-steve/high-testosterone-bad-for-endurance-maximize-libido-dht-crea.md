@@ -56,17 +56,23 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [25:02](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1502s) an increase in testosterone more than
 
+### Viewer question at [25:02](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1502s): Will a increase In test more than TRT doses affect card iovascular endurance.. oher than weight gain being an obvious...
+
 [25:02](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1502s) Viewer question (read aloud): "Will a increase In test more than TRT doses affect card iovascular endurance.. oher than weight gain being an obvious factor"
 
 [25:04](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1504s) trt dosages affect cardiovascular endurance other than weight gain being an obvious Factor yeah so that seems to be person dependent so some guys can uh go to 150 test and then get great endurance and then 200 tests lower their endurance I know guys that have great Endurance on 500 test and again it depends on like I'm on 500 test right now right my cardiovascular endurance is great even though I'm kilos and a 500 test um but maybe it's because I dropped like 20 PBS like from 120 to 110 so I'm breezing through the cardio sessions like it's nothing um because I used to do cardio at 120 kilos and even though I wasn't breezing through them I still did it and now that I'm doing cardio at 110 kilos 20 pounds lower 10 kilos lower it's super [ __ ] easy so 110 kilos 245 pounds is that or 252 what was it kg2 pounds 110 142 PBS yeah 120 was oh 120 was 265 I think the heaviest I was was 121 yeah 267 too heavy I don't know how people do it um so yeah for me cardiovascular urance right now is not an issue I can do 30 minutes on the elliptical no problem but yeah know and my serum levels are over 34547 one I think that's the upper tolerable uh detection limit here in Thailand at Bri laabs which I made a video about last Thursday live no less um so yeah increase the dose and see what happens to your endurance and again 7 30 minutes on the elliptical for me uh might be a laughing uh or a stock compared to people who do 10 hours of insurance on a bicycle riding uphill right so my my level of endurance as long as I can uh do all the dishes and clean the house and all that kind of stuff and make my love to my wife and not be out of breath then I'm okay then I'm okay that then I consider considered that my urance is so good hey turn uh asks recently added
 
 ## How To Raise Libido
 
+### Viewer question at [27:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1640s): Recently added mast to trt (30mg test C, 20mg mast P ED). Have completely lost libido and pumps in the gym but I feel...
+
 [27:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1640s) Viewer question (read aloud): "Recently added mast to trt (30mg test C, 20mg mast P ED). Have completely lost libido and pumps in the gym but I feel amazing mentally and have more energy. Anything i can do to get my libido back?"
 
 [27:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1640s) masteron to my TT protocol 30 milligram costone C9 20 milligrams Master appropriate every day have completely lost albo and pumps in the gym but I feel amazing mentally and have more energy anything I could do to get my libido back so we don't know what's causing your libido reduction so it's time to do some blood work um check your toal testosterone free testosterone check your estr levels maybe estone levels check your DHA DH sufate pregnanolone levels right check your SBG levels did your liido go down because your estrogen went down because Maston is acting as a reversely bonding aromatized inhibitor we don't know did um your Libo go down because you have more free testosterone more free DHD more free estrogens and more fre Maston because your sex Bing globin levels went down we don't know so before you make any changes before I can give you any advice do some blood work and report back next week or in two weeks when you have some blood work results and in the meantime watch the libido videos to uh get a firm grasp on why it's important to have normal hormone balance and uh maybe supplement with some GHA pregnant alone and uh oxytocin and SX because that's probably cheaper and faster fter to acquire than doing blood work but if that doesn't solve the problem then you still need to do blood work and report back to us or schedule a consultation which are man kind of expensive now it's from necessity otherwise I'm on the phone every [ __ ] day the whole day so in this case uh I would say it could be low estrogen could be low SBG but yeah bring your SBG up what are you going to do you're going to fast for a week when you could also increase your liido by eating more food right is your estrogen low what are we going to do add in atg add in DHEA maybe your estrogen is not low maybe Mone is not inhibiting your aromatized enzyme activity and your estrogen is just as high and then adding in the DH and atg is actually um increasing your EST levels and now your dick still doesn't work maybe masteron is not for you maybe you need primabol blood work bro blood work blood work what work and then we'll take it from there Chris asks methods on
 
 ## How To Increase Progesterone
+
+### Viewer question at [29:32](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1772s): Methods on increasing progesterone when levels are undectable and e2 is constantly elevated/dominant. Tried HCG and p...
 
 [29:32](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1772s) Viewer question (read aloud): "Methods on increasing progesterone when levels are undectable and e2 is constantly elevated/dominant. Tried HCG and pregnenolone."
 
@@ -76,11 +82,15 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [32:10](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1930s) using growth hormone every other day
 
+### Viewer question at [32:10](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1930s): Would using GH EOD opposed to ED be better for insulin sensitivity even if the total weekly dose was the same ?
+
 [32:10](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1930s) Viewer question (read aloud): "Would using GH EOD opposed to ED be better for insulin sensitivity even if the total weekly dose was the same ?"
 
 [32:12](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1932s) oppos to every day be better for insulin sensitivity even in the total week dose is the same so that's what I did um on the previous bulk I did 10 I Monday Thursday and 20 I uh Tuesday Friday so that's 60 I per week so that's a little bit less than I was taking before at 10 I per day so that's 70 IUS uh daily right and or weekly and but that was during a cutting phase and this was during the offseason now I didn't eat copious amounts of carbohydrates I ate copious amounts of healthy fats um and it was working very well for me I was again 120 kilos on a cycle that was pretty moderate so I I would consider that a success and the the you the size is still there I haven't trained in like four weeks look at this [ __ ] hard and dense muscle maturity uh so um so I didn't notice any changes in my insulin sensitivity but for you just give it a try maybe trade it uh post workout four to five times per week on uh workout days and then you take it before bed and then during the day you take your carbohydrates and you make sure that uh by the time you go to bed the the four meals was four meals no not four meals four hours ago is the last time you had carbohydrates so there's no interference with your insulin sensitivity when growth hormone is liberating these free form fatty acids which could inhibit insulin substrate one and make insulin not work right so uh otherwise you take a little bit of berberine with that to restore a little bit of insulin sensitivity so you take a little bit of berberine and growth hormone even though it can lower your igf1 pul so you win some you lose some um I know give it a try go by your hemoglobin A1c levels go by your fasting insulin levels go by your blood sugar blood glucose levels in between meals and make the adjustments but I've used growth hormone every day with high carbohydrates and didn't lose insulin sensitivity but that's just me next Super Chat told you it was going to be a Super Chat super flood and this is $20 man thank you very much on trt
 
 ## Rating A Viewers Mass Cycle
+
+### Viewer question at [34:18](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2058s): On TRT, 180lb, 10% BF, healthy. Rate first mass cycle: 30wks. T Cyp/Primo 360/150 mg/wk, GH 4 IU/d, L-Carn 500 mg/d, ...
 
 [34:18](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2058s) Viewer question (read aloud): "On TRT, 180lb, 10% BF, healthy. Rate first mass cycle: 30wks. T Cyp/Primo 360/150 mg/wk, GH 4 IU/d, L-Carn 500 mg/d, last 8 wks +Anav. 20 mg/d. 300g protein, up cals if gains stall. Train 5x/wk. On hand: Arom., Nebiv., Ezetim"
 
@@ -92,9 +102,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [37:52](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2272s) 150 milligrams trt uh going to use EQ as
 
+### Viewer question at [37:52](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2272s): On 150mg TRT, going to use EQ as AI on 600mg TestE. Due long half life, should I start it before increasing Test? Tes...
+
 [37:52](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2272s) Viewer question (read aloud): "On 150mg TRT, going to use EQ as AI on 600mg TestE. Due long half life, should I start it before increasing Test? Test E2 and liver every 30 days."
 
 [37:55](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2275s) an AI on 600 milligrams test e due to a long halflife should I started before increasing the test test uh estral liver or testing estral and liver enzymes every 30 days no I would just start it at the same time it's it's fine man it's um because most of these regardless of Ester most of these compounds will Peak within 24 to 48 hours so you inject your EQ let's say you do one to one ratio 600 test 600 EQ now it's a bit of a jump from 150 milligrams to RT so right watch step-by-step cycle design videos just like this guy before you he starts low and then I'm assuming he's building his way up right in Food Training intensity and also drugs and if you're going to use 600 test and 600 EQ [ __ ] man that's like that's like 10 times the amount almost so how about we do uh well it sucks but 200 Test 200q 300 Test 300 EQ personally if I was on trt I would start with 200 test and 200 EQ man make the most Gams as I can for 4 to8 weeks and then increase to 300 or maybe 350 yeah it's it's boring but why take more than you need you can only grow so fast right so unless you're a freak and unless you're like uh like like 240 lbs like I am and even then I wouldn't recommend it but yeah some guys uh you know like to make that big jump and in which case you probably get more side effects than are good for you so if I were you I would do 200 test 200 Primo or 200 test 200 200 EQ and then run that for as long as you can make gains that 300 350 each in the meantime you do blood work check your estra D level so you see if that ratio is still okay a one to one ratio you need to change that and then maybe after 6 months or nine months you end up at 600 testy 600 EQ so even me dude it took me before I I pushed over a gram I was on cycle for [ __ ] eight months yeah so that's a long time I hope you're that patient uh Brandon hey Steve I'm eating
+
+### Viewer question at [40:09](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2409s): Hi Steve, if I’m eating 180 g of salmon per day, is it fine if I add a little bit of high quality sardines on top and...
 
 [40:09](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2409s) Viewer question (read aloud): "Hi Steve, if I’m eating 180 g of salmon per day, is it fine if I add a little bit of high quality sardines on top and not need to worry about mercury?"
 
@@ -102,17 +116,23 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## How To Improve Insulin Sensitivity
 
+### Viewer question at [41:06](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2466s): insulin resistance: what are the dietary interventions, supplementation, then drug solutions? are you familiar with p...
+
 [41:06](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2466s) Viewer question (read aloud): "insulin resistance: what are the dietary interventions, supplementation, then drug solutions? are you familiar with pancragen?"
 
 [41:07](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2467s) the dietary interventions supplementation than drug solutions are you familiar with panen no I'm not familiar with that but with insulin resistance um in most cases you just need to lower your carbohydrate intake and do more activity it's a lifestyle thing man it's foods and activity it's that simple you don't need chromium you don't need burine you don't need magnesium you don't need Vitamin D3 you don't need any of that dietary interventions solve insulin resistance dude fast for three days fast I promise you fast for three days and you'll fix it take the growth rone out you'll fix it you don't need to do anything I was dude after I came back from New Zealand eating like a [ __ ] [ __ ] um I I'm sure I had insulin resistance I was bloated I was fat I look oxidized my my lower back and my abs and my chest was like full with water my face looked like a balloon and then I was sick of it right after I came back so I fasted for four days and then and then I did my blood work and it was fine you know my fastic insulin levels were 2.6 my hemoglobin A1c was five uh my blood glucose levels were 69 I discussed all of this last Thursday but I can't remember seeing your username Ryan it's okay I'm sure you were busy um that's what you're asking here but insulin resistance did all those fat people that you see at McDonald's other fat people did you see at uh at Disney World um not Universal Studios because the seats are smaller they don't like fat people they don't love fat people in those fast RS but a Disneyland they cater to everybody especially fat people in in you know those those trollies um yeah as them to fast for 3 to four days and they'll fix all their problems they'll be less noisy they'll they fart less they look less obnoxious maybe need to fast for like a lifetime um to really get over their their their hump of you know fat rolls over that they're rolling over their uh their little motorcycles but dude diet fixes insulin resistance supplementation if you fix your diet you don't need it drug solutions you don't need supplementation if you fix your diet and panren um it's probably a medication that people who don't want to fix diet need when they have insulin resistance and even with high dose growth hormone levels man intake high do growth hormone I've yet to see anybody experience insulin resistance if they live the lifestyle which is diet and exercise and it's it's too tiresome and too boring and yeah but why are you're taking all these drugs if you're not living a lifestyle anyway high
 
 ## How To Lower Cholesterol
 
+### Viewer question at [43:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2631s): high cholesterol: what are the dietary interventions, supplementation, then drug solutions? are you familiar with evo...
+
 [43:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2631s) Viewer question (read aloud): "high cholesterol: what are the dietary interventions, supplementation, then drug solutions? are you familiar with evolocumab? bonus: are the two issues related and do the solutions address both?"
 
 [43:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2631s) cholesterol same diet next but if you fix your diet and you're taking performance ancing drugs that are known to increase cholesterol than aamine and otherwise Statin uh AOL come up not I'm not familiar bonus two issues related than solution address M zip the addresses high cholesterol and otherwise stattin and then you can uh what is this uh pks9 inhibitor right if you have that much disposable income you can't fix dud I think I think you can hire a private Chef for the same money you spend on a pks9 enor let me let me check PK s nine Inhibitors cost yeah all right after 2018 the price for pks9 Inhibitors is $5,900 per year all right private chei one time a week 5850 divided by 52 can you find a private Chef for $100 over the weekend in Thailand you can maybe in front of uh you know Home Depot you can find one a lot of enchiladas you'll be eating um which is not a bad thing tasty [Music] um but yeah dude I think for the price of p n inhibiters you can just hire a private chef and then those you get all of your dietary interventions if you address them correctly so um lower your dietary cholesterol intake I don't want to hear anything about a dietary cholesterol doesn't affect serum cholesterol yes it [ __ ] does dude go eat 10 eggs per day and see your total cholesterol and your LDL levels increase um especially if you're on steroids it increases more so uh citus Bergamot is a supplementation ZM as the drug solutions and then later on stattin and uh well again those are originally inexpensive but diet is the best way man and the only reason why you would take a zenom is if your diet is perfect but you're also on copious amounts of anabolic energenic steroids which are known to increase cholesterol synthesis in the liver and uh well peripheral tissue and then your to cholesterol and LDL levels obviously go up in serum because you're not excreting it properly and as it might and maybe TKA orka can promote the excretion thereof so but yeah all those Statin I don't think it's necessary p is not him but an if evolu come up uh also not necessary CU you can do so much good with the first couple ones unless you're just you know a fat piece of [ __ ] and a lazy piece of [ __ ] which then you have no no uh business being on this YouTube channel life is dope all right ask a question let's see if there's again guys do me a solid and
 
 [46:54](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2814s) ask the question in the Super Chat at the same time so we can uh save some time I see life is dope 10 bucks uh oh Octavian no serums no hide and no no if you see somebody asked for a hide protocol just blocked him man I don't give a [ __ ] just block him you can who did it H all right life is dope I don't see your oh here it is was overlooking it uh let's see forgot to write my message in
+
+### Viewer question at [47:39](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2859s): lol I forgot to write my message on the first super chat, but how would I go about bout running a hgh only cycle and ...
 
 [47:39](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2859s) Viewer question (read aloud): "lol I forgot to write my message on the first super chat, but how would I go about bout running a hgh only cycle and ate there any benefits for body building?"
 
@@ -121,6 +141,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 ## Are There Benefits Of Natties Using HGH?
 
 [47:41](https://www.youtube.com/watch?v=obhAjOAIBZg&t=2861s) about running a growth on only cycle and are there any benefits for bodybuilding um no like I wouldn't take more than a replacement dose of growth hormone let's say up to two I maybe three I growth hormone per day and then all you can expect is bigger Neil growth better hair growth and and better skin growth so you fill in those wrinkles right all those wrinkles here and all the [ __ ] here will be filled in so you get a um an anti-aging P um effect from a cosmetic perspective you look a little bit younger unless you overdo it and then you look older again because now you're not only fill in those wrinkles you also fill this in and then everything start to sink and you it literally looks like your face is melting um not naming any names but I'm sure you can name some IB Pros off the top of my head where looks like their faces are melting because it takes so much growth hormone so there's a nice balance between growth hormone and anti-aging effect um from again from a cosmetic perspective but for bodybuilding um again age patients uh don't look very anabolic to me it might keep you leaner and I mean I I would love to see like one of those hardcore natural guys at their end of their genetic potential going growth hormone and then see how much of a difference they make and I have a couple candidates uh that I know but they just don't want to take it right like that that world championship bodybuilder the WB uh wnbf Champion that that lives here in Thailand uh Durk Emerick like dude if he goes on a little bit of growth forone You' definitely see some difference right he's already peeled he has good muscularity when he's peeled and he doesn't get too fat so if he goes on one or two I use a growth hormone if he ever wanted to uh if you decide to pull the plug on the NY card n he gives it in and he starts with growth on first he would make some changes because he's a hardcore bodybuilder he lives a lifestyle he knows exactly what to do and you could see immediate effects but for general population dude cosmetic that's it again life unless life is dope you're a hardcore bodybuilder right and you want to give it a try you know but most guys then would result to mk677 so they can eat more and you'll probably get more out of the food increase then you get out the growth on an ig1 increase again Octavian if you see SS or he protocols just [ __ ] bang them man it's uh this channel is for intelligent people and they intelligent people don't ask those kind of questions again this yk11 is approved that's the only serm that's now Vigor
+
+### Viewer question at [50:15](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3015s): Hey king!im 1.5 month after only clomid PCT.sperm count is bad(rapid test result)Should i go HCG till get wife pregna...
 
 [50:15](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3015s) Viewer question (read aloud): "Hey king!im 1.5 month after only clomid PCT.sperm count is bad(rapid test result)Should i go HCG till get wife pregnant or clomid for another 4 weeks?"
 
@@ -134,15 +156,21 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [53:03](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3183s) asks testosterone 350 masteron 200 intermuscular daily is said 350 test and 200 200 Mone intramuscularly daily or 350 Mill um test a Mone over the week but you're injecting that intramuscularly daily estal could be 134 PS per milliliter in in both context anyway I'm going to assume that's that's a weekly dose because if you're doing that daily well you better ask Chase irons man I I even I never injected that well did I no that's not true not that much in total but 350 time
 
+### Viewer question at [53:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3222s): Test 350, Mast 200. IM daily. Estradiol 134. Took 25mg of Arom every other day and 3000mg Cal-D Gluc daily for 5 week...
+
 [53:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3222s) Viewer question (read aloud): "Test 350, Mast 200. IM daily. Estradiol 134. Took 25mg of Arom every other day and 3000mg Cal-D Gluc daily for 5 weeks. Got re-tested. Estradiol is 47.5. Should I continue protocal or increase AROM?"
 
 [53:44](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3224s) 7 yeah I've I've taken that much I've taken two and a half grams of test per week uh but my estr doll was not that high took 25 milligrams aromin every other day and 3,000 milligram celum de glucarate daily for 5 weeks got retested estral is 47.5 should I continue protocol or increase aromin uh I'm thinking estr 47.5 is good on this testosterone the Mone ratio you could increase the Mone maybe and and uh get some sort of aromatized inhibiting effect again doesn't work for everybody but for some people it does U maybe uh um increase zinc look at them informance seis they all have aromatized or estal lowering effects they I have several videos about araus enzymes and lowering estr levels on my YouTube channel give those a watch to get some additional ideas uh maybe you need to supplement with 200 milligrams Dy methane I don't believe that that inhibits The entrogen receptors at all it's only been established in prostate cancer so why not run it right to prevent prostate cancer um let's see so so if you're taking 25 milligrams every other day of aromin feel free to maybe do aromin Monday Tuesday Thursday Friday four times per week instead of uh every other day three and a half times per week and then check your Ser Mr levels four weeks from now see where that's at but I have no problem with an EST di level of 47.5 actually I have currently no problem with an estra di level of 130 even though my guy know is giant as [ __ ] that was the goal oh yeah and don't forget to like that's that's what slick motion garage says 222 people watching and only 39
+
+### Viewer question at [55:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3328s): 222 people watching and only 39 likes??? COME ON!
 
 [55:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3328s) Viewer question (read aloud): "222 people watching and only 39 likes??? COME ON!"
 
 [55:30](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3330s) likes come on is it really that bad it's kind of like a meme right it's like a super flood of a chat of super floods or uh yeah but nobody likes it's too much effort they'd rather pay than like I don't get I don't get you guys man you'd rather pay than like you'd rather pay than use the search function oh man I still can't believe I have a job oh well multiple sclerosis asks Exogen DHD
 
 ## Exogenous DHT Shuts Down HPTA
+
+### Viewer question at [56:05](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3365s): Exogenous DHT will cause HPTA shutdown, right?
 
 [56:05](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3365s) Viewer question (read aloud): "Exogenous DHT will cause HPTA shutdown, right?"
 
@@ -154,9 +182,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Daily Micro Injections Vs. Injecting 3x A Week
 
+### Viewer question at [58:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3491s): Daily micro injections overall better than say 3x a week? When it comes to performance, aromatase, hematocrit levels etc
+
 [58:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3491s) Viewer question (read aloud): "Daily micro injections overall better than say 3x a week? When it comes to performance, aromatase, hematocrit levels etc"
 
 [58:12](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3492s) over better than say three times per week when it comes to Performance aromatized some adequate levels Etc yeah so from my personal experience daily subcutaneous micro ministrations give the best serum levels that's less possibility of testosterone converting into Ester or reducing F of reducing into Data testosterone so your levels are more stable and your serum estral and your DHD levels are lower in serum how much that translates into the peripheral tissue right I mean uh aromatized enzymes are active within the cells and then testosterone inter cells might gets aromatized or five reduced within scalp right in in [ __ ] tissue it gets reduced or converted into estrad and then some of that spills back over into the bloodstream so the bloodstream might not be 100% accurate rep presentation of what's going on within the cells right if testosterone aromatizes into estr and then it attaches to the estrogen receptor and starts transcribing DNA then obviously this Ile is now glucuronidated or sulfated and then marked for excretion now you can still detect it in serum to um in that uh way but in the cells there's also enzymes that break it down locally into small little fragments and the same thing happens with DHT some of that spills over into bloodstream some of that attaches to the endogen receptor gets glucuronated or Su fated or broken down and then you can uh when it gets broken down you can no longer detect it so in serum it's not 100% accurate of what's going on in the body but it's the best we have unless you want to do biopsies which I don't think it's the case so go by your serum levels go by how you feel go by your estrogen levels go by your DHT levels go by your arrit um and then and then take it from there right now I'm injecting three times per week intramuscularly because my shots like I'm injecting three 3 testosterone anite and 200 200 testosterone propriate mix in a sterile vile right I injected Monday wednes and Friday intramuscularly because I want to give you my subcutaneous space a little bit of a break after doing so many shots subq like [ __ ] man I was like literally pin cushion at the end of the the previous offseason cycle injecting copious amounts of various stuff so right now I'm just doing uh you know some massage therapy on my subcutaneous space going intramuscular and then preparing the subcutaneous space for nerve cycle uh and in the meantime just well cruising a 500 test yeah yeah man otherwise I'm going to shrink dude I'm going to be immobile but I'm doing it for anti sarcopenia purposes after surgery I have a valid medical reason yeah generally speaking daily subcontainers micro administrations are the best to keep serum EST and serum DHD level is in range which should be a you know decent representation of what's going on in uh the tissue and then pnea levels and and other markers which might be affected from steroids uh should be better managed as well when will the methyl blue cerebral
+
+### Viewer question at [1:01:08](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3668s): When will the methylene blue and Cerebrolysin deep dive come out.
 
 [1:01:08](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3668s) Viewer question (read aloud): "When will the methylene blue and Cerebrolysin deep dive come out."
 
@@ -170,15 +202,21 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [1:03:31](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3811s) Manos I heard you mention inomine and chopine in previous videos but not to moxin do you prefer it over to moxin I I never like any of these unless it's for p purposes so people ask me about enom or because I want to do monotherapy which I always advise against because both of these are linked to blood clots and most of the selective Esten receptor modulators are linked to blood clots so for post Cycle Therapy inomine and chopine work more to an effect than tamoxifen but tamoxifen also works especially when you take it in comination with a chopine because tamoxifen has a metabolite that acts as an aromatize inhibitor so not only do you lower Ester levels you also block it at the receptor site and now lower EST levels and estrogen blockate or estrogen receptor blockate means increased lutenizing hormone levels and increase follicle simulating normal levels and then your deck starts to work again not to the extent that it was on CY but close enough close enough right your balls will start working properly but your dick it's like driving at 30 kilometers per hour man um and to Marin we generally use again for bcycle therapy or to block the estrogen or yeah estrogen receptors in nipple but then relox ofine is better albe that the dose is three times higher so instead of 20 milligram stoopin or six six times higher instead of 10 milligram stoopin you use 60 Mig roox ofine instead of 20 milligrams toox ofine you use 120 milligrams roox ofine and at the highest dose roox ofine is a lot better to shrink to gyo but it will never go away and it will come back when you stop taking the roox ofine so why take it when it's linked to Lu Lots just do the surgery bro I videos in this too just type it in tamoxifen relox ofine and chopine monotherapy chopine monotherapy I have videos in this [ __ ] how to use ELC cartine injection
 
+### Viewer question at [1:05:22](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3922s): how to use l carnitine injection for weight loss
+
 [1:05:22](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3922s) Viewer question (read aloud): "how to use l carnitine injection for weight loss"
 
 [1:05:23](https://www.youtube.com/watch?v=obhAjOAIBZg&t=3923s) for weight loss uh well you lower your caloric intake first then you do your cardio H you charge your calories oh and then you take 500 milligrams injectable o carnitine subcutaneously or intramuscularly before activity and it could be fasted cardio or before the workout you're welcome Hey King stop stop coming up to my ego you know when he married that girl he came up to his ego you know which standup comedy that is oh ge's will know um I already answered this question so sorry for being late uh what do you think about the appable butter or drugs that influence col or use for entrepreneurs I have no idea I I uh I remember talking about um what is it called uh fluvoxamine and forti otine because they're both linked to increased uh brain Drive neurotropic Factor uh levels in the brain consistently I like fluvoxamine but some guys like forti oxidine um but I didn't look into theasin um so yeah I'm not sure I'm not sure could be if they increase acoc Coline levels uh but then again it's an S right so or well butterin is um sndd or SD oh I can't remember off the top of my head so yeah look into it but I would rather supplement with coling uh Alpha GPC than go on well Butrin um but yeah I know people on well Butrin that say that they feel absolutely amazing and they're high level high performing entrepreneurs making a b lot of cash um because that's why they can afford me for consultations let's see how many guys yeah four or five guys that I talk to regularly on will butter not dessel but will butter so there's something to say for it I'll ask them next time I talk with them uh looking good Steve all right thank you question below added 150 Ms b
 
 ## Thoughts On Water Retention From Bold Cyp
 
+### Viewer question at [1:07:50](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4070s): added 150mg bold Cyp this week in with my test/primo (which keeps me pretty dry) - went up 3kg+ - no e2 effects, BP s...
+
 [1:07:50](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4070s) Viewer question (read aloud): "added 150mg bold Cyp this week in with my test/primo (which keeps me pretty dry) - went up 3kg+ - no e2 effects, BP same, but seem watery. That Normal? No real changes Diet/exercise. Labs next week."
 
 [1:07:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4071s) on cp8 oh post injection ban in a bottle oh second guys it's getting freaking cold here uh let's see 150 Mig B cite this week in with testosterone Primo keeps me pretty dry went up three kilos no estrogen effects blood pressure same but seem watery is that normal no real changes the diet and exercise Labs next week so it could be the Balo Cate is producing synthetic car oil um and that is C you some inflammation and thus water retention um and if you have terrible post- injection pain then you definitely have an inflammatory response which will cause you to hold water so I would uh do blood work as ASAP check your high sensitivity C active protein levels in your estral and um and and that's basically it what could indicate water retention and if both are exactly the same and the water retention persists then you either uh need to suck it up and suffer through it or take the Balo sapate out and take more Primo right it's it's up to you oh Eric welcome to the Vigor crew bro Matthew Pete asks look at that thumbnail dude jacked jacked selfies in the mirror that's what you sent to the girls so I miss you you send this picture and they're all [ __ ] moist and [ __ ] I do that to my wife too but then I'm not wearing any pants bab look at
+
+### Viewer question at [1:09:25](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4165s): test/Primo/anavar is doing amazing for me at the minute giving me that arnold look. Is adding mast on top of primo wo...
 
 [1:09:25](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4165s) Viewer question (read aloud): "test/Primo/anavar is doing amazing for me at the minute giving me that arnold look. Is adding mast on top of primo worth doing for a dryer look to finish off my cut or should I use Winstrol?"
 
@@ -190,6 +228,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On RU58841 For Hair
 
+### Viewer question at [1:10:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4251s): Hey Steve! I know you don’t care about hair but: thoughts on running RU58841/ Clascoterone to combat hair loss from p...
+
 [1:10:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4251s) Viewer question (read aloud): "Hey Steve! I know you don’t care about hair but: thoughts on running RU58841/ Clascoterone to combat hair loss from primo/mast? Horror stories seem to be relateded to heart issues?"
 
 [1:10:51](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4251s) care about I know you don't care about hair but thoughts and running are you 5 8841 215 607 814 314 uh and and B lot of other numbers or a class clone to combat hair loss from Prima asone horror stories seem to be related to heart issues I never really researched the these compounds I know that Ru is a topical aogen receptor uh blocker so that might work when you're taking testosterone and uh Mone and primabol right this blocking the androgen receptor Supreme volum asone testosterone dat testosterone can't attach and cause hair loss and cloone I'm not really sure what that let me do a quick create acne is an androgen receptor inhibitor competes with DHT okay so that's also a topical Androgen blocker but it's an AC medication yeah you know with these kinds of things you just got to do some research and see if it's worth the risk like I'm I'm not sure if they're related to heart issues because I like Androgen receptor AR regulation I would not think about blocking the Androgen receptors and if that means losing my hair which I don't give a [ __ ] about clearly then uh yeah so be a dude [ __ ] it would save me so much so much trouble trimming this [ __ ] um but yeah uh if it's worth it to you do some research and then make make an assessment you know like Primo masteron um you know come with issues of their own so yeah a horror stories like the say but all these guys that really care about hair loss they don't really seem like healthy people to me and and guys that are really healthy that keep their stress levels low and their inflammation low and eat all the micronutrients it seems that their hair loss prevention strategy is significantly less than the guys that really abused their body with the unhealthy lifestyle right of course if you're highly stressed and you're smoking and drinking and taking recreational drugs and you're not eating right then your hair loss is going to be way worse and then they have no business taking Primo masteron but some of them still do and then they Mega those the ru and the cl cl Co terone or or topical cacol and minoxidil Etc right and they really abuse that [ __ ] and then it Go systemic and then they get hard issues which is it related to the ru or the minoxidil or the shitty lifestyle that gave them hair loss I I don't really know man I I see people improve their hairline just with a healthy diet yeah and then there's their their hair thickness and their complexion and all that stuff but you know again live the lifestyle and then look into these compounds but eventually you know if you like taking steroids you're going to get Boulder and otherwise you need to limit it to trt
@@ -197,6 +237,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 [1:13:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4436s) which it's kind of boring it's kind of boring yeah and another guy phox minoxidil yeah take it all at the same time yeah it's I don't know it comes with issues man watch the stero Genesis inhibitor video I've seen so many issues with libido all these guys that take Ru or or faside dast minoxidil Kono I had to care so much about their hair that they kill their dick or their cognition [ __ ] man I'd rather go both uh shiru shirudo systems I'll be doing
 
 ## How To Control Cholesterol On Cycle
+
+### Viewer question at [1:14:32](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4472s): I will be doing an 8 week cycle of test c (300mg/wk) and oxandrolone (25mg/day). To keep cholesterol levels in check,...
 
 [1:14:32](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4472s) Viewer question (read aloud): "I will be doing an 8 week cycle of test c (300mg/wk) and oxandrolone (25mg/day). To keep cholesterol levels in check, I have Tudca, Milk Thistle, and Citrus Bergamot. Would you take all 3 or just one?"
 
@@ -206,11 +248,15 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [1:16:01](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4561s) well looking lean bro yeah better than before right eating a little bit better according to the food outy test like dude I take it so serious that this is my screen like you can see like what I can and can't eat so before this was a picture of my ass or my back and now it's a picture of all the the food I can and can't eat actually they also gave me like a nice little card of all the foods I shouldn't be eating so you're always reminded so yeah I did the wonders for my face and my digestion like now my stomach is way better uh my question is about anidrol
 
+### Viewer question at [1:16:38](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4598s): Coach Steve, hope you are well, looking lean bro! My question is about Anadrol and it’s fat burning properties. What ...
+
 [1:16:38](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4598s) Viewer question (read aloud): "Coach Steve, hope you are well, looking lean bro! My question is about Anadrol and it’s fat burning properties. What is the mechanism behind it? The side effect of appetite loss? Many thanks"
 
 [1:16:39](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4599s) and its fat burning properties what's the mechanism behind it I have no idea um anecdotally people report that they get leaner on oxy alone there might be something in the scientific evidence but what the exact mechanism behind it is uh could be from the fat loss could be uh maybe from lipid Metabolism from the non- genomic effects increasing your sensory nervous system uh and strength out output uh I'm not sure so I'll I'll need to do um you know an oxy metalon Deep dive at one point but none I got to get out of the way first and before I do an nandrolone I got three and methling blow to do uh because those are Sellers and uh if you talk about oxandrolon then well let's be honest it's not going to increase affiliate sales and I'm still find cized yeah so don't complain um so I don't know I don't know but anecdotally I noticed it myself Anadrol just keeps me lean makes me Fuller uh I can always eat on Anadrol that's not a problem for me but yeah that's why we like it in contest prad because it adds fullness and it seems to speed up fat loss same with anavar right but that's mostly off the lower back we can speculate that is coming from glucocorticoid receptor inhibition just like trm bone but trone doesn't really seem to lower the app fat as much as the Anor does in the dose to pin comparison then again a lot of these things have not been studied so we have to go with the anecdotal reports but yeah anecdotally anol seems to promote fat loss how and if it how it compares to miric Rona [ __ ] yimai it's it's a Borat burner nonetheless uh Eric do you think SL p332
 
 ## Can SLU Help Mitigate Fatigue From Low Glycogen?
+
+### Viewer question at [1:18:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4700s): Do you think SLU-PP-332 has the potential to help mitigate glycogen-related fatigue on tirzepatide for endurance cardio?
 
 [1:18:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4700s) Viewer question (read aloud): "Do you think SLU-PP-332 has the potential to help mitigate glycogen-related fatigue on tirzepatide for endurance cardio?"
 
@@ -222,15 +268,21 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On 100 Fasting Glucose
 
+### Viewer question at [1:22:57](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4977s): Been running 4-6iu HGH for about a year, sometimes before fasted cardio sometimes before bed. CGM showing my FBG at ~...
+
 [1:22:57](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4977s) Viewer question (read aloud): "Been running 4-6iu HGH for about a year, sometimes before fasted cardio sometimes before bed. CGM showing my FBG at ~100. Is this ok? Also: thoughts on HCG year round?"
 
 [1:22:58](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4978s) growth hormone for about a year sometimes before fasted cardio sometimes before bed uh continuous glucose monitor shows My fasting blood glucose is around 100 is that okay no that's that's a little bit too high all thoughts on atg year round uh that's what I did up until recently where I decided to to [ __ ] pull the plug because I have enough semen samples um Frozen that I don't think see a reason to ever use it again unless my libido tanks but right now I'm liido so good that yeah well no comment it just do it's really good um so yeah in your case uh maybe it's time to lower the carbs a little bit maybe that's it you know I don't know how your diet is but diet has a big effect HG and trt year round to be clear yeah so maybe it's your diet man maybe you're growth hormone in take is too high for your diet maybe you just need to uh increase your activity levels has nothing to do with the growth hormon I got my wife pregnant after novedex only PCD sperm count with to 150 million oh that's nice took two years though yeah it took a long time it takes a long time to recover sometimes uh burnt I think I caught
+
+### Viewer question at [1:24:16](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5056s): I think I caught serotonin syndrome just right now, because I took tramadol for some serious anal pain and was taking...
 
 [1:24:16](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5056s) Viewer question (read aloud): "I think I caught serotonin syndrome just right now, because I took tramadol for some serious anal pain and was taking 5-htp the same time. I kinda like the feeling though, do I need to see a MD?"
 
 [1:24:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5057s) serotonin syndrome just right now to because I took traod dool for some serious anal pain I was taking five HTP at the same time kind of feel tough do I need to see MD I would write it out for a day and uh do some research before you take trol with 5 HTTP well anal pain um well let's not go there so I don't know if you feel uncomfortable go see a doctor but when I got serotonin syndrome I just wrote it out for a day that's just me weekly weekly what you guys talking amongst yourselves ah Thomas became a m a member smart kale o Australian detected not sure of which of these
 
 ## SLU Vs. GLP-1 Vs. M. Blue For Fat Loss
+
+### Viewer question at [1:25:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5111s): Oi! Not sure which of these three I should I’ll try to aid in fat losss. SLU, a GLP1 A, or MBlue. Which one or combo ...
 
 [1:25:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5111s) Viewer question (read aloud): "Oi! Not sure which of these three I should I’ll try to aid in fat losss. SLU, a GLP1 A, or MBlue. Which one or combo of these would be the most cost effective per daily dose? Thanks in advanced!"
 
@@ -244,11 +296,15 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [1:27:25](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5245s) 90 milligrams daily acut 10
 
+### Viewer question at [1:27:25](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5245s): 90mg daily accutane, TRT-250 nandrolone 140 GH 4iu taking supporting supps fish oil magnesium etc. Any tips to reduce...
+
 [1:27:25](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5245s) Viewer question (read aloud): "90mg daily accutane, TRT-250 nandrolone 140 GH 4iu taking supporting supps fish oil magnesium etc. Any tips to reduce neck stiffness / recovry issues"
 
 [1:27:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5248s) Jesus trt 250 milligrams no no 250 milligrams testosterone 140 milligrams none 40 use growth hormone taking supporting supplements fishal magnesium any tips to reduce neck stiffness recovery issues [ __ ] man I no I don't know this must acutane I have no idea what could potentially help with the drying out effect of this much cutane besides fish oil maybe pentos on gold injections maybe joints of Steel formula from Ma and check my website um boswellia extract might help to lower the inflammation but then again it's it has a drying out effect so um no I don't know and this one's Accutane I think you just have to suffer through it I never took that much Accutane in my life um I don't know man sorry I don't know I hope you can find the solution sounds rough thoughts on micro doing Accutane
 
 ## Thoughts On Micro Dosing Accutane
+
+### Viewer question at [1:28:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5322s): Thoughts on microdosing accutane? (2.5-5mg daily or even less?)
 
 [1:28:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5322s) Viewer question (read aloud): "Thoughts on microdosing accutane? (2.5-5mg daily or even less?)"
 
@@ -256,9 +312,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On Elevated Creatinine
 
+### Viewer question at [1:30:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5456s): creatinine (1.4) on regular basis, but very good cystatin C (0.68mg/l) on 3 separate occasions - is kidney disease wi...
+
 [1:30:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5456s) Viewer question (read aloud): "creatinine (1.4) on regular basis, but very good cystatin C (0.68mg/l) on 3 separate occasions - is kidney disease with normal cystatin C common?"
 
 [1:30:57](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5457s) basis with very good syst Aden C uh on three separate occasions is kidne disease or normal syy common no so it's not ceny it means if that you have abnormal amounts of muscle mass um which is normal in bodybuilding right bodybuilding is all about having abnormal amounts of muscle mass so we can stand out so creatinine of 1.4 1.5 1.6 1.8 is common and once you start creeping up to two then it's a problem even if ceny is in range so I've had it up to 1.96 when I was training high volume and was heavy body weight and taking like 10 grams of creatin per day and eating like 400 grams of protein yeah you have a lot of protein metabolism within skeletal muscle and that's your coratin levels go up even if you're fully hydrated even if your kidney function is absolutely normal um as long as your zist and sea levels are in range and your cins below let's at 1.9 two depending on your body weight levels your your muscle mass your training intensity and your um your creatine usage then I think you're okay and if you're really worried to do um a 24-hour urine collection test and a ultrasound in your kidney just to make sure that everything is going well I do that every year even though my creatinin is not so significantly elevated that my syy levels are within normal ranges still good to kind of check your organs with imaging uh absin shway
+
+### Viewer question at [1:32:24](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5544s): Little bro wants to get excess skin after losing 180lbs and pubertal gyno removed, can you suggest any great places y...
 
 [1:32:24](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5544s) Viewer question (read aloud): "Little bro wants to get excess skin after losing 180lbs and pubertal gyno removed, can you suggest any great places you would go to in Thailand?"
 
@@ -266,19 +326,27 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## What Can Replace Ezetimibe?
 
+### Viewer question at [1:34:00](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5640s): Ezetimibe(taken in the morning) is ruining my night sleep. Turning and tossing all night, body feels restless. Ever h...
+
 [1:34:00](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5640s) Viewer question (read aloud): "Ezetimibe(taken in the morning) is ruining my night sleep. Turning and tossing all night, body feels restless. Ever had this or know of a workaround? stopping it makes it go away, but I like my 70 ldl"
 
 [1:34:01](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5641s) the morning is ruining my night's sleep tossing and turning all night body feels Restless even if ever had this or no of a work around no never heard about that and so I don't know work around unless you stop taking it stopping it makes it go away uh but I like my 70 HD LDL look do red yeast rice instead it inhibits one of the steps of cholesterol s is quite potent so Thorn colos 900s containing 900 migs Rus rice should bring your LDL levels to 70 also so maybe you can get a good effect but then again you know r r or Statin in general come with their own side effects right the joint pain stiffness uh muscle soreness uh reduce recovery so there's no free rides but if you can't sleep on a zom for whatever reason then uh then then yeah switches on else would you take aspirin during PCT
 
 ## How To Prevent Blood Clots
 
+### Viewer question at [1:34:57](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5697s): Would you take aspirin during PCT to prevent clots?
+
 [1:34:57](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5697s) Viewer question (read aloud): "Would you take aspirin during PCT to prevent clots?"
 
 [1:34:59](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5699s) to prevent blood clots no I think fish all and vitamin E are sufficient enough to help with and vitamin K helps with normal blood clotting so again if you're taking clet and tomox ofin for four weeks I don't see a reason to take aspirin and again if you live the lifestyle and you're healthy and and you don't have any cardiovascular disease then the blood cloths should be not much of an issue unless you had you know VX you were vaxed like four times and you had c19 in the past then I'd be worried but you can check your clonic factors that's what I did last week uh just to make sure that I'm uh suitable for surgery right you want your claing factors to be normal when you're going for surgery because you don't want any abnormal bleeding to the point you bleed out that's why we stop fishal and vitamin E well before we do any kinds of surgery because that thins the blood so instead of taking aspirin I would recommend any everybody to take fish and vitamin E Instead at you know sufficient dosages and then you don't have to worry about aspirin burning holes in your stomach because it lowers your stomach lining and we have enough digestive issues as we have them or as as they are Johnny cook 200 milligrams from cenite 2.5 milligrams of jepit uh per week I'm assuming 250 to 750 Mig aod per
 
+### Viewer question at [1:36:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5777s): 200 test-c, 2.5 terzep, 250-750 mg AOD, 1-2 mg Tesamorelin, 250 mg Tesofensine, 25-50 mg Anavar on lift days. Thought...
+
 [1:36:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5777s) Viewer question (read aloud): "200 test-c, 2.5 terzep, 250-750 mg AOD, 1-2 mg Tesamorelin, 250 mg Tesofensine, 25-50 mg Anavar on lift days. Thoughts on adding SLU for added fat lost and muscle building?"
 
 [1:36:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5780s) serving 1.2 1 to2 milligram morelan and telin wow 250 milligram tesen oh Tes fenin sorry and Tess marelin for growth hormone 25 to 50 milligrams anavar in LIF days uh although I thought about adding SLU for added fat loss and muscle building yeah go for it man you're already on a heavy stock so why the [ __ ] not you don't need my permission uh I would take more tests for that man of Anor though and I would rather just stick with their zeide instead of teso fencing cuz uh withdraw my be brutal and Tes morelan is useless switch to growth hormone uh in this stack cuz you know it's more effective and probably cheaper than 2 milligrams um I'm doing a test in Primo cycle I want to start with orals but I don't know which one to take I'm stuck between Anadrol and the anabal only care is spear I'm doing a test and Primo cycle I want to add in here I don't know what that means uh I would I would start with trinal dude or anavar not Anadrol the anabal it's probably too much bloating for you theal converts a lot into estr or methyl estr so you get side effects anadol can cause side effects so trinal anavar
+
+### Viewer question at [1:37:45](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5865s): Your thoughts on stacking anavar at 60mg a day along with winstrol at 50mg a day for 12 weeks?
 
 [1:37:45](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5865s) Viewer question (read aloud): "Your thoughts on stacking anavar at 60mg a day along with winstrol at 50mg a day for 12 weeks?"
 
@@ -288,21 +356,31 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [1:38:12](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5892s) you because if you have a test based you wouldn't think about running 50 milligrams winw on 60 mams an of per day you can run 25 milligrams anavar per day and 50 milligrams of wind if you if you need 60 milligrams of anavar your anavar is not real in the store 25 milligrams anavar most people would be completely locked up just like tight as [ __ ] and then especially with the wind Str 50 milligrams you'd be like a rock dude you have you can do a Bice C like this that's how tight you are just press like this that's how tight you are so if you have a testosterone base I would run 25 mams on for first run that for 12 weeks and then the last six weeks you add in no testosterone base yeah so eight weeks of Anar solo and then the last four weeks you add in the wind stroll because 12 weeks on wind stroll [ __ ] dude you'll be broken apart your lipids will be destroyed they'll be broken apart and before your joint pain and connective tissue pain is normal again we're we're another 12 weeks ahead so I would limit the end of the wind stroll to four weeks 6 weeks at maximum and run anavar a much low much lower dose and I don't believe that you have a testosterone Bas judging by your question do you think SSRI is only for
 
+### Viewer question at [1:39:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5973s): Do you think Ssri is only for people on cycle or nattys?
+
 [1:39:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5973s) Viewer question (read aloud): "Do you think Ssri is only for people on cycle or nattys?"
 
 [1:39:34](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5974s) people on cycle or nattis uh I think for people who need it man who need mood management I need mood management so that's why I'm an SSRI and I know you you guys think that a M's in a good mood but it's not not the case as you guys might remember from my trone sandwich experience [ __ ] um it's it's a personal choice so I would do a lot of research and then decide I mean you shouldn't be incentivized to take an SSRI from videos that I did that's the wrong way to approach it how do you feel new um I feel cognitively enhanced better like of the word so I can focus better I can retain knowledge better and that's why I take new pep when I'm um either record Rec in or when I'm preparing for videos Jesse thanks for lives B big
+
+### Viewer question at [1:40:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6028s): Thanks for the lives big uncle Steve
 
 [1:40:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6028s) Viewer question (read aloud): "Thanks for the lives big uncle Steve"
 
 [1:40:30](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6030s) Uncle Steve oh finally a donation without a question my pleasure Jesse you're welcome great it's okay man it's okay nobody likes liking is like voting for uh the blue uh party actually liking is just voting in general you cast your vote by liking or disliking right if you if you don't like this [ __ ] if you don't like my sexual remarks then just dislike it that's at least that's interaction as well Octavian I can confirm for mon oxville made my borderline hypogonadal yeah it's a horrible compound man topical detest is good yeah I agree it's better than uh but even then you know it's it's before you try tropical D dast there's so much other stuff you can look into how to fix body disassociation deor
 
+### Viewer question at [1:41:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6093s): How to fix body disassociation/derealization syndrome. I’m worried about my friend.
+
 [1:41:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6093s) Viewer question (read aloud): "How to fix body disassociation/derealization syndrome. I’m worried about my friend."
 
 [1:41:35](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6095s) realization syndrome I'm worried about my friend I have no idea and the questions you ask sometimes are kind of weird I hate to say it man Brad but the questions you ask sometimes are I don't know I'm a little bit worried and I had another guy that started asking weirder and weirder questions and I had to block Fu him because it's not what the Vigor scw is about so these kinds of questions it's it's not the place for the Vigor Q&A I think that's the psychiatrist the SSRI questions and the body disassociation deor realization um questions those are meant for psychiatrists not for the Vigor crew there's only there's only so much you can do bro like I literally had to ban under members because their questions were getting out of control and just I'm like this is this is not the time place and it's better to save time for other members who um not I'm not a [ __ ] charity um about a hair loss I've had
 
+### Viewer question at [1:42:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6153s): sive hairloss. I had serious stress related issues during covid that made me lose a lot of hair, so they put me on it...
+
 [1:42:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6153s) Viewer question (read aloud): "sive hairloss. I had serious stress related issues during covid that made me lose a lot of hair, so they put me on it. Cant really recommend it though unless you have it yourself"
 
 [1:42:33](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6153s) serious stress related issues during Co that made me lose a lot of hair so they put me on it can really recommend it um though unless you have to try it yourself and that was what minoxidil or topical detas ride yeah so instead of addressing the root cause of making you less stress they prescribe your medication well that's how it is uh should you train with hemorrhoids
+
+### Viewer question at [1:43:03](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6183s): Should U train with hemorrhoids or take time off
 
 [1:43:03](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6183s) Viewer question (read aloud): "Should U train with hemorrhoids or take time off"
 
@@ -310,13 +388,19 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On 20mg SLU-PP-332
 
+### Viewer question at [1:44:12](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6252s): Could you explain the differences between 250 mcg and 20 mg of SLU-PP in terms of efficacy, and potential impact on E2?
+
 [1:44:12](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6252s) Viewer question (read aloud): "Could you explain the differences between 250 mcg and 20 mg of SLU-PP in terms of efficacy, and potential impact on E2?"
 
 [1:44:12](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6252s) difference between 250 micrograms and 20 milligrams of so pp3 I've never taken 20 milligrams of SL PP 332 I've taken up to 1 milligram of slou and I've seen no effects on estrad um again it interacts with the estrogen related receptor that has no estrogenic effects I discussed this in the SLU P 332 Deep dive I looked into the estrogen related receptor quite extensively and anything that interacts with it does not seem to potentiate estrogenic effects it just a poor naming convention basically and if it's called the Androgen related receptor you you guys would be like Yay anabolic as [ __ ] uh but in reality that's also not the case it's just related to it's it's like a not a decoy but a par estrogen is a parent receptor um of the estrogen related receptor so call it the mitochondrial receptor and then it makes more sense yeah 20 milligrams ofu PP 332 uh if you go with the human equivalent dose you would have to inject like a th000 milligrams or something uh from the animal studies where SLU was shown to have all of these benefits uh just like with yk1 in cases of sepsis but you guys can watch that next week um yeah so in this case I would say that 250 micr S PP 332 once twice three times four times per day is more than enough and all the guys that want to experiment with that much SL PP 332 because I found a source online that provides the draws be my guest dude be my guest let me know how it was and I know guys to take like one gram of soome gc1 they swear by it so they basically spend like $30 per day on so to roome and uh everybody's different dude they're also burning up stem cell down regulation uh on trt
 
+### Viewer question at [1:46:18](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6378s): StemCell downregulatio on TRT via what mechanism?
+
 [1:46:18](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6378s) Viewer question (read aloud): "StemCell downregulatio on TRT via what mechanism?"
 
 [1:46:19](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6379s) Via what mechanism uh I don't know I don't know you're stumping me I have no idea like Brad what what kind of questions are these dude what kind of questions are these the [ __ ] is this nonsense uh fire L should I store my o
+
+### Viewer question at [1:46:45](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6405s): should I store my oils long term in the fridge and room temp once I start using the vial?
 
 [1:46:45](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6405s) Viewer question (read aloud): "should I store my oils long term in the fridge and room temp once I start using the vial?"
 
@@ -328,13 +412,19 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Can SLU Affect A Woman’s Cycle?
 
+### Viewer question at [1:49:01](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6541s): Could you share your thoughts on how slutty puppy 332 might affect the menstrual cycle regarding hormone balance or e...
+
 [1:49:01](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6541s) Viewer question (read aloud): "Could you share your thoughts on how slutty puppy 332 might affect the menstrual cycle regarding hormone balance or estrogen changes"
 
 [1:49:02](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6542s) your thoughts on how [ __ ] budy [ __ ] budy nice uh might affect the menstrual cycle regarding hormone balance or estrogen changes uh as far as I know uh it doesn't so I think it's female safe and again it doesn't change your estrogen levels from what I've seen and from all the women that had talk to that take PP 332 doesn't change the menstrual cycle but if you take p332 while you're dieting and you reach a sub 10 11 12% body fat and yes your mental cycle might be delayed or um absolved um going away until you reintroduce the food uh and gain a little bit of body fat this is part of dieting if you're a woman you know menstrual cycle um reproduction is a very caloric intensive process and if you're chronically dieting then yeah your fertility goes down and you lose your menstrual cycle has nothing to do with [ __ ] Buddy now let's see if D Brad ask a normal question speaking of Ronnie Coleman I know Chris aeto has this guy eating 500 grams plus of protein per day would this make sense yeah some guys need that you know but they eat 500 grams plus protein in their carbohydrate intake is zero and their fat intake is zero so they have protein and veggies and I eat maybe 2,000 calories per day you know it happens it happens sucks but that's sometimes what you need to get shredded you know three grams of gear on top of that to prevent muscle loss and then um that's it saw your tendon healing video any key
 
+### Viewer question at [1:50:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6636s): Saw your tendon healing vid. Any key updates since then on which compounds to help with the healing process effectively?
+
 [1:50:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6636s) Viewer question (read aloud): "Saw your tendon healing vid. Any key updates since then on which compounds to help with the healing process effectively?"
 
 [1:50:38](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6638s) updates since then on which compounds they help with the healing process effectively no I thought about I I watched it recently and I thought about redoing the the tendon protocol because you guys are always asking about it and then I watch the video I'm like no this is still valid there's nothing there that needs to be changed you know nothing has changed regarding collagen synthesis and healing peptides so growth hormone adavar BBC 57 tb500 uh ghk copper oral micronal Prestone and collagen supplements vitamin c honic acid it's the exact same thing man so watch it again and that is it uh best injection frequency of first
+
+### Viewer question at [1:51:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6687s): Best injection frequency for first cycle test only
 
 [1:51:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6687s) Viewer question (read aloud): "Best injection frequency for first cycle test only"
 
@@ -342,11 +432,15 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## How To Watch Cartoon Movies
 
+### Viewer question at [1:51:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6716s): Steve... help me man. How do I escape this? My girls making me watch disney movies with her in marathon because I sho...
+
 [1:51:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6716s) Viewer question (read aloud): "Steve... help me man. How do I escape this? My girls making me watch disney movies with her in marathon because I showed her my childhood ww2 movies now shes showing me HERS, HELPPPP!!!!!!!!!"
 
 [1:51:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6716s) escape this my girl is making me watch Disney movies with her in Marathon because I showed her my childhood World War II movies now she's showing me hers help help uh MOS LSD it makes everything more tolerable yeah or mushrooms whatever you prefer trust me dude if you start watch well yeah what a couple Disney movies are actually very enjoyable and a micro dose uh uh or you do a nut you you dose in that was not a micro dose dose right where you're in the beginning like the first two hours you're like ah this is chill and then after four hours like [ __ ] [ __ ] [ __ ] now I gotta remain my composure you're like grasping something like I I got to keep my composure for the next six hours um that kind of do and then you go watch these movies that allegedly happened to me when I was watching the Super Mario uh uh movie you're like oh [ __ ] oh [ __ ] how am I G to get down to the bathroom good memories uh so yeah yeah I had to say it but you got to drug up man Aaron GD you're 22 you're right 22 that started experimenting with with psychedelics when I was with 17 yeah 16 17 and I turned out all right I'm sure this dead giveaway but I turned out all right I did okay for myself I got married I got kids under the way I got cats I love them I got a house you know I think I got the respect for most people not all but for most people so um you got to find a way to enjoy it man maybe smoke a little bit of weed before you go there and just sit there like and otherwise um you know slowly switch to um you know some other cartoons like Titan AE or um you know pop and ghost in the show so this is Disney from Japan actually studio gibl is like Disney from Japan the what was it called the blah blah and the Heron gbly all the boy and the Heron that one was [ __ ] that's like the worst gibli movie I've ever seen uh but if you want to watch NOA or some of the older ones yeah those are great was really really disappointed in the boy and the Heron that was not good P was better and that's not even froma Miyazaki um is that the director or the [ __ ]
 
 [1:54:59](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6899s) uh composer [ __ ] it's been a while yeah how Miyazaki is the director 84 yeah Spirited Away my to my neighbor tooro that one is [ __ ] great house moving castle princess monoke Pono Kiki's Delivery Service H laputa great NAA great The Wind Rises haven't seen that one I have seen that one yeah but the boy in the Hearn oh lupon II the castle of kostro man if you like James Bonds you'll love that one it's from 1979 it's a great movie man I should watch all of these W that's not a micro do does bris is M okay yeah the boy in Heron was a major disappointment I didn't like it at all I still watched it but it's yeah even Pono was better that movie is silly anyway um just popping Ghost in the Shell man the the first one nice and violent Matthew uh what about Anadrol at 8% body fat to finish off the diet and go into reverse dieting yeah I'm not against it man I have my eyes on super Dr also I would do and super Dr makes you feel a little bit toxic and I watch until you decide look into the yk11 deep dive
+
+### Viewer question at [1:56:37](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6997s): When is yk11 deep dive
 
 [1:56:37](https://www.youtube.com/watch?v=obhAjOAIBZg&t=6997s) Viewer question (read aloud): "When is yk11 deep dive"
 
@@ -354,9 +448,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## How Steve Would Structure A Cycle
 
+### Viewer question at [1:57:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7040s): Im on 400 test 350 npp and 650 primo. Would you addd low dosesage of deca and masteron alongside this or justst up th...
+
 [1:57:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7040s) Viewer question (read aloud): "Im on 400 test 350 npp and 650 primo. Would you addd low dosesage of deca and masteron alongside this or justst up the dosages. Any benifits ?"
 
 [1:57:21](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7041s) 300 MPP 650 Primo would you add low dosages of deca or Master on alongside this are just up the dosage any benefits it depends on your preference and well Deca is kind of the same thing as MPP right it's a different Esther um so it depends on what you want man do you want more joint padding up the NPP you want more dryness up the Primo or add in the mro um any benefits well you're you're like if you're asking me I would just add in a little bit more Primo and more test and lower the NPP but that's just me I but the cycle I did recently 500 test 500 de five 150 trest alone and Anadrol and yk1 great [ __ ] cycle man again if I didn't have all these digestive issues I wouldn't have sh stopped and actually now can continue with the gyo surger is taking place so um you know let's get that out of the way and then I can decide to bulk back up albeit that I don't don't want to be 120 kilos anymore it's maybe it was the digestive issues or maybe just being so [ __ ] heavy like in the gym I was a God yeah but the other 22 and a half hours felt a little invalid so at 110 I feel totally fine but 120 nah so in if I were you like what you ask you're asking me personally I would do uh 500 test 200 Deca 500 primo and 300 master yeah just for cosmetic effect and uh and then walk around without a shirt Chris asks herat is 52% flotto immediately or start this 52 [ __ ] hell man why are you even asking this no you don't have to fotm you you need to laomiz bomiz no no at 58 56 maybe uh started sart I just Che in check after a few months I I would next time you go in fully hydrated drink at least one and a half liters of water start your tasar at 20 to 40 Ms per day and don't worry about it man [ __ ] are you checking on the female reference range that goes up to 48% 52 is normal man [ __ ] relax your your platelets are in range right [ __ ] relax dude it's nothing to worry about m is like 55 you last oh one second last uh last Thursday I released my blood right my myat was 55% did you see me freaking out man oh dude relax chill the stress will kill you not the hematocrite uh hi Uncle Steve any that's daddy Steve I want to hear Daddy Steve from now one not uncle Steve no more
+
+### Viewer question at [2:00:21](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7221s): Hi Uncle Steve any potential downside of lots of daily pineapple consumption? it's my favorite fruit and I'm bulking
 
 [2:00:21](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7221s) Viewer question (read aloud): "Hi Uncle Steve any potential downside of lots of daily pineapple consumption? it's my favorite fruit and I'm bulking"
 
@@ -370,6 +468,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [2:01:53](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7313s) uh crypto blow run after 20th of January
 
+### Viewer question at [2:01:53](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7313s): Crypto bullrun after 20th january or nay?
+
 [2:01:53](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7313s) Viewer question (read aloud): "Crypto bullrun after 20th january or nay?"
 
 [2:01:55](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7315s) I [ __ ] hope so it's been pretty [ __ ] boring I'm not sure if this like a mid cycle like like a a third step in the Elliot wave or uh because it it doesn't really come down more than 86 like if it goes to 84,000 I would say that's a you know an Elliot wave correction and then they go to the fifth wave but right now it's just hovering here it's it's kind of boring and dude it's been like an entire day or you if you look into the 4-Hour candle you see it's just flatlining for day around 94,000 so that looks like accumulation to me well you never you know you know the market makers go like oh 102,000 everybody's happy we're like uh Fibonacci 0.618 everybody's getting excited and then they bring the press down everybody gets bearish and meanwhile they scoop up another 50,000 Bitcoin and then they let it fly so I uh I I made a little trades but I'm down since um yeah since the previous not down but where did I get back in I think I got back in in January 1st when it shot up the second time yeah it got rejected and then it went up so January 1st I got back in and then uh when I came back and I'm in a small trade from here how was it I think it was 94 so yeah I'm kind of like similar from that last trade overall I'm down since or up since 108 but I'm just down that it's not going up which is exactly what they want so exactly what they want they want you to be bearish so you sell into their hands they grabb the liquidity you're just not going to do that and why would you hand your money over to [ __ ] M go saor or Black Rock go these guys can go [ __ ] themselves or the Strategic Reserve keep your Bitcoin man or buy more hopefully the bull run will start but this is the year that it's bullish I mean look at the gain since uh since the election [ __ ] man dude since the election where was January 1st or November 4th November 4th we are up 40% now from November 4th till now so it's what 70 days you're up 40% in 70 days even though it's not at the top where else can you get that nowhere dude nowhere uh argumented athlet hard to clarify the bits came down from 1 gr T cp9 150 milligram or pams estal
@@ -378,9 +478,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## How Long Can You Run 200mg Test?
 
+### Viewer question at [2:06:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7602s): Hi Steve. How bad is it to run 200mg test E long term? daily microdose IM, T level at 2500ng/dl. requires 1mg adex a ...
+
 [2:06:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7602s) Viewer question (read aloud): "Hi Steve. How bad is it to run 200mg test E long term? daily microdose IM, T level at 2500ng/dl. requires 1mg adex a week, all markers ok."
 
 [2:06:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7602s) it to run 200 milligram to anti long term my daily micro do intramuscular testosterone levels 12 2,59 per distillator requireed 1 milligram redx a week all MERS are okay I think that's fine fine I think you can run that indefinitely until your age tells you to lower the testosterone to 150 12500 milligrams per week and maybe then you want to stop the injections because you accumulated so much car tissue and you're just too [ __ ] old to raise your arm and then you go to DH Brant alone right that works well in the elderly as well but test trt dosages uh I think it's sustainable for Life man assuming that you eat healthy and you do some [ __ ] exercise well just answer that chest pain persists after stopping
+
+### Viewer question at [2:07:35](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7655s): Chest pain persists after stop minox, suggestions?
 
 [2:07:35](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7655s) Viewer question (read aloud): "Chest pain persists after stop minox, suggestions?"
 
@@ -388,13 +492,19 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## How To Heal A Hairline Fracture
 
+### Viewer question at [2:08:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7700s): What can one do to accelerate the healing of a hairline fracture on there tibia knee the knee?
+
 [2:08:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7700s) Viewer question (read aloud): "What can one do to accelerate the healing of a hairline fracture on there tibia knee the knee?"
 
 [2:08:21](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7701s) healing of a hairline fracture is there in the tibian knee uh okay so okay in the tibian knee of the knee tiia knee of the knee of the leg um rest growth hormone Vitamin K Vitamin D3 magnesium calcium phosphorus um and uh trt which I'm sure cratus you are already on copious amounts of steroids so um just make sure you keep your acidity levels low May me take some baking soda here there to bring our acidity levels down because the acidity leaks uh leeches calcium from Bones and that makes calcium uh transport into bones a little bit more difficult so maybe look at the baking soda I'm not entirely sure if that can help with the bone healing but just from basic human biology that I know that I would bring your acidity levels down by taking baking soda maybe morning and evening five grams per serving and then in the meantime you make sure you take your calcium magnesium phosphorus intake High through dietary sources and then supplementing accordingly later on vitamin D3 and vitamin K from supplemental sources again we'll discuss that Monday or Tuesday in the uh in the Deep dive for we go over all uh all of
 
+### Viewer question at [2:09:32](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7772s): Hey Steve appreciate all u do for us ! Question which form of magnesium do u recommend?
+
 [2:09:32](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7772s) Viewer question (read aloud): "Hey Steve appreciate all u do for us ! Question which form of magnesium do u recommend?"
 
 [2:09:34](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7774s) the vitamins and uh and uh and minerals won't exactly be a deep dive but just a general recommendation and a discussion we'll do that live because I just don't want to go through the effort of recording it not live and then doing the editing and the the it's not going to get any views but it still needs to be done so I'll just do it live to get it out of the way um so yeah that will be my recommendation and rest you can start training again uh when your alkaline phosphotase uh bone specific alkaline phosphation levels are normal which might take four weeks to six weeks yeah rest
+
+### Viewer question at [2:10:16](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7816s): My Oxytocinn nasal spray is 75mg/spray. I believe you recommended ended 500 to 750 IU’s prior to lifting how do I con...
 
 [2:10:16](https://www.youtube.com/watch?v=obhAjOAIBZg&t=7816s) Viewer question (read aloud): "My Oxytocinn nasal spray is 75mg/spray. I believe you recommended ended 500 to 750 IU’s prior to lifting how do I convert the IUs to mg to know how many sprays to administer? Thanks."
 
@@ -414,15 +524,21 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On 600 Test + 400 Tren
 
+### Viewer question at [2:16:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8187s): Hello MrSteve opinion on Test Cyp600 TrenE400 week
+
 [2:16:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8187s) Viewer question (read aloud): "Hello MrSteve opinion on Test Cyp600 TrenE400 week"
 
 [2:16:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8188s) test and 400 train a week uh for the picture that you show me itself SS way too high I would do 200 test cionet that's it um if you're a competitor I even personally I wouldn't run that I would run if I have 1,000 milligrams of steroids to play with 300 Test 300 Primo 25 to 50 milligrams of train and then maybe some some [ __ ] Anadrol or or yk1 or anavar but no it's uh I think it's way too high for what I see in your profile picture and otherwise go ahead and then then we'll hear about the side effects that you get a couple weeks from now John daily micro injections of test
+
+### Viewer question at [2:17:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8237s): Daily micro injections of test vs mon/wed/friday
 
 [2:17:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8237s) Viewer question (read aloud): "Daily micro injections of test vs mon/wed/friday"
 
 [2:17:18](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8238s) versus Monday Wednesday Friday uh both are fine but you get more stable levels with daily micro administrations I mean I think that's common knowledge now but I guess not so but if you like injection convenience I mean I like injection convenience right now I'd inject Monday Wednesday Friday but I don't care about stable serum levels uh because my estra levels are [ __ ] high anyway my gy know's uh [ __ ] growing so and I don't care about hair loss so right now I care about injection convenience uh more than stable serum levels and dude I'm on 500 testosterone and or 300 testosterone anate and 200 Mig testosterone propriate so my levels are pretty stable but yeah if you want the most stable levels daily micro administrations and if you want injection convenience Monday Wednesday Friday is fine uh tiger fine with Gino slowly
 
 ## Thoughts On Ngenla
+
+### Viewer question at [2:18:07](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8287s): with Geno's slowly becoming extinct, what are your thoughts on Ngenla?
 
 [2:18:07](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8287s) Viewer question (read aloud): "with Geno's slowly becoming extinct, what are your thoughts on Ngenla?"
 
@@ -432,6 +548,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [2:19:24](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8364s) 500 micrograms to 250 would it be okay to take 500 micrograms twice per day
 
+### Viewer question at [2:19:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8367s): I got a bunch of SLU, but it's in 500 mcg, not 250, would it be ok to take 500 twice a day, or should I just take 500...
+
 [2:19:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8367s) Viewer question (read aloud): "I got a bunch of SLU, but it's in 500 mcg, not 250, would it be ok to take 500 twice a day, or should I just take 500 once with my morning fasted cardio?."
 
 [2:19:28](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8368s) yeah that's totally fine it seems to work quite long and again the mitochondrial Upp regulation lasts for a couple days even when you stop it so 250 micrograms four times per day or 500 micrograms twice per day it should be totally fun or should you just take 500 mgrs once with the morning fasted cardio no I think morning and afternoon or pre fasted cardio and before the workout should be fine and you get comparable effects Thomas didn't you dude if you became a member you did no need to Super Chat anymore man and I appreciate it but you already paid $10 to become a member so you don't need to pay an additional $10 to add super chats
@@ -440,9 +558,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [2:20:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8417s) see if uh fastic blood glucose is too
 
+### Viewer question at [2:20:19](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8419s): If my FBG is too high at 100, you’re saying i should cut back on carbs, BUT I’m looking to bulk up. What’s the best s...
+
 [2:20:19](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8419s) Viewer question (read aloud): "If my FBG is too high at 100, you’re saying i should cut back on carbs, BUT I’m looking to bulk up. What’s the best strategy to maximize GH benefits control blood sugar, and still get huge?"
 
 [2:20:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8420s) high at 100 nogan uh or milligrams per deciliter you're saying I should cut back in carbs but I'm looking to bulk up what's the best strategy to maximiz growth benefit to control blood glucose and still get huge um add in magnesium to every meal to improve your insulin sensitivity add vitamin D3 to improve your insulin sensitivity uh maybe looking into chromium and berberin improve insulin sensitivity and you know you don't need to be 100% glycogen loaded all the time to gain muscle tissue you can be 95% glycogen loaded and the way to determine that is just to have a phenomenal pump during the gym but not be fully pumped the entire day uh again unless you're on Anadrol or super draw or something like that then you're pumped your entire day yeah it's a little B difficult but I I would start checking your blood glucose levels throughout the day and just see if anything is over 100 and 10030 and then make some slight caloric adjustments to bring it back into normal ranges or um change your protocol because you know maybe you don't produce enough insulin to control your blood glucose levels throughout the day or maybe the growth hormon is is reducing your insulin sensitivity overnight and thus your fast glucose levels are too high or you wake up super stress stressed and you have a cortisol dump and that's why you're fasting blood glucose levels are high so maybe you need um a continuous blood glucose monitor to kind of see when your blood glucose levels are low at night and then if they maybe start peaking because when you dump corol into the bloodstream you get a lot of Goog glycolysis right the the the liver glycogen dumps into the bloodstream from the cortisol and adrenaline uh Spike and then your your fasting blood glucose levels are high even though they're only just High because you woke up and and and fasting uh cardio can kind of mitigate that so maybe you need to check your BL glucose levels throughout the day or change your carbohydrate sources but you don't need to be 100% glycogen loaded all all the time to make gains during your offseason and again growth hormon is just a part of that um and maybe you need some insulin you know it's it's yeah there's multiple ways you can address
+
+### Viewer question at [2:22:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8556s): What SSRIs have you taken Steve? What are you currently on?
 
 [2:22:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8556s) Viewer question (read aloud): "What SSRIs have you taken Steve? What are you currently on?"
 
@@ -454,11 +576,15 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On Alex Kikel
 
+### Viewer question at [2:25:26](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8726s): What do you think of Alex Kikel? He recently did an hour and half long seminar on SLU PP and he says hes seen high do...
+
 [2:25:26](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8726s) Viewer question (read aloud): "What do you think of Alex Kikel? He recently did an hour and half long seminar on SLU PP and he says hes seen high doses of SLU cause gyno flare ups. He used SLU for5 years, wonder how find so early"
 
 [2:25:27](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8727s) he recently did a half long an hour and a half long seminar in SLU pp32 and she seen high dose of SLU C kindo flareups I don't know I can't take Alex skyle serious anymore man I I get his post sent to me regularly and then I'm like what the [ __ ] is this guy talking about maybe he's on to something that I'm not but apparently he can cure cancer and apparently uh he is a veterinarian and apparently uh he coaches people that he didn't really coach and takes the credit that's been a long standing issue with Alex just use use before and after pictures of other coaches and uh I don't know man I it's not somebody I listen to so you guys can listen to and follow whoever you want but it's it's not some somebody I listen to and every time I see a post of his or some content I'm like I don't know I've seen several posts of his that that are now deleted where he say he allegedly cures cancer and when you see an educator go to that this that's I don't know what to say so he used for five years really well I think the scientific evidence is two years old H it's okay man I I don't dislike the guy just sometimes the things she said that makes me raise an eyebrow but that I have that with other Educators as well so it it's not personally somebody I listen to but if you uh if you want to take advice from Alex then go right ahead you are free to listen to and take advice from whoever you want uh thoughts on combining men with
 
 ## Thoughts On Combining MENT With Test & Deca
+
+### Viewer question at [2:27:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8831s): Thoughts on combining MENT with TestCyp & Deca.
 
 [2:27:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8831s) Viewer question (read aloud): "Thoughts on combining MENT with TestCyp & Deca."
 
@@ -470,9 +596,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## Thoughts On MK-677 Not Increasing Hunger
 
+### Viewer question at [2:28:47](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8927s): any reason mk677 may not increase appetite? I am pretty sure it was genuine as I had expected sides and some increase...
+
 [2:28:47](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8927s) Viewer question (read aloud): "any reason mk677 may not increase appetite? I am pretty sure it was genuine as I had expected sides and some increase in fullness, skin and sleep quality, but absolutely no appetite increase."
 
 [2:28:49](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8929s) increase appetite I'm pretty sure it was genuine as I had expected sides and some increase in fullness skin sleeve quality but absolutely no appetite increase but it works on the grin receptor so without an appetite increase you should not get any growth hormone release so next time check your growth hormon levels and your igf1 levels and then uh let's see if your mk677 is legit everybody that I talk to says that he uh and the the expected side effect of mk677 is appetite increase and no other
+
+### Viewer question at [2:29:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8957s): hey Steve.. can retatrutide stop the insulin resistance from mk677?
 
 [2:29:17](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8957s) Viewer question (read aloud): "hey Steve.. can retatrutide stop the insulin resistance from mk677?"
 
@@ -480,9 +610,13 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 ## How Lean To Get Before Starting A Bulk
 
+### Viewer question at [2:29:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8982s): I just got my DXA after starting 210 mg test (and 9 IU GH). I went from 22.4% to 11.1% BF and added 25 lbs of muscle....
+
 [2:29:42](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8982s) Viewer question (read aloud): "I just got my DXA after starting 210 mg test (and 9 IU GH). I went from 22.4% to 11.1% BF and added 25 lbs of muscle. I grew up obese and started this journey at 40% body fat. What BF level do you recommend cutting to before going into a bulk? LUVU"
 
 [2:29:44](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8984s) dexus scan after starting 200 200 Mig testosterone and 9 I use growth R it's a bit high but feel free to go Fork I went from 22% body fat to 11% body fat and added 25 pounds of muscle okay nice I grew up obese and started this journey at 40% body fat oh holy [ __ ] what body
+
+### Viewer question at [2:29:58](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8998s): recommendation on body fat % to be at before considering going to trt+?
 
 [2:29:58](https://www.youtube.com/watch?v=obhAjOAIBZg&t=8998s) Viewer question (read aloud): "recommendation on body fat % to be at before considering going to trt+?"
 
@@ -492,6 +626,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 
 [2:32:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9156s) a compound that increases temporary
 
+### Viewer question at [2:32:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9156s): is there a compund that increases temporarlly agression and cordination and cognition?
+
 [2:32:36](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9156s) Viewer question (read aloud): "is there a compund that increases temporarlly agression and cordination and cognition?"
 
 [2:32:38](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9158s) aggression and coordination and cognition I would say amoxapine uh increases hand eye coordination cognition methylene blue I think it's one of my favorites andx aank and if you want temporary aggression yeah Halo testing so but one a compound that increases all slap in the face really nor adrin man does all three right the adrenaline a nor adrenaline that does all three so you get slapped why do you think all those powerlifters get slapped in the face you know or [ __ ] punched in the face aggression goes up coordination and cognition all goes up and it comes from norrin so I have a segment in the the waterproof doping stock right about nor adrenaline and norrine or noradrenaline and adrenaline levels maybe give that a watch um there might be a compound in there that does the aggression and the coordination and the cognition um yeah slap in the face honestly dude like if you want to ride motorbike or Motocross again maybe ask somebody to slap you on the back you know to double tap like this and then send you off racing that's probably the best way to uh maybe some smelling salts yeah I would say that's pretty reasonable all right guys let's wrap it up here one more from Omar last one uh
@@ -499,6 +635,8 @@ url: https://www.youtube.com/watch?v=obhAjOAIBZg
 ## How To Identify A Tumor?
 
 [2:34:06](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9246s) following the benign tuber in the biceps in the
+
+### Viewer question at [2:34:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9251s): Following the benign tumor in the biceps question, if ultra sound and the bloodwork on your website comes out clean. ...
 
 [2:34:11](https://www.youtube.com/watch?v=obhAjOAIBZg&t=9251s) Viewer question (read aloud): "Following the benign tumor in the biceps question, if ultra sound and the bloodwork on your website comes out clean. GH and peptides would be still be permanently cut? Also what other compounds?"
 

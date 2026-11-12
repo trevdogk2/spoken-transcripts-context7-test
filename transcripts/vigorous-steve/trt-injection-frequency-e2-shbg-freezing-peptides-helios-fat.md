@@ -64,6 +64,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [17:08](https://www.youtube.com/watch?v=iWP047x7w2g&t=1028s) So when you see doctor in front of the name like Dr. Andrew Wing that I had on the Pasca Wingy on the podcast, that guy is an actual medical doctor. That guy actually went from the US to um one of the Arab countries cuz he got bought out and he saw an opportunity. So that's an actual doctor, right? Dr. Adam Hodkash is an actual doctor even though he's a foot surgeon. I mean that's an actual profession, but a chiropractor. Yeah, I'm sorry. pretending to be a doctor and writing scripts uh when you don't have an active medical license, calling yourself a medical doctor, that's that's fraud. So again, if you see doctor in front of somebody, I got a PhD, bro. Okay. Okay. Uh AP just index the new AP brand. Will
 
+### Viewer question at [17:59](https://www.youtube.com/watch?v=iWP047x7w2g&t=1079s): AP just added a new non AP brand. Will you be indexing these?
+
 [17:59](https://www.youtube.com/watch?v=iWP047x7w2g&t=1079s) Viewer question (read aloud): "AP just added a new non AP brand. Will you be indexing these?"
 
 [18:00](https://www.youtube.com/watch?v=iWP047x7w2g&t=1080s) you be indexing? Yeah. Which brand is that again? Um I have to take a look at it. I think it was um where where where's my bro? Ah, Messages gone. Jesus. Bitcoin is like 79,000. Holy moly. Uh what was it? Pharmarmacco. Pharmarmac. Yeah, I'll index those. Maybe not all the products, but I I have to take a look at it. It's an MCT oil, so it should be fine.
@@ -72,9 +74,13 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [18:32](https://www.youtube.com/watch?v=iWP047x7w2g&t=1112s) Do you use fat burner blends like
 
+### Viewer question at [18:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=1113s): Do you use fat burner blends like
+
 [18:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=1113s) Viewer question (read aloud): "Do you use fat burner blends like "metabolic fire" from Soma, as a pre-workout or a daily add on to the cutting stack? SubQ or IM ? I'm fixing to order some and use your code"
 
 [18:34](https://www.youtube.com/watch?v=iWP047x7w2g&t=1114s) metabolic fire from Soms as a pre-workout or daily add-on for a cutting stack subcure? I am. I'm fixing to order some uh metabolic fire. What's in there? Metabolic fire. So, I can't remember off the top of my head, you know, with all the name changes since uh Amino Asylum. It's uh it's a bit of a headache. So, what's in here? Lcarnitine, Mick Blend, ATP, Albuterol. Yeah, I would do you could do it intramuscular, but if the albuterol goes systemic, you get terrible heart palpitations. It happened to me once on a silence plant. So, the albuterol went straight to my heart and my heart palpitations were off the scale. So, that I would do subq even though the ATP would be better to do intramuscular obviously, but the make blend and lcarnitine can go subq as well and the B12 it doesn't really matter. Um, so yeah, I've used uh that extensively. Not right now because now I'm trying to be healthy and stuff and I'm not training that hard, just training to maintain. Yeah. So, uh, give it a try. Um, you could do it intramuscular, but if you ever get unique vein and the
+
+### Viewer question at [19:42](https://www.youtube.com/watch?v=iWP047x7w2g&t=1182s): Hello Steve - Thank you for the great advise. My gym gets busy early so I hit weights before fasted cardio. Does it m...
 
 [19:42](https://www.youtube.com/watch?v=iWP047x7w2g&t=1182s) Viewer question (read aloud): "Hello Steve - Thank you for the great advise. My gym gets busy early so I hit weights before fasted cardio. Does it make much of a difference? Thanks!"
 
@@ -88,15 +94,21 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 ## More Frequent Injections Lower E2 Levels
 
+### Viewer question at [21:28](https://www.youtube.com/watch?v=iWP047x7w2g&t=1288s): Previously 250mg test E, total test 2050, free 781, SHBG 23, and E2 119pg. Now back on at 180mg test E, total test 17...
+
 [21:28](https://www.youtube.com/watch?v=iWP047x7w2g&t=1288s) Viewer question (read aloud): "Previously 250mg test E, total test 2050, free 781, SHBG 23, and E2 119pg. Now back on at 180mg test E, total test 1790, free 501, SHBG 24, E2 54. What made my E2 cut in half? 2x/wk pin b4 vs EOD now"
 
 [21:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=1290s) total test 250. All right, that's more like it compared to some of the other guys. I'm running 300 test and my total test is 1,200. I got news for you, bro. SAPG23, Estradile 125 grams per milliliter. Now back on 180 test, total test 1,800. Uh yeah, SVG up a little bit. Estrad to 54. What made my E2 cut in half? Two twice a week being before versus every other day now. So you increase your injection frequency which slows the um or which which obviously gives you less higher peaks but more stable levels and that results in you having less estradile levels even though you didn't cut your testosterone in half. So you go from two times a week to three and a half times per week basically on average and that means your estradile is going to be lower. Go to every day your estradile would probably be 40. You know that's why I always tell you more injections means less aromatization and less ded testosterone levels. So less 5 reduction of your testosterone. And even though serum levels might be a little bit lower at certain times uh compared to the peaks that you generate from less frequent injections overall um it's easier to manage your other hormones that testosterone converts into.
 
 [22:49](https://www.youtube.com/watch?v=iWP047x7w2g&t=1369s) Also 250 milligrams per week with total
 
+### Viewer question at [22:50](https://www.youtube.com/watch?v=iWP047x7w2g&t=1370s): Also, 250mg per week with total test at 2050 sounds normal, but 180mg per week with total test at 1790 sounds like my...
+
 [22:50](https://www.youtube.com/watch?v=iWP047x7w2g&t=1370s) Viewer question (read aloud): "Also, 250mg per week with total test at 2050 sounds normal, but 180mg per week with total test at 1790 sounds like my gear might be over dosed, no?"
 
 [22:51](https://www.youtube.com/watch?v=iWP047x7w2g&t=1371s) test 250 sounds normal but 180 grams per week with total 1,800 sounds like my gear might be under might be overdosed. Now again it's it's just and again it's a moment in time that you check the day after or 3 days after the day before. It's just a number on paper man. Go by how you feel and and and you could test it like a couple hours later it would be higher or lower. So you just get a single moment in time that they draw the blood and it could fluctuate quite a bit. by availability. There was a paper
+
+### Viewer question at [23:28](https://www.youtube.com/watch?v=iWP047x7w2g&t=1408s): bioavailability? There was a paper published in December
 
 [23:28](https://www.youtube.com/watch?v=iWP047x7w2g&t=1408s) Viewer question (read aloud): "bioavailability? There was a paper published in December"
 
@@ -107,6 +119,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 [24:00](https://www.youtube.com/watch?v=iWP047x7w2g&t=1440s) Gez, so many questions already. Thoughts on needing to cycle off SLOP 332 and JLP1 ones? Any evidence that you're aware of? Uh, well, JLP1's they run that for what, 24 months or something, depending on the GLP1. like some of them they run it for two years and then um they taper down and then everybody regains the weight. So the unless you learn some sort of method to control your appetite which doesn't happen because the GLP1 takes care of that for you. That's why everybody gets your appetite back with a vengeance because they didn't learn any self-control while using GLPS and SLUP 332. I think the scientific evidence was 8 weeks in animal models. So uh at what equivalent to 400 to 800 mg for 100 kilogram bodybuilder. So uh that didn't show any adverse reactions. So yeah it's the only animal models one pharmaccoinetic study something like that and not too much besides that. So I would cycle off. I cycled off. I cycled off. I still use and SS31 because uh SS31 has undergone clinical trials in humans. I'm working on the deep dive right now but I'm a dad. It's going a lot slower than expected. I'm doing my best, guys. And Matsi is an indogenous hormone that the mitochondria produce for you to help with nutrient partitioning for them. So, they can produce ATP for you. Has really been studied in humans through exogenous sources, but in animals it has. And you see that uh you know, they kind of track if Ma levels go up or down based on activity or fasting or that kind of stuff. So, whoopde-doo. activity increases mod sea levels and fasting decreases mod sea levels. Um, so yeah, I would say I love SLU PP332. Man, I I ran it for [snorts] 9 weeks. 9 weeks at 400 milligrams. I ran it for a year at a 1 milligram. I ran it for 6 months at 500 micrograms or 750 for fat loss. More is better obviously, but you also put more pressure in your body. So it limit the duration, limit the exposure. And now I haven't used it since or what I used 400 milligrams when I went to Kosamoy because I knew what my diet was going to be after reals. That's what holiday is all about. Diet after reals eating like an Man, that's not true. I had a good breakfast, some some chicken and eggs and banana. Then I went to the gym and I had a protein shake and then I had Thai food for lunch and then whatever the I wanted for dinner, which is usually a steak and cheesecake, right?
 
 [26:27](https://www.youtube.com/watch?v=iWP047x7w2g&t=1587s) Goes very well together. cheesecake and steak and maybe a little bit of fries. So, I ran high dose SLU PP332 for a week. Then one day after I came back and then I stopped again because there was no damage to my body fat levels as you can see from these my muscle mass is disappearing. The the the leanness is uh at least my face is getting a little bit leaner now that the deck has out. Anyway, yeah, cycle off that But you might want to stay in a low dose GLP1 to uh prevent the uh the horrific rebound that occurs. I I've gone through
+
+### Viewer question at [27:01](https://www.youtube.com/watch?v=iWP047x7w2g&t=1621s): running 150 test 125 Primo/wk pin daily 25 mg Anvar pre-workout. Aggression and irritability is through the roof, eve...
 
 [27:01](https://www.youtube.com/watch?v=iWP047x7w2g&t=1621s) Viewer question (read aloud): "running 150 test 125 Primo/wk pin daily 25 mg Anvar pre-workout. Aggression and irritability is through the roof, even after taking out the Anvar. Am i just an asshole? Or should I reduce something?"
 
@@ -120,6 +134,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 ## How To Clean Out Post-Show
 
+### Viewer question at [28:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=1713s): Hey Bro hope all is well. My question is pertaining to health phase/post show antioxidant protocols. What would you s...
+
 [28:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=1713s) Viewer question (read aloud): "Hey Bro hope all is well. My question is pertaining to health phase/post show antioxidant protocols. What would you suggest to "clean out" the body post show or health phase? Nad+, glutathione, ss31?"
 
 [28:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=1713s) all hope all is well my question is pertaining to health phase postshow antioxidant protocols would you suggest to clean out the body post show or health phase any plus glutathione s31 oh it depends on your blood work right if you're still healthy post show then ramp up the test and grow grow grow or you can ramp up the test and get healthy at the same time because test even at a gram is not very invasive on your health parameters besides maybe lipids and SHBG but you can get your thyroid panel back while doing that your lipids will improve albeit not to the best uh capability obviously SHG will come up but not to the best capability because you're still in the grammar test and then uh I would still have antioxidants in during your uh prep phase or your offseason phase you don't need to take those out. So you take your NAD+ year round, you take your glutathione year round, your SS31 year round, maybe you cut that out the last week if it interferes with carb loading. Uh same with Matsi or SLU, right? If if the REA or the SS31 or the Matsi or the SLU, if you feel that it interferes with carb loading and it might make you look a little bit bloated in the waist like get rid that slows digestion. So I personally I wouldn't recommend people to take that while carb loading because you just get backed up and then you're full of which most people are anyway but then you're physically full of Not just mentally or from a personality perspective.
@@ -132,11 +148,15 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 ## Muscle Memory Kicks In Fast
 
+### Viewer question at [31:51](https://www.youtube.com/watch?v=iWP047x7w2g&t=1911s): losing glycogen ,nitrogen retention ,maintaining the same weight at a lesser composition, how long would it take to r...
+
 [31:51](https://www.youtube.com/watch?v=iWP047x7w2g&t=1911s) Viewer question (read aloud): "losing glycogen ,nitrogen retention ,maintaining the same weight at a lesser composition, how long would it take to reinflate back to my previous enhanced self after adding adequate hormones back in?"
 
 [31:51](https://www.youtube.com/watch?v=iWP047x7w2g&t=1911s) Losing glycogen, nitrogen retention, maintaining the same weight at a lesser comp composition. How long would it take to reinflate back to my previous enhanced self after adding adequate hormones back in? Usually people write back in a month and half the dosage they were before. So, don't worry about it, man. It's it's it's uh it's a marathon, not a sprint. So, I'm losing this definition and size. And I mean, I went from 2,000 milligrams to, you know, 200 milligrams basically or 1,800 milligrams. Yeah. It's all deflating. Whatever, bro. Whatever. It's part of the game. It will be right back as soon as you jump on hormones. So, you know, uh what about the chesticles? It's Jessica still popping. Look at that. It's been like six what? Six weeks. I stopped before Christmas. So, uh, where is it? December one. Yeah, five weeks. I'm still okay.
 
 [32:56](https://www.youtube.com/watch?v=iWP047x7w2g&t=1976s) Don't Don't sweat it, man. Lola will still be okay after 5 months on TRT. I'm not sure. I might have to take a cheesecake to prevent catabolism. But yeah, usually a month you already start to look good and depends on how much you run. Like I'm pretty conservative when I get started and I usually ramp up at the end. So I'll go from 200 test to 500 tests. Whoopy do. And then maybe 750 and then then a gram and then but that's over months. So yeah, take it easy, man. Take it easy. You know, if you're trying to turn pro, then well, you cruise on a gram of gear, so you don't lose any size. [laughter] Steve, currently 40 milligrams test E
+
+### Viewer question at [33:39](https://www.youtube.com/watch?v=iWP047x7w2g&t=2019s): Steve, currently running 40mg daily Test E. Looking to cut from 250lbs > 215lb. Adding generic GH at 5iu/day. Should ...
 
 [33:39](https://www.youtube.com/watch?v=iWP047x7w2g&t=2019s) Viewer question (read aloud): "Steve, currently running 40mg daily Test E. Looking to cut from 250lbs > 215lb. Adding generic GH at 5iu/day. Should I split that AM/PM for the morning fasted lypolitic effects or just run it all PM?"
 
@@ -152,6 +172,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [35:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=2125s) Multiple times I've had the stopper
 
+### Viewer question at [35:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=2125s): Multiple times I’ve had the stopper degrade and fail in my Test vials from Beli Pharm. any tips on how to prevent tho...
+
 [35:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=2125s) Viewer question (read aloud): "Multiple times I’ve had the stopper degrade and fail in my Test vials from Beli Pharm. any tips on how to prevent those from degrading?"
 
 [35:27](https://www.youtube.com/watch?v=iWP047x7w2g&t=2127s) degrade and fail in my fall in my test vial from belly farm. Uh any tips on how to prevent those from degrading? Um don't use an a 16 gauge to pierce the rubber stopper and otherwise it's pretty big, right? So what I do is you just go around like how many times do you need to draw from a test file, right? You just go around, you make new holes, not go through the same holes at different angles. Then you're just tearing the apart on the inside and uh and then eventually some some rubber or some silicone is going to fall into your valve. And even then, I would still use it because just because you flip it upside down and it touches the rubber silicone, if it falls in there, it um yeah, it's the same effect. Basically, it's touching glass or rubber and or silicone. So, it should be fine.
@@ -164,6 +186,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [37:31](https://www.youtube.com/watch?v=iWP047x7w2g&t=2251s) Fully spin 2 milllers of high
 
+### Viewer question at [37:31](https://www.youtube.com/watch?v=iWP047x7w2g&t=2251s): Foolishly pinned 2ml of high concentration 500mg per ml test in upper glutes and currently suffering from severe PIP....
+
 [37:31](https://www.youtube.com/watch?v=iWP047x7w2g&t=2251s) Viewer question (read aloud): "Foolishly pinned 2ml of high concentration 500mg per ml test in upper glutes and currently suffering from severe PIP. Anything I can do to help with recovery or pain?"
 
 [37:32](https://www.youtube.com/watch?v=iWP047x7w2g&t=2252s) concentration 500 mg per milliliter test in upper glutes and currently suffering severe post injection pain and they can do to help recover uh or pain. Yeah. So, this sounds completely uh silly, but it does work. You buy cabbage leaves and you put that on the area. I have a video on this uh red cabbage leaves. I believe that's one of the ingredients lowers inflammation tremendously. So, you just buy cabbage. I can't remember if it's white cabbage or red cabbage, but one of these has very high um ingredients of um some polyphenol that lowers inflammation. And then basically you wear some tight underwear, some speedos, and then you put a couple cabbage leaves on the the area if well you inject the upper glutes and then the next day it's gone. Report back to us next week. I'm 99% sure that's going to fix it. And then stick with sources that I recommend. I don't recommend any sources that brew in 500 milligrams per 1 milll. Even EQ. Yeah, but it's liquid, Steve. I don't give a It's liquid. So is my semen. It's also liquid. Do you want that? [sighs] My wife wants it, but you guys want nothing to do with it. Unless you lusty that want the Thailand starter kit and a complimentary wad in there.
@@ -171,6 +195,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 [38:50](https://www.youtube.com/watch?v=iWP047x7w2g&t=2330s) Why is why all the pages stick together? Uh anyway, we got completely off track. Um so yeah, bin it bin it bin it or dilute it with something else. Uh, but if it contains glycol or high doses of benzoenzoate or propyline glycol, polyethylene glycol, whatever the then I would bin it, bro.
 
 ## Most Anabolic Stack That Can Be Used Long-Term?
+
+### Viewer question at [39:12](https://www.youtube.com/watch?v=iWP047x7w2g&t=2352s): whats the most “anabolic “ hormone stack that could be sustained indefinitely with test? hcg?gh?
 
 [39:12](https://www.youtube.com/watch?v=iWP047x7w2g&t=2352s) Viewer question (read aloud): "whats the most “anabolic “ hormone stack that could be sustained indefinitely with test? hcg?gh?"
 
@@ -182,9 +208,13 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [40:21](https://www.youtube.com/watch?v=iWP047x7w2g&t=2421s) I believe you can freeze the GLP once
 
+### Viewer question at [40:21](https://www.youtube.com/watch?v=iWP047x7w2g&t=2421s): I beleive you can freeze the GLP1s after reconstitution to prevent deterioration.?
+
 [40:21](https://www.youtube.com/watch?v=iWP047x7w2g&t=2421s) Viewer question (read aloud): "I beleive you can freeze the GLP1s after reconstitution to prevent deterioration.?"
 
 [40:22](https://www.youtube.com/watch?v=iWP047x7w2g&t=2422s) after reconstitution to prevent deterioration. Um, I'm not sure. I researched this for HCG. HCG has a hydrophilic outside and hydrophobic inside. So that prevents water from going into the molecule and then freezing, crystallizing and tearing it apart. I ran that experiment and the hg still uh tested hg at normal levels in serum and um turned the pregnancy test uh to positive. So uh yeah, and my hormone levels were pretty much the same after running frozen hCG for a couple weeks. But with GLP1s, I'm not sure. You can freeze NAD+, glutathione, and HCG, but for GLP1s, I'm not sure. Steve, you mentioned insane pulsing pain
+
+### Viewer question at [41:08](https://www.youtube.com/watch?v=iWP047x7w2g&t=2468s): Steve u mentioned insane PIP from GHK. Have you tried combining KPV with GHK in the same vial to mitigate the PIP? I’...
 
 [41:08](https://www.youtube.com/watch?v=iWP047x7w2g&t=2468s) Viewer question (read aloud): "Steve u mentioned insane PIP from GHK. Have you tried combining KPV with GHK in the same vial to mitigate the PIP? I’ve known plenty who did this"
 
@@ -198,6 +228,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [43:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=2585s) Hey Steve 150 TRT uh 500 ISO ATCG twice
 
+### Viewer question at [43:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=2585s): Hey Steve - on 150mg TRT, 500iu HCG twice a week. My pregnenolone is typically around 100ng/dl. Good Idea to add 10mg...
+
 [43:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=2585s) Viewer question (read aloud): "Hey Steve - on 150mg TRT, 500iu HCG twice a week. My pregnenolone is typically around 100ng/dl. Good Idea to add 10mg oral pregnenolone upon waking?"
 
 [43:08](https://www.youtube.com/watch?v=iWP047x7w2g&t=2588s) per week when pregnant alone is typically around 100 nanogs per diliter. Any good idea to add 10 milligrams? I I can't remember what the reference range is, but if that's low, then yes, I would add it in 10 milligs oral pregnant alone upon waking and 25 milligs or 12.5 milligs DHEA. And then give that 4 weeks to see where your pregnant alone and DHA sulfate levels end up to see if you need a second dose in the evening or take it all in the morning, take it all in the evening depending on your energy levels and if it interferes with sleep. Like some people get sleepy on pregnant on DHA, other people get energetic. You'll have to try morning plus evening or only morning or only evening and see what you prefer. Yeah. Uh 20 minutes behind. Great. Steve, why
@@ -205,6 +237,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 ## Post-Surgery Healing Protocol
 
 [44:01](https://www.youtube.com/watch?v=iWP047x7w2g&t=2641s) the head of breast reduction tummy tuck?
+
+### Viewer question at [44:01](https://www.youtube.com/watch?v=iWP047x7w2g&t=2641s): Hey steve, wife had a breast reduction/tummy tuck what’s a good peptide protocol for healing and scarring moving forw...
 
 [44:01](https://www.youtube.com/watch?v=iWP047x7w2g&t=2641s) Viewer question (read aloud): "Hey steve, wife had a breast reduction/tummy tuck what’s a good peptide protocol for healing and scarring moving forward. It’s been two days post op."
 
@@ -216,6 +250,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [46:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=2790s) DJ musician the past decade, so my sleep
 
+### Viewer question at [46:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=2790s): Hey Steve, I’ve been a DJ/musician the past decade so my sleep time varies anywhere between 4am and 10am. Is it still...
+
 [46:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=2790s) Viewer question (read aloud): "Hey Steve, I’ve been a DJ/musician the past decade so my sleep time varies anywhere between 4am and 10am. Is it still worth jumping on HRT considering no consistent sleep time or will I be more susceptible to side effects."
 
 [46:32](https://www.youtube.com/watch?v=iWP047x7w2g&t=2792s) time varies anywhere between 4:00 a.m. to 10:00 a.m. Is it still worth on jumping on HRT considering no consistent sleep time or will I be susceptible to more sides? Uh, no. I think it's still worth it. I mean, if your testosterone levels are low and you can't manage that by improving your sleep patterns, then HRT uh would be okay, you know. Um, you always go to bed at like 11:00 a.m. Uh, varies between 4:00 a.m. to 10:00 a.m. Yeah. So, I I go to bed at 4:00 a.m. and I wake up at 12:00 a.m. just consistently from 4:00 a.m. to 12:00 a.m. Sometimes 3:00 a.m. to 11 uh a.m. or or maybe a little bit longer. Sometimes I sleep 9 hours, you know, [clears throat] sometimes I sleep six. But I'm on TRT HRT. So, I don't know if you need it. I don't think it has anything to do with your sleep. If anything, you know, high dose creatine and a little bit of TRT is going to prevent sleep deprivation. Take a little bit of growth hormone before bed to improve sleep quality and uh and recovery at night and then you should be okay. Dwayne, come here, man. Let's let's get this cat.
@@ -223,6 +259,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 [47:44](https://www.youtube.com/watch?v=iWP047x7w2g&t=2864s) Hey, what do you what do you need? Okay. Okay. Okay. All right. All right. [snorts] Terrorists. My cats are silly. They don't come for attention. They just scream and then they they want uh they want to be chased. Uh it's it's 1:00 in the morning. We're not doing any chasing. Uh 20 for the Cheesecake Fund.
 
 ## 47 Year-Old Success Story
+
+### Viewer question at [48:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=2889s): for the cheesecake fuind
 
 [48:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=2889s) Viewer question (read aloud): "for the cheesecake fuind"
 
@@ -240,6 +278,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [51:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=3093s) Does highdose SLU make you hungry? Uh, I
 
+### Viewer question at [51:34](https://www.youtube.com/watch?v=iWP047x7w2g&t=3094s): does high does slu make you hungry?
+
 [51:34](https://www.youtube.com/watch?v=iWP047x7w2g&t=3094s) Viewer question (read aloud): "does high does slu make you hungry?"
 
 [51:36](https://www.youtube.com/watch?v=iWP047x7w2g&t=3096s) don't know. I always use it with red or trapidite, so I'm not sure. Does it make you go hypo? And then you need to uh get some coconut water or Gatorade or whatever else to bring you out of that. A banana is too slow. some dates, you know. Could be. Can't remember. Big Jake says, "Yes, I know. I always uh always take with appetite suppressants."
@@ -248,9 +288,13 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [52:13](https://www.youtube.com/watch?v=iWP047x7w2g&t=3133s) Message got cut off. Was trying to say,
 
+### Viewer question at [52:14](https://www.youtube.com/watch?v=iWP047x7w2g&t=3134s): Msg got cut off. Was trying to say “Have u heard of SLU-PP-915? They claim much better solubility and oral bioavailab...
+
 [52:14](https://www.youtube.com/watch?v=iWP047x7w2g&t=3134s) Viewer question (read aloud): "Msg got cut off. Was trying to say “Have u heard of SLU-PP-915? They claim much better solubility and oral bioavailability. There was paper published in December"
 
 [52:15](https://www.youtube.com/watch?v=iWP047x7w2g&t=3135s) "Have you heard of SLUPB915? They claim much better solubility in oral bioavailability." Yeah, that's true. Um so that paper I actually have here Kurt sent it to me um and that's been uh what researched in the context of kidney health I believe but I didn't really get a chance to go through it. So we do know that SLUP 915 has higher oral bioavailability than SLUPP 332. Um but this has more been studied in the context of organ health whereas SLU has been or 332 has been studied in the context of fat loss. But I haven't really gone through this one yet. And guys this this one is behind the pay wall. So if you get it uh full then you can make a conclusion about it. But don't read the abstract and then say see this abstract proves that SL has poor oral bio availability. No it just has less. doesn't mean it has poor oral bio availability. Doesn't mean you need
+
+### Viewer question at [53:15](https://www.youtube.com/watch?v=iWP047x7w2g&t=3195s): Saw a video from Derek saying more frequent pinning can increase SHBG levels due to a lower androgen burden all at on...
 
 [53:15](https://www.youtube.com/watch?v=iWP047x7w2g&t=3195s) Viewer question (read aloud): "Saw a video from Derek saying more frequent pinning can increase SHBG levels due to a lower androgen burden all at once. However more frequent pinning reduces E2, which is needed for SHBG. Thoughts?"
 
@@ -278,6 +322,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 ## Crazy Post-Cut Binging Rebound
 
+### Viewer question at [59:36](https://www.youtube.com/watch?v=iWP047x7w2g&t=3576s): What was your craziest post l-cut binging rebound? I gained 14 lbs in 14 days (including a Japan trip) on ice cream, ...
+
 [59:36](https://www.youtube.com/watch?v=iWP047x7w2g&t=3576s) Viewer question (read aloud): "What was your craziest post l-cut binging rebound? I gained 14 lbs in 14 days (including a Japan trip) on ice cream, donuts, pastries, souffle pancakes. Lost 8 lbs after 3 days back home."
 
 [59:38](https://www.youtube.com/watch?v=iWP047x7w2g&t=3578s) binging rebound. I gained 14 pounds in 14 days, which is that's nothing including a Japanese trip, an ice cream, donuts, pastry, sule, pancake. Lost eight pounds after three days back home. Yeah. So you did a lot of walking, so you don't gain much. Uh I know guys that ate so much that they gave themselves heart failure. and died. I happened with the three Thai bodybuilders since I've been here. Um, they do extreme cuts, low sodium, low potassium, or at least low sodium diets. Then they squeeze into weight class, not under my guidance. Obviously, the guys that I guided in the past, they're a little bit smarter than that. They made weight nonetheless, and they didn't rebound hard. But some of the Thai guys, they um yeah, they do low sodium diets. They they squeeze into a weight class. It's maybe 10 lbs, 5 kilos lower. Then they use Lasix to flush the last little bit of weight off. And then they do a show after being carb loaded just on protein or just on carbs and and then they start eating and then the eldoststerone is skyhigh.
@@ -290,6 +336,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:02:24](https://www.youtube.com/watch?v=iWP047x7w2g&t=3744s) It's funny. I called the the gold top twice. I called it twice. I knew exact said this is the time to sell. If I had any gold, I would sell it right now. I didn't have any gold though. This is like all the all this all these rings that I have like this. These chains like this. This ain't real gold. This is just a motorcycle chain bracelet from AliExpress for like $5. $5. It's n real gold. Steve, is this true? You have
 
+### Viewer question at [1:02:56](https://www.youtube.com/watch?v=iWP047x7w2g&t=3776s): hey Steve is this true when you have high estrogen scrotum are high and low estrogen scrotum low No homo
+
 [1:02:56](https://www.youtube.com/watch?v=iWP047x7w2g&t=3776s) Viewer question (read aloud): "hey Steve is this true when you have high estrogen scrotum are high and low estrogen scrotum low No homo"
 
 [1:02:57](https://www.youtube.com/watch?v=iWP047x7w2g&t=3777s) when you have high estrogen scrotum are higher and low estrogen scrotum. Thanks for the $5, bro.
@@ -299,6 +347,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 [1:03:06](https://www.youtube.com/watch?v=iWP047x7w2g&t=3786s) Uh, hey Steve, new to the peptide game, but Ride 12 milligrams and glow G. Yeah. Uh 5 10 5 mill 25 GHk copper 10 GB and 5 BPC. H I stored it in the freezer. I wouldn't do that. [laughter] I wouldn't do that, bro. But then again, it's it's it's freeze-dried peptides. Uh so it might be possible, but I would still wouldn't do it. We're reconstituting. How much back water should I use for each? Uh I would do 1.2 two milliliters for Rea and 1 milll for the GSK copper brand. Then you inject 0.1 milll to get 1 milligram redatite or half uh 0.05 milliliters to get half milligramutite. overglow you inject 1 milll. You would take uh 0 two to get 5 milligs GHK copper, 2 milligs TB500, and 1 milligram uh BBC57.
 
 [1:04:13](https://www.youtube.com/watch?v=iWP047x7w2g&t=3853s) Should I unfreeze before reconstitution? Yes, you don't freeze your peptides, man. How to incorporate the preor mast. Just
+
+### Viewer question at [1:04:20](https://www.youtube.com/watch?v=iWP047x7w2g&t=3860s): how to incorporate the primo or mast
 
 [1:04:20](https://www.youtube.com/watch?v=iWP047x7w2g&t=3860s) Viewer question (read aloud): "how to incorporate the primo or mast"
 
@@ -310,6 +360,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:06:39](https://www.youtube.com/watch?v=iWP047x7w2g&t=3999s) But I didn't help at all with the food noise. Yeah, it happens. Wrote a paragraph. Jesus Christ, bro. Post it again. I don't see it. I don't see it, bro. Post it again. Steve, when should one consider donating blood near top of the range red blood on TRT? Uh, or let it go a little bit over the reference range by how much? Go and hydrate it the next time. You don't need
 
+### Viewer question at [1:07:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=4045s): Steve do you have any favorite songs to have playing when it's PR or ER time?
+
 [1:07:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=4045s) Viewer question (read aloud): "Steve do you have any favorite songs to have playing when it's PR or ER time?"
 
 [1:07:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=4045s) to donate. Let's go and drink water.
@@ -320,6 +372,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:08:48](https://www.youtube.com/watch?v=iWP047x7w2g&t=4128s) Anyway, my list is long. And then some random like uh Streley or uh Mick Gordon uh Epi Nikon Epicion Grabak the intro for Juke Nukem 3D. Falling in a reser reverse Ronald Fear Factory Zordionic Disobey Disruptor Remix. Uh yeah, I got a I got a a mega mix. Devil Driver. Good Raping and pillaging. [laughter] 1 milligram per day. Yeah. Yeah. So if it doesn't work, you just switch to another one. I just read the insulin section in your
 
+### Viewer question at [1:09:41](https://www.youtube.com/watch?v=iWP047x7w2g&t=4181s): just read the insulin section in your bio identical hormone PDF, how much would using gh sway the numbers for insulin...
+
 [1:09:41](https://www.youtube.com/watch?v=iWP047x7w2g&t=4181s) Viewer question (read aloud): "just read the insulin section in your bio identical hormone PDF, how much would using gh sway the numbers for insulin sensitivity dosing ect ?"
 
 [1:09:42](https://www.youtube.com/watch?v=iWP047x7w2g&t=4182s) bio identical hormone PDF. How much would you use GH sway the numbers for insulins then? No, it doesn't. If you live the lifestyle, GH has no effect on your insulin sensitivity. Again, we've discussed this many times before. If you read the insulin ebook, it will explain it more. If you do cardio, you inject some carnitine, and you live a healthy lifestyle, you would be okay. Ferris, welcome to the vigorous crew. Oh god, that's the worst middle. All right. And you're in timeout. Say that again. You're banned for life. Nobody gets to tell me what music I listen to. If you don't like it, I listen to K-pop. I listen to AI Schlop. I listen to anything I want. If you don't like it, get the out of here or I'll make you get the out of here. Uh, no.
@@ -328,11 +382,15 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:10:39](https://www.youtube.com/watch?v=iWP047x7w2g&t=4239s) No. I'm hydrating. I just noticed over
 
+### Viewer question at [1:10:39](https://www.youtube.com/watch?v=iWP047x7w2g&t=4239s): no no im hydrating, i just nofice overtime it creeps up bcuz im overwheight, cutting atm, with reta, but just to be s...
+
 [1:10:39](https://www.youtube.com/watch?v=iWP047x7w2g&t=4239s) Viewer question (read aloud): "no no im hydrating, i just nofice overtime it creeps up bcuz im overwheight, cutting atm, with reta, but just to be safe."
 
 [1:10:41](https://www.youtube.com/watch?v=iWP047x7w2g&t=4241s) time it creeps up because I'm overweight. Okay, so you already know the answer. Get a CPAP machine. It'll get your weight down. Just want to be safe. I mean, if it's if it's 54% it's okay, but if you're overweight, I don't know. You're probably also unhealthy. So, you might want to donate, but um you know, get that CPAP, get your body fat levels under control. You're naughty already. Do I use GH bedtime? Yeah, I don't know. I don't know your full uh I don't see your message, bro. So, just post the entire message again. And if it doesn't post, you're using something that is uh in the block list. Would add to the stack cause what? What the is that? Oh, mosquito.
 
 [1:11:46](https://www.youtube.com/watch?v=iWP047x7w2g&t=4306s) I also don't know what you mean, Ferris.
+
+### Viewer question at [1:11:47](https://www.youtube.com/watch?v=iWP047x7w2g&t=4307s): Should have specified I meant stacking said oral on top of test cyp injection to have some fluctuation of test levels...
 
 [1:11:47](https://www.youtube.com/watch?v=iWP047x7w2g&t=4307s) Viewer question (read aloud): "Should have specified I meant stacking said oral on top of test cyp injection to have some fluctuation of test levels throughout the day due to different half lives e.g. before/after morning workouts"
 
@@ -341,6 +399,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 ## What Injectable Pre-Workout Does Steve Use?
 
 [1:12:25](https://www.youtube.com/watch?v=iWP047x7w2g&t=4345s) we're just going to do uh I don't know, talk about motorcycles or something. Uh, which mix do you pin daily with ND+?
+
+### Viewer question at [1:12:36](https://www.youtube.com/watch?v=iWP047x7w2g&t=4356s): wich mix do you pin daily with nad+?
 
 [1:12:36](https://www.youtube.com/watch?v=iWP047x7w2g&t=4356s) Viewer question (read aloud): "wich mix do you pin daily with nad+?"
 
@@ -353,6 +413,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 [1:14:23](https://www.youtube.com/watch?v=iWP047x7w2g&t=4463s) Seems to work better that way. Uh what's your fastest bike? I had a 99
 
 ## Steve’s Fastest Bike
+
+### Viewer question at [1:14:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=4470s): whats your fastest bike??? i had a 99 hayabusa , full bol .
 
 [1:14:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=4470s) Viewer question (read aloud): "whats your fastest bike??? i had a 99 hayabusa , full bol ."
 
@@ -370,11 +432,15 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:18:46](https://www.youtube.com/watch?v=iWP047x7w2g&t=4726s) Uh will you be at the Omega booth all
 
+### Viewer question at [1:18:46](https://www.youtube.com/watch?v=iWP047x7w2g&t=4726s): Will you be at the Omega Amino booth all day, at the Arnold?
+
 [1:18:46](https://www.youtube.com/watch?v=iWP047x7w2g&t=4726s) Viewer question (read aloud): "Will you be at the Omega Amino booth all day, at the Arnold?"
 
 [1:18:48](https://www.youtube.com/watch?v=iWP047x7w2g&t=4728s) day at the Arnold? Yeah, I'll be at the booth all day, all three days. I might take a little They just released the uh the floor plan, so I saw that there's a mutant booth. So, I'll go to the mutant booths and say hi to Scott McN, uh you know, the the the team of mutants because I know some of those guys. Um I'll do a little bit of show. I saw some place had jeans, so if they have like jeans aimed towards bodybuilders, man, this mosquito is pissing me off. missed it three times. Uh there's some hopefully uh rip rip ears if you're wearing earphones, man. He's like right here. Let me just bait him in. Yes. The delicious blood. Come and get it. Come and get it, bro. I'll just stick my arm out, rest it on the on the thing. So, there's some jeans place and there's a couple other booths I want to visit, but I'll probably just take like a little break. So, just come swing by. the Omega Mino both I'll be there um and if I'm not there I'll be back in 30 minutes.
 
 [1:19:55](https://www.youtube.com/watch?v=iWP047x7w2g&t=4795s) I have a Triumph Speed 4 orange uh and black now. Okay, cool. Get a Rocket 3. After that, you can't drive any other motorcycle. [laughter] Do you like the Harley Bing Fairing or
+
+### Viewer question at [1:20:10](https://www.youtube.com/watch?v=iWP047x7w2g&t=4810s): do you like the Harley batwing faring or the shark nose better?
 
 [1:20:10](https://www.youtube.com/watch?v=iWP047x7w2g&t=4810s) Viewer question (read aloud): "do you like the Harley batwing faring or the shark nose better?"
 
@@ -394,6 +460,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:22:37](https://www.youtube.com/watch?v=iWP047x7w2g&t=4957s) [gasps] Big Steve competing in a high
 
+### Viewer question at [1:22:37](https://www.youtube.com/watch?v=iWP047x7w2g&t=4957s): Big Steve! Competing in high level BJJ tournament in April. Added var to my TRT, will add Cardarine 7 weeks out as we...
+
 [1:22:37](https://www.youtube.com/watch?v=iWP047x7w2g&t=4957s) Viewer question (read aloud): "Big Steve! Competing in high level BJJ tournament in April. Added var to my TRT, will add Cardarine 7 weeks out as well. What your educated guess on taking Anadrol or Halo pre contest?"
 
 [1:22:38](https://www.youtube.com/watch?v=iWP047x7w2g&t=4958s) level Brazilian jiu-jitsu tournament in April. Added var to my TRT plus. Uh we'll add Carter in seven weeks out of 12. What's your educated guess on taking an or halo pre-contest? So, I discussed this in the um uh MMA drug stack video that you shouldn't run halo testin or anything really besides maybe trinabol even though that might make you cramp but it also makes it easier to do a weight cut for a weight class because uh trinabol is a aldoststerone synthesis inhibitor lowers aldoststerone levels and as long as you keep your sodium up it's very easy to manipulate your water uh weight and your body weight that way. uh you don't cramp obviously but anoradol and halot testine they might lower lower your stamina so I would stick to TRT and look into myionostal tri phosphate emoxifene uh TPP is for stamina obviously or EPO uh I'm assuming you're not getting drug tested because you're considering all these drugs so let's leave that off the table uh ITP I have a video on that and I'm sure you can piece it together based on the uh endurance deep dive where I discuss ariththropoetic compounds. Um and this mosquito dude, you. Where'd you come from? Uh cardarine is a good idea.
@@ -404,11 +472,15 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:25:08](https://www.youtube.com/watch?v=iWP047x7w2g&t=5108s) Steve, have you tried redder during a
 
+### Viewer question at [1:25:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=5109s): Steve have you tried Reta during bulk?
+
 [1:25:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=5109s) Viewer question (read aloud): "Steve have you tried Reta during bulk?"
 
 [1:25:10](https://www.youtube.com/watch?v=iWP047x7w2g&t=5110s) bulk? Uh no. No, but I heard good response at 1 milligram per week, half a milligram twice per week or half a milligram per week. Takes away the food noise, improves diet adherence, might improve insulin sensitivity, but I still think that the insulin sensitivity from GLP1 is coming from caloric restriction and not actually from the drug itself. Um, so yeah, if you're bulking then uh you're in a caloric surplus, even if it's 100 uh calories more, right, it might lower insulin sensitivity. But if you train good, you take your carnitine and you take your GHS before bed and maybe take a little bit insulin to control blood glucose levels at certain periods of time, particularly post-workout with rather tight. I think that's fine, man. [snorts] I think that's fine. Uh, hey Steve. Four weeks into my first
 
 ## This Is NOT How To Design A Cycle
+
+### Viewer question at [1:26:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=5165s): Hey Steve. 4 weeks into my first cycle, 30mg Anavar Daily. 200mg Test E every Monday and Thursday (400mg weekly). It'...
 
 [1:26:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=5165s) Viewer question (read aloud): "Hey Steve. 4 weeks into my first cycle, 30mg Anavar Daily. 200mg Test E every Monday and Thursday (400mg weekly). It's my first bulk, I'm struggling with not binging, gained 7kg. Low dose GLP to help?"
 
@@ -444,6 +516,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:35:58](https://www.youtube.com/watch?v=iWP047x7w2g&t=5758s) How would you program in a mini cut?
 
+### Viewer question at [1:35:58](https://www.youtube.com/watch?v=iWP047x7w2g&t=5758s): How would you program in a mini cuts? Obviously, depending on how quickly you’re putting on body fat but how long wou...
+
 [1:35:58](https://www.youtube.com/watch?v=iWP047x7w2g&t=5758s) Viewer question (read aloud): "How would you program in a mini cuts? Obviously, depending on how quickly you’re putting on body fat but how long would you cut for one month two months?"
 
 [1:35:59](https://www.youtube.com/watch?v=iWP047x7w2g&t=5759s) Obviously, depending on how quickly you're putting on body fat and how long would you cut for a month or two? Uh, a mini cut is one week, maybe two weeks, and then you cut your carbohydrates in half. That's enough to deplete you, enough to restore insulin sensitivity and um enough to drop your fasting insulin levels to normal to like 2.5 to five millos per milliliter. So, one week. Now, if you want to do a mini cut to lose fat, I don't think that's a good idea because you need to sustain your growth phase with a good amount of calories to keep making progress and solidify that muscle tissue. Right? In the offseason, you might think that you're big, but then you do a mini cut and you lose some fullness. You're like, "Oh man, I'm actually not as big and as strong as I thought I was. I need to up the food again to make sure that I keep making progress." So doing a two-month bulk and then a one month cut, you end up nowhere unless you take a boatload of jerks, uh, which is unhealthy. So I would rather do like 6 months to nine months offseason and then do mini cuts sporadically. Maybe every two months, one week you do a mini cut. So you do, uh, 8 to nine weeks uh, off season, one week mini cuts, maybe two weeks, and eight eight to nine uh weeks off season, one or two week mini cut, etc., etc., etc. And then uh you should end up reasonably lean but full as a house and huge as And then you can cut for 3 months, four months to get shredded. But yeah, this this uh you know flip-flopping. Yeah.
@@ -454,6 +528,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:37:36](https://www.youtube.com/watch?v=iWP047x7w2g&t=5856s) Uh, take a bill to a Harley dealer. What's the worst dealer? [laughter] Harley dealers, dude. [laughter] [sighs and gasps] They're really proud people. Anyway, people with a Harley are very proud people. And of course, if you got a modified V-Rod or a Fat Boy, I mean, it's a nice bike to drive, dude. But it's uh I don't know. The longer I look at Harley's, the less excited I get. Yeah, there was I was driving on my Rocket 3 and there was a group of Harley's so I'm nice. I said, "Hey, can I pass?" You know, and they're like, "Yeah, signal the front guy and okay, he can pass." And then I hard and fast. You see all these guys look with sour faces because they can't keep up. [laughter] I'm sorry that I'm going 160 km/h in second gear, bro.
 
+### Viewer question at [1:38:38](https://www.youtube.com/watch?v=iWP047x7w2g&t=5918s): hey shifu steve, is it possible to buy gear n peptides in bangkok then hand carry in flight to singapore? will custom...
+
 [1:38:38](https://www.youtube.com/watch?v=iWP047x7w2g&t=5918s) Viewer question (read aloud): "hey shifu steve, is it possible to buy gear n peptides in bangkok then hand carry in flight to singapore? will customs seize my stuff?"
 
 [1:38:41](https://www.youtube.com/watch?v=iWP047x7w2g&t=5921s) [laughter] It's not my It's not my fault. It's UK engineering. Those guys get it. Uh Cu Steve, is it possible to buy gear and peptides in Bangkok? I don't know, dude. I don't know. You take the risk.
@@ -461,6 +537,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 ## Thoughts On Buell Super Cruiser
 
 [1:39:02](https://www.youtube.com/watch?v=iWP047x7w2g&t=5942s) Speaking of Bu, have you seen Super Cruiser? Uh, I thought Bu stopped. Didn't they stop? Oh, no. I guess not. Super Cruiser. Uh, too narrow for me. Looks good though. Looks good. 175 horsepower. Really? I don't know. I got my eyes on a Ducatti V4. Uh XDvel V4. If they ever get back to me. Probably not after watching this. Like, this guy. You want to close the deal or what? You have the easiest customer ever. Just let me test drive it for five minutes and I'll I'll transfer the full monty. No uh no financing like all these guys here. Yeah, I'm going to do financing and pay for my bike in three years. Get the out of here, man. I work hard. I can pay cash. Uh, let's see. If you had to do it again,
+
+### Viewer question at [1:40:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=6005s): If you had to do it again, would you have started gear earlier or would you have stayed natural for longer?
 
 [1:40:05](https://www.youtube.com/watch?v=iWP047x7w2g&t=6005s) Viewer question (read aloud): "If you had to do it again, would you have started gear earlier or would you have stayed natural for longer?"
 
@@ -476,6 +554,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:41:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=6090s) 42-year-old male, Natty, 20 to 14% body
 
+### Viewer question at [1:41:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=6090s): 42M natty, 20→14% BF in 6mo on Tirz. Lp(a) 0.40, LDL 3.65, TC 6.23. Is this transient lipid dump from fat loss or do ...
+
 [1:41:30](https://www.youtube.com/watch?v=iWP047x7w2g&t=6090s) Viewer question (read aloud): "42M natty, 20→14% BF in 6mo on Tirz. Lp(a) 0.40, LDL 3.65, TC 6.23. Is this transient lipid dump from fat loss or do I need statin as could be CVD risk? Already on plant sterols+omega-3."
 
 [1:41:33](https://www.youtube.com/watch?v=iWP047x7w2g&t=6093s) fat in 6 months on jeeperide lipoprotein A. Uh, I don't know off the top of my head these concentrations, bro. Is this transient lipid dump from fat loss or do I need a statin as I could be a cardiovascular disease risk area or plant steriles and omega-3 triglycerides is this nanomles per guys include the reference range right I don't know this these British reference ranges off the top of my head so if if you feel that it's high uh cardiovascular disease is not only caused by high lipids I mean triglycerides if they're elevated obviously it's not good either Um but inflammatory markers play a role. High sensitivity C reactive protein you need to test. You need to check your serum calcium levels because if your inflam inflammation is high then you damage the inside of the arteries with C reactive protein. Looks like a donut but it's apparently sharp. Damages the insides of your arteries. If you drink a lot of alcohol damages the inside of your arteries. Um, if you ever used an alcohol wipe, yeah, you put it on your skin and you feel it and it it feels rough and and the lubrication is gone basically. So, the alcohol removes the lubrication. The elevated C reactive protein creates arterial damage. Then the LDL if it's high, you have more potential for LDL foam cells which can get stuck in the damaged arteries. And then if your uh serum acidity is off then um then the calcium is elevated and it can get stuck in the LDL foam cells which are stuck to your arteries creating plaque buildup over time. So just because your lipids are elevated doesn't mean you're at cardiovascular disease risk. If your lipids are elevated with high sensitivity C reactive protein and high calcium and a poor lifestyle then yes I would be worried.
@@ -490,6 +570,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:46:07](https://www.youtube.com/watch?v=iWP047x7w2g&t=6367s) Uh, which steroid and pets would you say
 
+### Viewer question at [1:46:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=6369s): Which AAS and Peds would you say are the most mild on skin aging? D
+
 [1:46:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=6369s) Viewer question (read aloud): "Which AAS and Peds would you say are the most mild on skin aging? D"
 
 [1:46:09](https://www.youtube.com/watch?v=iWP047x7w2g&t=6369s) are the best are the most mild on skin aging? Well, all steroids increase oxidative stress and that ages the skin. So, if you if you I have the Benjamin Button stack, give that video a watch. Uh, it's basically TRT loss, GH, glutathione, GSK, copper, and that kind of stuff. And for that you should look pretty good. I mean, but eating healthy and just staying away from sunlight and not smoking too many cigars and not drinking alcohol is the worst for your skin. So I I barely drink. When I do drink, it's a lot. [laughter] Actually, it's not true. When I went to Kosamu, I had like because I rented a car, so I had to drive. So one time I had um a shot of Jäger Meister. Felt like it nice and cold. And then one time I had a beer, but I was already home. So the shot of Jagger Meister, I drove home. It's fine. It's one one one portion. And um and then the other time I had a beer with a cigar and the beer was like, "Ah, I like hard liquor. I'm not really fond of beer anymore and wine. Wine wine I can still tolerate." But yeah, alcohol is the worst for your skin. Keep your antioxidants high and your omega-3 is high and then you should be okay, you know? then you should be okay and then reduce the dose limit the dose of the drug you're using I think the only thing that's really good PD wise for your skin is GSK copper growth hormone and injectable glutathione and the rest probably detract or doesn't contribute anything and I'm using injectable glutathon I'm not I'm not taking any GH now I'm just I don't want to bloated face anymore I'm sick of it just g copper too much post injection ction pain. Injectable glutathione take three times a week. 600 milligrams seems to work well. You know, [snorts] no blemishes, not too bad. You a little pimple here in the nose. I had to pop it here when I popped it, but it came back. Goddamn cheesecake I had with back with a vengeance. It's a souvenir from Cheesecake here. [laughter] [gasps]
@@ -498,6 +580,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:48:22](https://www.youtube.com/watch?v=iWP047x7w2g&t=6502s) H just a quick one. What's the consensus
 
+### Viewer question at [1:48:23](https://www.youtube.com/watch?v=iWP047x7w2g&t=6503s): Hey just a quick one What’s the consensus on collagen synthesis and cross linking when it comes to other anabolics li...
+
 [1:48:23](https://www.youtube.com/watch?v=iWP047x7w2g&t=6503s) Viewer question (read aloud): "Hey just a quick one What’s the consensus on collagen synthesis and cross linking when it comes to other anabolics like eq or primo as so many internet myths saying they increase it. Kind regards"
 
 [1:48:24](https://www.youtube.com/watch?v=iWP047x7w2g&t=6504s) on collagen synthesis and cross-linking when it comes to other anabolics like EQ and primo and so many internet myths saying it they increase it kind regards uh it's been a while since I read that in scientific evidence so I'm not sure yeah sorry I I'm I'm not sure I remember re I don't think I read anything regarding collagen synthesis when I did the primo studies um pre primo deep dive um EQ. I can't remember, man. But you could probably piece it together with an easy gro or perplexity search. You just summarize all scientific evidence regarding EQ on its effect on collagen synthesis. And for primo, for anavar for anavar, it's well documented obviously, but for EQ and primo, I'm not sure. And EQ is only animal models, not really human studies. Not many in any case. uh Nanderlone promoted a little bit of collagen synthesis. Testosterone had a negative effect on collagen synthesis, but those studies are kind of old and not that conclusive. And Anavar is the best for collagen synthesis. That's why I included Anavar in the post surgery uh recovery stack or post injury recovery stack and just TRT to keep you going because well anavar high dose will probably shut you down.
@@ -505,6 +589,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 ## Cosmetic Differences Between EQ, Mast & Primo
 
 [1:49:44](https://www.youtube.com/watch?v=iWP047x7w2g&t=6584s) What's it called? Differences between
+
+### Viewer question at [1:49:45](https://www.youtube.com/watch?v=iWP047x7w2g&t=6585s): What’s the cosmetic difference between EQ MAST AND PRIMO
 
 [1:49:45](https://www.youtube.com/watch?v=iWP047x7w2g&t=6585s) Viewer question (read aloud): "What’s the cosmetic difference between EQ MAST AND PRIMO"
 
@@ -522,6 +608,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 [1:52:41](https://www.youtube.com/watch?v=iWP047x7w2g&t=6761s) Uh I've seen people saying
 
+### Viewer question at [1:52:42](https://www.youtube.com/watch?v=iWP047x7w2g&t=6762s): I’ve seen people saying supraphysiological levels of testosterone are deleterious to collagen synthesis Is there any ...
+
 [1:52:42](https://www.youtube.com/watch?v=iWP047x7w2g&t=6762s) Viewer question (read aloud): "I’ve seen people saying supraphysiological levels of testosterone are deleterious to collagen synthesis Is there any truth to this or is it another internet over exaggeration :)"
 
 [1:52:43](https://www.youtube.com/watch?v=iWP047x7w2g&t=6763s) superfological levels of testosterone delterious to collagen synthesis. Is there any truth to that? Yes. So I heard that that testosterone might have a negative effect on collagen synthesis. That's why uh but those studies are old. So it it um it might be best to stack testosterone with other compounds, but I've I've done high testosterone cycles and had no connective issue or issues with connective tissue. Uh whereas if I go highdose master for example or or uh tremble or winstrol obviously yeah then my connective tissue is a little bit compromised. Now it's been a while since I did a highdose test cycle. So maybe the next cycle I do is just high dose test to stay uh somewhat healthy. Uh but I did like that last cycle that I did where I dieted on 600 test, 600 EQ, 150 men and 150 trend. But I'll save the trend for the end. Um not do like 6 weeks on, 6 weeks off, then 6 weeks on again is a little bit too much.
@@ -530,6 +618,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 
 ## Can You Be Dry While Cutting On Nandrolone?
 
+### Viewer question at [1:54:22](https://www.youtube.com/watch?v=iWP047x7w2g&t=6862s): How can you be dry on npp/deca and use it during a cut?
+
 [1:54:22](https://www.youtube.com/watch?v=iWP047x7w2g&t=6862s) Viewer question (read aloud): "How can you be dry on npp/deca and use it during a cut?"
 
 [1:54:23](https://www.youtube.com/watch?v=iWP047x7w2g&t=6863s) and use during a cut? Uh I wasn't dry, but cutting is based on a chloric deficit. I just wanted to keep Deca in for joint lubrication, which I'm very happy I did cuz now my joints don't feel so good. But they felt a lot better on Deca 600 milligrams. And I was able to train hard. I'm getting old, man. It's been 27 years in the gym kicking ass and chewing bubble gum. And it was a whole lot of gum. Um, so it it's for me it's just time to uh put some protective measures in place. And uh in the morning I look good, you know. Uh abs were good, detail was good, and uh some glutes, and now it's better obviously because I took all that out. And in the evening, I look bloated. You could see from the the Q&As's uh and the the shorts that I post on Instagram, right, that there was bloated as because they're like from November or something. We're a little bit behind. I'm posting shorts, but there's so many good shorts from these Q&A. I told my editor, "Just make as many as you can." and then he ends up with like 20 shorts per per Q&A. So, we're just uh recycling those.
@@ -537,6 +627,8 @@ url: https://www.youtube.com/watch?v=iWP047x7w2g
 [1:55:31](https://www.youtube.com/watch?v=iWP047x7w2g&t=6931s) But you can see a clear difference. Like I'm a little bit leaner in the face in the at the end of the day. It's 2:00 in the morning here, 2 hours before my bedtime or is usually where you are the most bloated. And uh two months ago in November, I was way more bloated, but that's when I was on a boatload of uh juice as well. And now I'm just tearing, bro. Today I was in the gym and my face looked a little bit emaciated. Looked a little bit like this. I mean, it's been five meals and a lot of sodium, so give me a break. But yeah, I looked maybe I should take a picture. I felt I looked in the mirror like it's uh mewing community, looks maxing community. [laughter] Felt pretty lean. Felt pretty sexy. Might delete later. Hey Steve, no question. This week it's my 29th birthday. se celebrated it with my brother. Went to a good steak dinner and smoked the cigar. Have a blessed weekend. Congratulations, bro. And happy birthday. Um, smoking a cigar and having a good steak dinner with your bro.
 
 [1:56:32](https://www.youtube.com/watch?v=iWP047x7w2g&t=6992s) That's the best thing ever. Yeah. Yeah. Sounds good. Sounds like you had a great birthday. Uh, let's see. Anything else? My kids were drool monsters when
+
+### Viewer question at [1:56:45](https://www.youtube.com/watch?v=iWP047x7w2g&t=7005s): My kids were Drool monsters when teething. Yall have an amber necklace for her ? Supposed to help...
 
 [1:56:45](https://www.youtube.com/watch?v=iWP047x7w2g&t=7005s) Viewer question (read aloud): "My kids were Drool monsters when teething. Yall have an amber necklace for her ? Supposed to help..."
 

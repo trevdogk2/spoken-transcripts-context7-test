@@ -40,6 +40,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 ## How To Adjust Calories During A Cut & Bulk
 
+### Viewer question at [11:51](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=711s): Finishing bulking. 17% bf. Going cruise. The next phase should cut to 10%? Then immediately go to the bulking phase o...
+
 [11:51](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=711s) Viewer question (read aloud): "Finishing bulking. 17% bf. Going cruise. The next phase should cut to 10%? Then immediately go to the bulking phase of 24 weeks?"
 
 [11:51](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=711s) Finishing bulking 70% going on a cruise next phase should be done to 10% then immediately go to a bulking phase for 24 weeks. I would just make small caloric adjustments man. Slowly go down slowly go up. So you don't overshoot. I 10% adjustments. But it depends on to you. If you if you want to going on a cruise now and then cut during the cruise you'll lose some size. I expect to lose a good amount of size and strength while I keep dieting. Even though I take all the steroids out and the fat burns out it doesn't mean the diet has to be over. Like I do want to be lean when I go to America. I mean this face is really full of fat as [ __ ] But all of this is like shredded bro. All right. It's I got to have the face shredded also. So I would just do it like this. You know slowly come down hold it there for a while and then slowly go up. So you don't go crash diet and then [ __ ] I'm so hungry and then 6,000 calories and you get morbidly obese and snoring and you know sweating profusely and and swearing walking upstairs. So nice and slow man.
@@ -47,6 +49,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 [12:57](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=777s) 10% caloric adjustments.
 
 ## Anavar For Women - 2.5mg ED Vs. 5m EOD
+
+### Viewer question at [12:59](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=779s): Wife wants to start using Avar. I have 10mg pills. If we cut them in half, would 5mg every other day be as safe and e...
 
 [12:59](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=779s) Viewer question (read aloud): "Wife wants to start using Avar. I have 10mg pills. If we cut them in half, would 5mg every other day be as safe and effect as 2.5mg every day ?"
 
@@ -58,6 +62,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [14:18](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=858s) Steve how has life in Pattaya changed
 
+### Viewer question at [14:19](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=859s): Steve how has life in Pattaya changed over the past 5 years?
+
 [14:19](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=859s) Viewer question (read aloud): "Steve how has life in Pattaya changed over the past 5 years?"
 
 [14:20](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=860s) over the past 5 years? I've barely been there man. But [snorts] it's full of Indians now. And it's less reason to go. >> [laughter] >> I'm not a fan. You know Russians are okay. You know Europeans are okay. British people drunk. Australians drunk. It's all fine but the Indians I I I have no interest in going there anymore. >> [sighs and gasps] >> So until the Indians get properly molested and abused and scammed and and and bullied out and they're gone then I wouldn't go to Pattaya. And if you go to Jomtien down a little bit south of Pattaya there still great gyms still great places to eat too expensive for the Indians. They don't go there. They're only around Walking Street and some of the places that cater to Indians. I mean it's third world country they're dead broke. They don't have so much money to go to the Castello di the Castello di Bellagio or Muscle Factory or all these other places that are a little bit more pricey. They don't have money for that unless they're you know well off and then they're probably not the Indians that you have to worry about.
@@ -67,6 +73,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 [16:38](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=998s) And I'm sure you're embracing the fluff now and you're like yeah it's finally working because you let go of your appearance. Let's see. Travis switch from a cut to a
 
 ## Best Compounds To Use During A Bulk
+
+### Viewer question at [16:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1006s): switch from cut to bulk. Been on mots c nad+,slu for 16 weeks. Gonna run primo and test. Increase calories.What compo...
 
 [16:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1006s) Viewer question (read aloud): "switch from cut to bulk. Been on mots c nad+,slu for 16 weeks. Gonna run primo and test. Increase calories.What compounds, or pepties would you run with primo and tear for size and energy daddy"
 
@@ -78,6 +86,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [17:53](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1073s) 300 test 150 primo added 70 tren and
 
+### Viewer question at [17:53](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1073s): 300 test 250 primo, added 70 tren and cpulsnt stop eating. 6.5 Reta for the last 6 months. I dont think its doing it ...
+
 [17:53](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1073s) Viewer question (read aloud): "300 test 250 primo, added 70 tren and cpulsnt stop eating. 6.5 Reta for the last 6 months. I dont think its doing it anymore. Tirz? Or up the reta?"
 
 [17:57](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1077s) can't stop eating. 6.5 milligrams Retatide for the last 6 months. I don't think it's doing it anymore Tirzepatide or up the Retatide. So yeah I noticed that on tren too that it did you just get more hungry. But I also noticed that on high dose SLU and and anything that boosts metabolism whether that's trenbolone or clenbuterol or SLU or Mots-c or SS-31 or thyroid hormones, right? Anything that helps with fat loss in one way or another boosts metabolism and that could stimulate your appetite well beyond what the Retatide or Tirzepatide can suppress. Now of course 6 months on 6 and a half 7 milligrams Retatide per week you might build up a little bit of tolerance. You can go to 12 milligrams if you want to or 10 up to you. I switched to Tirzepatide. I started with 4 milligrams Tirzepatide. I remember watching the my own video for [ __ ] sake. I watched my own video about Retatide. And then the conversion of Retatide to Tirzepatide is is not two to one but it's like anywhere between two to one to one to one.
@@ -85,6 +95,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 [19:04](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1144s) And then I increased that a little bit more. So that was like from 3.2 from 7 milligrams Tirzepatide no 7 milligrams Retatide to about 3 and a half milligrams 3.2 milligrams Tirzepatide based on the clinical evidence and and the the differences, right? Or the same results but comparing milligram for milligram dosages and then I bumped it up a little bit to get additional appetite suppression. So right now I'm running Tirzepatide Monday Wednesday no sorry Mon- Monday Tuesday Thursday Friday and I'm getting better appetite suppression than on 7 milligrams Retatide. At one point or another I'll probably get used to the Tirzepatide 4 milligrams and then I go to five. Then I do it Monday Tuesday Thursday Friday Saturday every workout day. And then if I get used to that, I'll probably go to tirzepatide five six times a week, right? Or six to seven times a week. So, you you could increase to 10 mg retatutide if you prefer to have the glucagon receptor agonism, right? And help with fat loss that way.
 
 [20:06](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1206s) But, um I feel that a retatutide at one point is just not enough appetite suppression and then you need something more potent like tirzepatide. Or or combine retatutide with cagrilintide, but a lot of people say that it's either too powerful or it just makes them very lethargic. Um so, I I did half a milligram cagrilintide three times a week and it made me so lethargic that I just wanted to eat more even though I physically couldn't eat more, but I still did cuz the energy had to come from somewhere. And I just felt like spaghetti, so I was like, "You know what? I'm going to eat more because this diet is kicking my ass and I it's going to take a while for the reta and the cagrilintide to metabolize anyway, so I I gave it a week. And then after a while, I was like, "You know what? I'm just taking the cagrilintide out." And then 2 weeks later, I was fine again. So, you know? You know, hope you stocked up, bro. Cuz these things are going to be more
+
+### Viewer question at [21:00](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1260s): Going on a five day cruise this Friday with a bunch of fellow bikini competitors. Suggestions on supplements peptides...
 
 [21:00](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1260s) Viewer question (read aloud): "Going on a five day cruise this Friday with a bunch of fellow bikini competitors. Suggestions on supplements peptides other things to help counter the extra food/alcohol or should I just say f-it?"
 
@@ -97,6 +109,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 [22:07](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1327s) That's a lot of That's That's That's not good. That I I misbehaved for Christmas for 2 days and then New Year's had a little bit of a refeed. Uh rice and eggs with some ketchup. Whoopty [ __ ] do. And then today, I had a normal ketogenic day. And then tomorrow, I'll eat some Thai food, so it's not the end of the world. And that's why I look so flat all the time. Not enough carbs and saturated fats. Need some saturated fats for fullness, bro. Boom boom boom. So, but if if I were you, if I just finished Christmas and Thanksgiving and New Year, and I I controlled myself reasonably, but I got a little bit sloppy, what's another 5 days, man? Enjoy yourself. Get plastered. Eat foods. Control it with tirzepatide or retatutide. You know, prioritize the healthy food first and then finish it off with cheesecake. Why would you fill your stomach up with potatoes and rice when you can have the carbohydrates from cheesecake? And and the good thing with about cheesecake is that it has so much fat that it slows down the digestion of the carbs.
 
 [23:10](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1390s) >> [laughter] >> Um uh senna tea, uh garcinia, uh garcinia cambogia, xenical, you know, the the the What is it? What is it? There's There's one product that's um that Gorilla Mind sells. I forgot the name of it. But it it kind of creates a gel in your stomach making you feel full, so if you combine that with retatutide or tirzepatide, you take a couple of those capsules kind of filling up your stomach and then you eat some food, then you're really really full. But it also sucks if you're on holiday, you feel super full and then you're on the cruise on the deck, you know, trying to get a tan on and then your stomach looks more pregnant than my wife was, but you're not pregnant. You're just pregnant with uh bloating and gas and and weird kinds of substances to make you feel full. So, personally, I would um bring the senna tea, garcinia cambogia, xenical, tirzepatide, and just eat uh according to my heart's desires, which is usually a lot. And then you just you know, fix it later on.
+
+### Viewer question at [24:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1464s): Try adding in some CAG ?
 
 [24:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1464s) Viewer question (read aloud): "Try adding in some CAG ?"
 
@@ -114,11 +128,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [27:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1651s) Hey Steve, got the motivator today from
 
+### Viewer question at [27:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1651s): hey Steve, I've got the motivator today from MA. NAD+, TMG, CDP Choline, NALT, L-Arginine, ATP, AMP, in 20ml vial. wh...
+
 [27:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1651s) Viewer question (read aloud): "hey Steve, I've got the motivator today from MA. NAD+, TMG, CDP Choline, NALT, L-Arginine, ATP, AMP, in 20ml vial. whats a good starter dose for a newbie? im alittle scared of it"
 
 [27:32](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1652s) Modern Aminos with Energy Plus, trimethylglycine, CDP choline, and L-T L-arginine and adenosine phosphate and adenosine monophosphate into 20 ml vials. What's a good start dose for a newbie? A little scared of it. I would start with a half a cc subq. See how you respond. And then go to a half a cc split bilaterally, 0.25 ml into the chest or or whatever main muscle group you're going to work that day. And then slowly start ramping it up, right? I I increased it to 1 ml per side, but I got boobas and I have a lot of experience. And again, you know, the MPATP blend can drop your blood pressure quite a bit. So, if you're on telmisartan or Cialis or nebivolol or blah blah blah blah blah or a combination thereof, then make sure you keep track of your blood pressure after those first couple of injections to make sure your blood pressure doesn't drop too much or or take like 1 g 2 g of sodium pre-workout to help with blood volume. So, even though you dilate your arteries, your blood volume is sufficiently high enough to combat the blood pressure reduction. And the sodium that you lose during the workout is approximately 1 to 2 g, maybe more. All right, depending on how much you sweat.
 
 [28:42](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1722s) So, that compensates it, too. I always take sodium pre-workout, but I take sodium all day. Like I'm not a salty guy, so I need to supplement with salt unlike some other educators, super salty. So, they they, you know, recommend low salt diets. >> [laughter] >> That's It's a personality trait, not a dietary advice. Yeah, I take about 1 g of sodium per meal, but I'm a sweaty bastard. You know, 5 g of sodium per day gives me nice and full. Look at these cannons, bro. Oh. Fat free. I wish my stomach was fat free, too.
+
+### Viewer question at [29:18](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1758s): ED on TRT even with Cialis but Bloods look good on paper. Healthy lifestlye On 120mg of test MWF. Labs. Test 1067, Te...
 
 [29:18](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1758s) Viewer question (read aloud): "ED on TRT even with Cialis but Bloods look good on paper. Healthy lifestlye On 120mg of test MWF. Labs. Test 1067, Test Free 30, SHBG 5, e2 sens 29, prolactin 10, iron 294, iron 61, ferratin 98. Help"
 
@@ -148,11 +166,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [35:54](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2154s) Uh happy New Year, Emperor Steve. I
 
+### Viewer question at [35:54](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2154s): Happy NE, Emperor Steve! I've finally decided to man up and move to Bangkok this year. I'll begin with a quick stay o...
+
 [35:54](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2154s) Viewer question (read aloud): "Happy NE, Emperor Steve! I've finally decided to man up and move to Bangkok this year. I'll begin with a quick stay of 3 months and see how it goes!"
 
 [35:56](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2156s) finally decided to man up and move to Bangkok this year. I'll begin with a quick stay of 3 months and see how it goes. All right, good, man. Welcome to the furniture. I'll see you at the Muscle Factory, that's where everybody eventually pops in and make sure you have enough money and don't be like most guys with They come here for 3 months and then they party. Um come here, keep working, settle down. Uh don't settle down with a girl right away. Yeah, she's different. No, she's not. She's just another Thai girl after your money. You need some experience before you settle down. So, I I settled down after 10 years. And I settled down good, better than most. I'm happily married for 10 years now. So, I took my sweet time. Uh and you don't have a sweet time of 3 months. So, have a lot of sex, but don't settle down. Yeah, she's different. No, no, no, no, no. No.
 
 ## Cheesecake Factory Hasn’t Been Digesting Well
+
+### Viewer question at [36:44](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2204s): Cheesecake Fund. Thanks Steve for all you do for the community! My physique thank you
 
 [36:44](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2204s) Viewer question (read aloud): "Cheesecake Fund. Thanks Steve for all you do for the community! My physique thank you"
 
@@ -170,6 +192,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [40:30](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2430s) Do you think semaglutide is better bang
 
+### Viewer question at [40:30](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2430s): Do you think Semaglutide is better bang for buck than Reta? say if same price and mg vial. Thoughts? hmm thank you Ma...
+
 [40:30](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2430s) Viewer question (read aloud): "Do you think Semaglutide is better bang for buck than Reta? say if same price and mg vial. Thoughts? hmm thank you Master Steve"
 
 [40:32](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2432s) for your buck than retatrutide? From appetite suppression perspective, yes. Same the price and the milligram vial. Uh yeah, so milligram for milligram semaglutide, tirzepatide, liraglutide, dulaglutide even, they all offer more appetite suppression milligram for milligram compared to retatrutide, but retatrutide is unmatched when it comes to fat loss because it got the GIP plus the glucagon receptor agonism and that actually helps with fat mobilization, fat release and and thus fat loss from adipose tissue. So, tirzepatide obviously has GIP so you get a little bit of fat mobilization in and out of the fat cells, keep that in mind. So, if you eat too much fat, fat goes into the fat cells, stores it easier. But if you reduce your calories and you take lipolytic agents like clenbuterol, growth hormone, uh ephedrine, yohimbine, rauwolscine, mirabegron, etc. etc. etc. If you combine a lipolytic agent with either tirzepatide or retatrutide from the GIP, the glucagon insulin No, the glucose dependent insulinotropic polypeptide uh receptor agonism or glucagon receptor or both in the case of retatrutide, you get fat release from adipose tissue unlike with semaglutide, liraglutide, dulaglutide or exenatide which only activate the GLP-1 uh which just blunt appetite, allowing you to control your diet and thus you get into a caloric deficit, allowing for fat loss. But actual fat mobilization and speeding up fat loss, that's only with tirzepatide and retatrutide.
@@ -180,11 +204,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [42:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2544s) All right, good morning Steve from Las
 
+### Viewer question at [42:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2544s): Good Morning Steve From Las Vegas, I know you discussed, getting off Modafinil & prefer Fluvoxamine now What's your F...
+
 [42:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2544s) Viewer question (read aloud): "Good Morning Steve From Las Vegas, I know you discussed, getting off Modafinil & prefer Fluvoxamine now What's your Fluvoxamine stack/dose & protocol look like today/now? Anything new learnt recently?"
 
 [42:25](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2545s) Vegas. I know you discussed getting off modafinil and prefer fluvoxamine now. What your fluvoxamine stack dose protocol looks like today now? Anything you learned recently? No, I haven't really looked into much of fluvoxamine after I did a deep dive on methylene blue obviously. So, I take 10 mg of methylene blue upon waking like five, six, sometimes seven times a week. And then I take 50 mg of fluvoxamine in the evening and that keeps me nicely balanced unless I take tren. >> [laughter] >> Or unless I'm driving. I either train or driving. But the rest of the time I'm nicely balanced. So, I I was on modafinil for years. That was the best dopaminergic and serotonergic compound with a nootropic and and focus benefits that I could find. I took 50 mg of modafinil daily for years and then I stopped. Um I combined modafinil with fluvoxamine up until 100 mg of 50 mg modafinil in the morning and 100 mg of fluvoxamine in the evening. No serotonergic serotonergic side effects. Focused, happy-go-lucky, productive, etc.
 
 [43:29](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2609s) Then I discontinued the fluvoxamine and modafinil because there was either negative scientific evidence regarding fertility or no scientific evidence regarding fertility. And whether it's negative or no scientific evidence, then I'd rather not take it because I had a bigger goal to get my wife pregnant which, you know, we were able to do after a year coming off all this [ __ ] And then I reintroduced 50 mg of modafinil and it just gave me a headache. And then didn't take it for a while, took 50 mg of modafinil again, gave me a headache too. So, I gave it all away. And now I run 10 mg of methylene blue and in the morning which acts as a MAOI inhibitor. That's prevents the breakdown of serotonin and dopamine and norepinephrine. And then fluvoxamine is a serotonergic or serotonin selective serotonin reuptake inhibitor. 50 mg in the evening so that's half of what I used to take. I might get half the neurogenesis out of that as well. But um yeah, so that's my stack now. No 5-HTP, no L-tryptophan, no nothing.
+
+### Viewer question at [44:32](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2672s): How much Vitamin C is it ok to take?
 
 [44:32](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2672s) Viewer question (read aloud): "How much Vitamin C is it ok to take?"
 
@@ -193,6 +221,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 ## Does SS-31 Decrease Heart Rate?
 
 [45:16](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2716s) >> Did you ever notice heart rate
+
+### Viewer question at [45:16](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2716s): Did u ever notice HR improvements/decrease on SS31? 5-10mg pre cardio or before sleep would keep my HR 5-10 beats low...
 
 [45:16](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2716s) Viewer question (read aloud): "Did u ever notice HR improvements/decrease on SS31? 5-10mg pre cardio or before sleep would keep my HR 5-10 beats lower than usual. Harder to keep it as elevated during cardio"
 
@@ -203,6 +233,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 [47:22](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2842s) Any advice? I just discussed this uh about stubborn body fat. So, use the timestamps and otherwise watch the stubborn body fat area video uh video cuz I I I just spent 10 minutes on it earlier in this video. So, I'm not going to do it again. All right, I want to be efficient with my time. So, use the timestamps, please. >> [gasps] [cough and clears throat]
 
 ## Best Time To Add YK-11 During A Bulk
+
+### Viewer question at [47:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2867s): Actually I do have a question On a 20 to 25 week test and deca cycle, outside of hitting a plateau, around what week ...
 
 [47:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=2867s) Viewer question (read aloud): "Actually I do have a question On a 20 to 25 week test and deca cycle, outside of hitting a plateau, around what week would you consider adding a short Superdrol run just for fun?"
 
@@ -215,6 +247,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 ## Experience On Running All 19-Nors At Once
 
 [50:25](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3025s) I know you recently ran damn near all of
+
+### Viewer question at [50:27](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3027s): I know you recently ran damn near all of the 19-Nors in your most recent cycle. Did you get a chance to use ment solo...
 
 [50:27](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3027s) Viewer question (read aloud): "I know you recently ran damn near all of the 19-Nors in your most recent cycle. Did you get a chance to use ment solo, how’d you like it? Did you run any dht or eq or just AI’s asking for a friend."
 
@@ -230,6 +264,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [54:13](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3253s) Do you have a guide or video on moving
 
+### Viewer question at [54:14](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3254s): do you have a guide or video on moving from west to Thailand? Would love a step-by-step if you’ve broken it down some...
+
 [54:14](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3254s) Viewer question (read aloud): "do you have a guide or video on moving from west to Thailand? Would love a step-by-step if you’ve broken it down somewhere."
 
 [54:15](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3255s) from the West to Thailand? I do. Actually, I have a blueprint to financial freedom and a couple Thailand videos. Would love a step-by-step if you've broken it down somewhere. Yeah, it's it's in the Thailand videos and the blueprint for financial freedom. So, give those ones a watch and otherwise watch the videos watch the YouTube channels that are specialized in Thailand like Retired Working for You and Keith One. All right, what what was his YouTube channel's name? >> [groaning] [snorts] [sighs] >> I kind of need to clean up my subscriptions. Yeah, Keith One. >> [laughter] >> Adam. He's got a pretty good YouTube channel. And otherwise type in how to move to YouTube or how to move to Thailand, man. It's it's all over the internet. Thailand is getting pretty full though, man. Make sure you adapt. There's too many losers here.
@@ -244,6 +280,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [57:38](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3458s) It's like a deep boiler. I had to [ __ ] puncture it with a draydel. >> [laughter] >> So, processed foods, hygiene, all that stuff, you know, it it sucks, but in your case what you can fix is going to daily subcutaneous micro administrations. And I'm assuming you're doing HCG 500 IUs three times a week and and and using aromatase inhibitor to bring your your estradiol down. Cuz 60 is a little bit too high. I would rather have it 40. Again, check your labs if it's not, you know, a little dash meaning over 1500 nanograms per deciliter because it sounds way too low for the amount of testosterone and it's HCG that you're running. I would expect 2500 to 3000 nanograms per deciliter. And yeah, just basic [ __ ] hygiene, man.
 
+### Viewer question at [58:28](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3508s): Best spot to pin LCarnitine ? Been trying quads and glutes but it’s horrible pip for days
+
 [58:28](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3508s) Viewer question (read aloud): "Best spot to pin LCarnitine ? Been trying quads and glutes but it’s horrible pip for days"
 
 [58:28](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3508s) Best spot to pin oral Trenbolone. Been trying quads and glutes, but it's horrible pip for days. I just do it all subQ. >> [snorts] >> I do it with subQ in my glutes. Kind of rotate it around. I don't do it intramuscularly. There's no need.
@@ -252,11 +290,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [58:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3526s) Hey, bro. Any alternatives to achieve
 
+### Viewer question at [58:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3526s): Hey bro any alternatives to achieve that primo/masteron look instead of using EQ/DHB? Thanks
+
 [58:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3526s) Viewer question (read aloud): "Hey bro any alternatives to achieve that primo/masteron look instead of using EQ/DHB? Thanks"
 
 [58:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3527s) that Primo Mast look instead of using EQ DHB? Thanks. Eat get leaner. >> [laughter] >> Or you use injectable DHT. I heard it's out there, also. Winstrol, Anavar will give you that look. But just get leaner. Primo Mast just make you look leaner than you really are. Same as Winstrol and Anavar. And EQ and DHB also make you look leaner than you really are because they all manipulate estradiol to a certain extent. But yeah, if you want to look good, I mean, you can look good on test, deca, and and Ment. But you just have to be lean. I look pretty good on that stack, man. In morning I'm like, [ __ ] man, it's good. Imagine if I added in the primo. And then I go through my drawer and see all the primo laying there. I'm like, you know, I'm going to save it for when I'm really lean. And then I'm going to look stellar. I've heard glutathione is good for immune boost. Yeah, antioxidants in general are good for immune boost, but it's it's like if you're sick, it's just preventing further damage, you know? Same as vitamin C. It's just preventing further damage. It's not really boosting your immune system.
 
 [1:00:02](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3602s) That's what uh thymosin alpha 1 does.
+
+### Viewer question at [1:00:03](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3603s): with blood work should i before hoping on glps1s
 
 [1:00:03](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3603s) Viewer question (read aloud): "with blood work should i before hoping on glps1s"
 
@@ -270,6 +312,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:01:04](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3664s) What's the best foundational nootropic,
 
+### Viewer question at [1:01:05](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3665s): What is the best foundational nootropic (e.g., piracetam), and what are your top three overall?
+
 [1:01:05](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3665s) Viewer question (read aloud): "What is the best foundational nootropic (e.g., piracetam), and what are your top three overall?"
 
 [1:01:07](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3667s) uh like piracetam, and what are your top three overall? I like dihexa, noopept, and bromantane. Bromantane was out of stock at Modern Aminos, but they just stocked it, so you can purchase it. I've got it on the way, but you know, with the shipping forwarder here in Thailand, it it takes a couple weeks. Yeah, I really I really like bromantane. I mean, it's basically like a budget Adderall. >> [laughter] >> Um yeah, I like that stuff. Makes me clear and focused, and uh just makes me want to work hard. Same as dihexa and noopept, I just take as needed. Today I take piracetam or phenylpiracetam, I think. It's the one that Modern Aminos has that they just sent me. So, they ran out of bromantane, and then uh Brandon was like, you know what, we ran out of bromantane, but maybe you'll like this. So, I've been running that. I ran out of Gorilla Mode, um what is it, Respawn? I asked for it, but I think they're out of stock themselves. Gorilla My Gorilla My Respawn. Is it back in stock? Yeah, it's in stock. Why the [ __ ] didn't they sell it to me? Send it to me.
@@ -278,17 +322,23 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:03:15](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3795s) Don't ask me for the slides. Don't do it. That's available for the people that were there during the uh the presentation. Uh so, yeah, dihexa, bromantane, and
 
+### Viewer question at [1:03:27](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3807s): Hey coach, can we super chat for your bodyfat analysis with your eyeballs? Dexa says I’m 8% but I definitely +4% higher.
+
 [1:03:27](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3807s) Viewer question (read aloud): "Hey coach, can we super chat for your bodyfat analysis with your eyeballs? Dexa says I’m 8% but I definitely +4% higher."
 
 [1:03:29](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3809s) noopept. That's what I like now. Hey Steve, can we superchat for your body fat analysis with your eyeballs? DEXA say 8%. I'm I'm not going to do um like uh physique checks. I'm not going to do that.
 
 ## How To Dose MOTS-c & NAD
 
+### Viewer question at [1:03:44](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3824s): Cheesecake question Supplement budget choice between 10 mg MOTS-C per week, or 500 mg NAD+ per week, daily injections...
+
 [1:03:44](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3824s) Viewer question (read aloud): "Cheesecake question Supplement budget choice between 10 mg MOTS-C per week, or 500 mg NAD+ per week, daily injections, 55 yo male, 75kg, 8.5% BF, which would you choose, with goal of 85kg, 6% BF"
 
 [1:03:44](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3824s) Cheesecake question. Supplements, uh budget choice between 10 mg MOTS-c per week or 7 mg is enough? 1 mg per day or 500 mg NAD+ per week is also too much. 20 mg NAD+ per day is enough, so that's 140 mg per week. Daily injections, 55-year-old male. I don't know who's advising you, but I they're the same person that's advising you is probably also the person that's selling it. So, 7 mg MOTS-c, 140 mg NAD+ per week, you're welcome. So, you can run both. You can run both. Use my discount code over at Modern Aminos. They sell MOTS-c and NAD+ injectable. Code Vigorous will get you 10% off. You don't need to choose. You can run both uh for the budget of either 10 mg MOTS-c or 500 mg NAD+. So, and at 6% body fat, it's pretty low, man. You'll have no libido. You want You want to gain 10 kilos? You want to gain 12 kilos and lose 2 and 1/2% body fat at 55 years old?
 
 [1:04:51](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3891s) Those are some high aspirations, man. You better get a coach. Those are some really high aspirations. It's almost a 10% body weight increase. Hire a coach. And that coach will tell you that this recommendation or these dosing protocols are way too high, and they will they will agree with what I recommended, or say that Steve's full of [ __ ] and you need steroids and growth hormone and insulin, which is the more likely route. Like MOTS-c and NAD+ is not going to put much muscle on you, man. >> [laughter] >> It's going to make you feel uh good and energetic, but if you want to put on muscle, you're going to need to eat food and take some
+
+### Viewer question at [1:05:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3931s): Hey Steve, I also take Vit C daily but thinking of adding GlyNAC or Glutathione. Is there any additional benefit? I’m...
 
 [1:05:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=3931s) Viewer question (read aloud): "Hey Steve, I also take Vit C daily but thinking of adding GlyNAC or Glutathione. Is there any additional benefit? I’m an ex smoker."
 
@@ -306,6 +356,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:08:23](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4103s) Uh vitamin E, 200 IUs to 400 IUs. You can go with the D-alpha tocopherol version. That seems to be the most potent one. That also helps with liver function and reduce liver enzymes. Uh fiber, obviously, to help detoxify. Calcium D-glucarate to help detoxify. Um And that's pretty much it. And then your lipids will skew, so you can take citrus bergamot, 1,000 mg per day, and amla extract, 1,200 mg per day. Uh and and fish oil, 3,800 3,600 mg per day. And that that will kind of keep everything going, but yeah, you will never have perfect blood work running steroids, or oral steroids particularly. >> [gasps] >> Steve, quick one. Yeah, I knew Zionic
 
+### Viewer question at [1:09:09](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4149s): Steve, quick one. I’m entering week 8, currently on test 500 mg and deca 300 mg. Total test just came back at 1629 ng...
+
 [1:09:09](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4149s) Viewer question (read aloud): "Steve, quick one. I’m entering week 8, currently on test 500 mg and deca 300 mg. Total test just came back at 1629 ng/dL. Coach has me increasing doses starting today. Thoughts on ng/dl level at wk 7?"
 
 [1:09:11](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4151s) you wouldn't keep your uh you wouldn't be able to keep your questions out. So, this is the like the the 400th one already, but let's go. Steve, quick one.
@@ -319,6 +371,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 [1:11:33](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4293s) Um turnaround's like 1 week. And then do a do a high sensitivity high sensitivity test, LC-MS/MS. Um But that that your levels are low. It's very very low. It's like a third of where it should be. Thoughts about trazodone. I know you guys love trazodone, but I have no experience with it. I don't know, man. I have no idea. Yeah, that's what I thought. So, Ionic, no questions. Yeah, but it's good you asked this question because your gear is clearly fake. Been losing with Reddit since July, 335 lb down to 241. Nice, dude. That's like 90 lb. Uh did an advanced um can't believe how fat you were before you took that picture for your profile. >> [laughter] >> Must have looked like [ __ ] That's a 240-lb hottie.
 
 [1:12:36](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4356s) Uh did an advanced lipid blood test recently. LDL was a little high. Cholesterol or a little high at 111. Well, that's not the end of the world. It'll come down. Cholesterol, triglycerides, LDL all normal. Lipoprotein A 23, that's also normal. Apolipoprotein B 100s. Uh Yeah, what was the lipoprotein? Yeah, I concerned about LDL particle
+
+### Viewer question at [1:13:02](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4382s): Concerned about LDL particle Number 2696, LDL small 294, LDL medium 512. Should I be on something or just keep workin...
 
 [1:13:02](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4382s) Viewer question (read aloud): "Concerned about LDL particle Number 2696, LDL small 294, LDL medium 512. Should I be on something or just keep working and dieting?"
 
@@ -346,6 +400,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:18:28](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4708s) Uh hey bro, Steve. Happy New Year. I'm 3
 
+### Viewer question at [1:18:30](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4710s): Hey bro happy new year, I’m 3m post op shoulder surgery doing daily fasted cardio; how would you structure a diet if ...
+
 [1:18:30](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4710s) Viewer question (read aloud): "Hey bro happy new year, I’m 3m post op shoulder surgery doing daily fasted cardio; how would you structure a diet if weight training isn’t an option yet ?"
 
 [1:18:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4711s) months post surgery doing daily fasted cardio. How would you structure a diet if weight training isn't an option yet? Uh I would do a ketogenic diet and just focus on protein and healthy fats and vegetables. Just enough calories to help you with the recovery of the surgery. And uh but not enough calories to make you fat if you're only doing cardio. And then the rest of the time you're just focusing on rehab getting your mobility back and then slowly start working with weights again, doing a little bit of laterals like with a pink 2.5 kilo dumbbells. You know, or a pencil. You just hold something. You start doing laterals. That's your your your get your grip back. Um ketogenic diet. You don't need the carbs if you're not working out. Carbs are for working out. If you don't work out, you don't need the carbs. So, that's simple. So, healthy protein, healthy fat, healthy vegetables. And then you can introduce the carbs again when you go to the gym and then you keep increasing the carbohydrates based on your gym activity. And then you slowly start to restore your muscle tissue.
@@ -353,6 +409,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 ## Does Estradiol Contribute To Chest Fat?
 
 [1:19:33](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4773s) I see if weight from 340 lbs to 192 lbs
+
+### Viewer question at [1:19:34](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4774s): Hey Steve, went from 340lb to 192lbs since may of 25, abs are coming in but still have insane amounts of chest fat, I...
 
 [1:19:34](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4774s) Viewer question (read aloud): "Hey Steve, went from 340lb to 192lbs since may of 25, abs are coming in but still have insane amounts of chest fat, I’ve heard e2 plays a role in this. Any truth?"
 
@@ -364,9 +422,13 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:21:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4891s) What are the top non-stimulant fat loss
 
+### Viewer question at [1:21:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4891s): What are the top non-stimulant fat-loss compounds, besides GLP-1s, mirabegron and mitochondrial stack
+
 [1:21:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4891s) Viewer question (read aloud): "What are the top non-stimulant fat-loss compounds, besides GLP-1s, mirabegron and mitochondrial stack"
 
 [1:21:33](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4893s) compounds besides GLP-1, mirabegron, and mitochondrial stack? I have a video on this, too. Best non-stimulatory fat burners. But it's pretty much this. GLP-1s, mirabegron, mitochondrial peptides like MOTS-c, SS-31, SLU, and then sibutramine. Yeah, it doesn't really stimulate you. It doesn't affect your heart rate but it does boost metabolism through the thyroid receptor alpha 1. Yeah. Thyroid thyroid alpha 1 receptor. Um and that also aids in fat loss as well. Yeah. And and and diet and exercise. >> [laughter] >> Everybody wants to take something but carnitine. Also non-stimulatory. Uh do you have advice on injectable
+
+### Viewer question at [1:22:26](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4946s): Do you have advice on injectable glutathione dosage per week for liver health while running orals?
 
 [1:22:26](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4946s) Viewer question (read aloud): "Do you have advice on injectable glutathione dosage per week for liver health while running orals?"
 
@@ -382,6 +444,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:23:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5027s) How long would you say the benefits
 
+### Viewer question at [1:23:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5027s): How long would you say the benefits lasted, from the cerebrolysin treatment. Wanting to give it a shot, feeling like ...
+
 [1:23:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5027s) Viewer question (read aloud): "How long would you say the benefits lasted, from the cerebrolysin treatment. Wanting to give it a shot, feeling like I've got caveman brain from 12yrs of shiftwork and heavy training."
 
 [1:23:48](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5028s) lasted from the cerebrolysin treatment? Wanted to give it a shot feeling like I got a caveman brain from 12 years of shift work and heavy heavy training. Um I would say 6 months after that last uh experiment from 5 ml to 10 ml for 60 days. And um then again I took tren and high dose cycle and even though I took fluvoxamine, which helps with neurogenesis, it's a lower dose than I did before. So technically I should be ready for another cycle but I'm just tired of injecting. So I'm just going to train less hard and take less drugs and if fingers crossed the 50 mg fluvoxamine is more than enough to bring some neurogenesis back and not be a stupid roided up bodybuilder for a while. You know, it's can't be can't be can't be a meathead all the time, you know? Oh boo boo I lift weights, chew bubble gum, and I'm all out of gum.
@@ -390,11 +454,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:24:43](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5083s) Had labs done recently. IGF-1 is 256,
 
+### Viewer question at [1:24:43](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5083s): Had labs done recently, IGF-1 is 256, Estradiol 38 and Prolactin 37 which im guessing was from 10 weeks of Tren A. Wo...
+
 [1:24:43](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5083s) Viewer question (read aloud): "Had labs done recently, IGF-1 is 256, Estradiol 38 and Prolactin 37 which im guessing was from 10 weeks of Tren A. Would running P5P 100MG daily with 1/4 mg of Arimadex help bring that down?"
 
 [1:24:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5086s) estradiol 38, prolactin 37, which is pretty high. Which I'm guessing was from 10 weeks of tren. Hey, could be. Would running vitamin B6 B5P 100 mg daily with it's 100 micrograms. Is that milligrams or micrograms? Vitamin B6 B5P. I don't know. It's 100 micro 100 mg, sorry. Yeah, 100 mg. Add some 500 mg L-tyrosine to that so you have the building blocks for dopamine because vitamin B6 B5P, when you take that, uh it converts uh precursors L-tyrosine into dopamine downstream. So you can take vitamin B6 B5P all you want but if there's no L-tyrosine there, then you're going to produce less dopamine. And and I would say that 25 mg vitamin B6 B5P with 500 mg L-tyrosine three to four times per day is enough.
 
 [1:25:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5147s) Uh quarter Aromasin help bring that down. I wouldn't take Aromasin. You take whatever protocol you have because your estradiol is 38 and that's totally fine. But your prolactin is very very high. Yeah. Prolactin is very very high. So I think um maybe take half a milligram cabergoline to crush that. Um the from a prolactin or yeah, a dopamine receptor agonist perspective. And then you keep suppressing that, the prolactin production, by elevating your dopamine levels with 500 mg L-tyrosine and 25 mg vitamin B6 B5P. Yes. This is the way. My test was 1,100 on 250 mg a week. Doesn't sound right, man. Used your code with Marek. Is that for blood work or did you get your test from Marek? Cuz it doesn't sound right to me, man. It 250 mg testosterone would bring your test up to 2,000 nanograms, maybe 2,500
+
+### Viewer question at [1:26:49](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5209s): ive asked 2 questions today and both magically disappeared from the chat, anyone else having this issue?
 
 [1:26:49](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5209s) Viewer question (read aloud): "ive asked 2 questions today and both magically disappeared from the chat, anyone else having this issue?"
 
@@ -414,6 +482,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:31:10](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5470s) And we're back. And Zeonic can't stop spamming. >> [laughter] >> So, in 6 to 7 weeks my test should have
 
+### Viewer question at [1:31:19](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5479s): So in 6-7 weeks my test should have gone from 1096 to 3k? Was cruising at 250/wk, increased only 7 weeks ago. If alre...
+
 [1:31:19](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5479s) Viewer question (read aloud): "So in 6-7 weeks my test should have gone from 1096 to 3k? Was cruising at 250/wk, increased only 7 weeks ago. If already addressed, skip me"
 
 [1:31:21](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5481s) gone from 1,100 to 3K. Dude, it should have gone up in 2 weeks. >> [laughter] >> Cruising at 250 per week was 1,100 nanograms per deciliter. Only increase it 7 weeks ago. Dude, it should be up in 2 weeks. In 2 weeks it should be up already. 2 to 3 weeks maximum. And you guys need to work on your sources, man.
@@ -421,6 +491,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 ## Will Mast & Primo Come Back?
 
 [1:31:45](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5505s) Is masteron really gone forever? Seems
+
+### Viewer question at [1:31:45](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5505s): Is Masteron really gone forever? Seems like a nightmare haha.
 
 [1:31:45](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5505s) Viewer question (read aloud): "Is Masteron really gone forever? Seems like a nightmare haha."
 
@@ -432,6 +504,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:34:00](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5640s) Uh what's a good way to stimulate your
 
+### Viewer question at [1:34:01](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5641s): What’s good to stimulate your appetite thinking Ghrp-2 or 6
+
 [1:34:01](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5641s) Viewer question (read aloud): "What’s good to stimulate your appetite thinking Ghrp-2 or 6"
 
 [1:34:02](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5642s) appetite? Thinking GHRP-2 or 6. I think GHRP-6 and MK-677 are probably the best ways to stimulate your appetite if you were after a growth hormone secretagogue. And then Periactin, a um antihistamine. Was that an antihistamine? Periactin. Uh cyproheptadine. Yeah, blocks histamine. So, that that as a side effect has appetite stimulation. And it's it's very potent appetite stimulant. Um but I have my appetite is always good. So, I would never need to use that, but GHRP-6, MK-677, or Periactin, that's the best way to increase your appetite.
@@ -439,6 +513,8 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 ## People Should Do Their Own Research!
 
 [1:34:48](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5688s) Thoughts on study showing the ejection
+
+### Viewer question at [1:34:48](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5688s): Thoughts on studies showing ejection fraction worsening overtime in AAS users? Does a healthy lifestyle and bp/hr con...
 
 [1:34:48](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=5688s) Viewer question (read aloud): "Thoughts on studies showing ejection fraction worsening overtime in AAS users? Does a healthy lifestyle and bp/hr control(arb/b-blocker)offset low EF?"
 
@@ -482,15 +558,21 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:47:18](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6438s) They have no idea, man. Dude, I when I was traveling through Asia I still got laid in every country with locals or traveling girls and I um I had the [ __ ] dad bod, dude. You know? And I pulled pulled some nice chicks. So but what you need some style and some you know? It's not difficult to get laid. Maybe now it is. Uh people are cooked. >> [laughter] >> People are cooked due to social media and OnlyFans. Uh hey Steve, any advice for getting
 
+### Viewer question at [1:47:54](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6474s): Coach Steve, any advice for getting back on track? Been competitive bodybuilding for 4years and work was busy during ...
+
 [1:47:54](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6474s) Viewer question (read aloud): "Coach Steve, any advice for getting back on track? Been competitive bodybuilding for 4years and work was busy during holiday and I fell off track"
 
 [1:47:55](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6475s) back on track? Been a competitive bodybuilder for 4 years and work was busy during the holidays and I fell off track. So what? You fell off track for 2 weeks? Just get back into the routine, man. What are you talking about? Just get back into the routine. It's [laughter] It's been 2 weeks, the [ __ ] Just get back on track. Contact your coach and and just go back on the program. Non-GLP-1 and KR. What What are you What are you talking about? Non-GLP-1 nor stimulant drug to control
+
+### Viewer question at [1:48:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6504s): Non glp1 nor stimulant drug to control apettite?
 
 [1:48:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6504s) Viewer question (read aloud): "Non glp1 nor stimulant drug to control apettite?"
 
 [1:48:27](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6507s) appetite. Benjamin, you keep asking. We We've discussed this so many times and also through email. So you want me to tell you to use testosterone enanthate or uh or melanotan II? Blood results growth hormone my Stop it, dude. Come on. Clean out. It's It's It's You've been partying. It's time to clean out. It's enough. It It really I'm serious now. It's It's enough. It's enough drugs, Benjamin. Cut it out. Just put faith back into us. 175 mg test, I was 1500 ng/dL. There you go. That sounds more reasonable. >> [sighs] >> That sounds more reasonable. Uh Texas to Brazil, yeah. That's a good place. That's where I went with Paul. Were you there, too? Were you on an under uh under an alias there?
 
 [1:49:35](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6575s) Uh last time I think I saw you at the Mr. Olympia, your wife was with you. Yeah, she won't be coming this year cuz she's got She's on baby duty. >> [laughter] [gasps] >> Yeah, I'll bring her again. I'll bring my daughter and my son when they're like uh when they can walk. But until that time, I'll just come solo. Steve, will you ever make a deep dive on
+
+### Viewer question at [1:49:57](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6597s): Hey steve will u everr make a deep divee on GAME?
 
 [1:49:57](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6597s) Viewer question (read aloud): "Hey steve will u everr make a deep divee on GAME?"
 
@@ -506,11 +588,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:51:18](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6678s) Oh, game and talking to girls. Uh make a deep dive on game. I don't know when I had game. I mean, I've been with my wife for 13 years now, so >> [sighs and gasps] >> I don't know if women would still respond to me and now I look like an old fart. >> [laughter] >> Like uh when I was 25 to 30 before social media, I think I think that the game has changed quite a bit. So, I'm probably rusty. And it's not like I'm actively trying to flirt with women to keep my game up just to to pat myself on the back. Yeah, Stevie still got it,
 
+### Viewer question at [1:51:50](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6710s): we still don't have anything for cartilage right?
+
 [1:51:50](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6710s) Viewer question (read aloud): "we still don't have anything for cartilage right?"
 
 [1:51:51](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6711s) right? Uh you get the phone number and then you just you don't call her because you know if you get the phone number, you also got the panties. Basically, you also got into her panties. It's just a formality in the step in between having game and doing the deed. I I I've no interest in that. I'm I'm happily married. Uh my wife is fantastic. I don't want to jeopardize that. So, my game is applicable 15 years ago before I settled down and now I'm sure it's not. If if women are still interested in me, it's due to financial security and because my wife vouched for me, not actually because of me. That's my wallet and my wife vouched for it. This guy's vouched for. He's He's financially secure. He's got some money to take care of me. I'm going to steal him away from his wife. [ __ ] it's not going to happen. [ __ ] it's not going to happen. My wife's [ __ ] is more worth than you are. So, that's where we uh that's where we call in uh throwing the towel. >> [laughter] >> And trust me, they try, man. Especially here in Thailand. Those Those [ __ ] are lusty for a rich husband, but rich husband is already taken.
 
 ## Step By Step Cycle Design!
+
+### Viewer question at [1:52:57](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6777s): Happy new year! 2nd cycle currently on 300 test E 150 eq a week 3iu hgh before bed. Thoughts on what to increase/add ...
 
 [1:52:57](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=6777s) Viewer question (read aloud): "Happy new year! 2nd cycle currently on 300 test E 150 eq a week 3iu hgh before bed. Thoughts on what to increase/add when growth stalls?"
 
@@ -528,11 +614,15 @@ url: https://www.youtube.com/watch?v=S8M-kPa-0UI
 
 [1:56:45](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7005s) >> What's your opinion on selenium
 
+### Viewer question at [1:56:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7006s): What is your opinion on the selenium RDA? Do you think a total intake from supplements and meat of 400-500mcg is safe...
+
 [1:56:46](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7006s) Viewer question (read aloud): "What is your opinion on the selenium RDA? Do you think a total intake from supplements and meat of 400-500mcg is safe long term?"
 
 [1:56:47](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7007s) recommended daily intake? Do you think a total intake from supplements and meat of 400 500 micrograms is safe long-term? Uh there are some negative side effects associated with selenium over 800 micrograms per day. So, uh I would advise everybody to stick to the daily recommended intake of micronutrients that were shown to have negative side effects at particular ranges like chromium, selenium, copper, couple other ones. But then magnesium has a daily recommended intake of 420 mg. 420, baby. 400 mg per day. But you can easily increase that to 2,500 mg because there's no associated negative side effects. So, you'll have to research into each micronutrient to see if it's worth increasing beyond RDA. Uh but most people get like 400 micrograms from their meat already and they supplement with two Brazil nuts for another 200 micrograms, 180 micrograms. And uh unless you're busting nuts 24/7, you're not losing that much selenium in your semen. So, you can do the load stack from Gorilla Mind that has some selenium in there. And um yeah, selenium is is good for your metabolism and good for your semen volume. And obviously, it's also needed for uh protein synthesis or protein storage.
 
 [1:58:08](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7088s) Was Priest on dialysis? No, but many
+
+### Viewer question at [1:58:08](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7088s): Was Priest on dialysis?
 
 [1:58:08](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=7088s) Viewer question (read aloud): "Was Priest on dialysis?"
 

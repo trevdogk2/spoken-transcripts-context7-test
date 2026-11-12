@@ -40,6 +40,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## Thoughts On Combining HGH & Reta At Night For Fat Loss
 
+### Viewer question at [07:44](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=464s): I take Hgh right before bed. Just started retatrutide. Is delayed gastric emptying from retatrutide an issue trying t...
+
 [07:44](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=464s) Viewer question (read aloud): "I take Hgh right before bed. Just started retatrutide. Is delayed gastric emptying from retatrutide an issue trying to take Hgh on empty stomach? I usually only have 2-3 hrs between dinner and bed."
 
 [07:45](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=465s) started retr Tite is theay gastric emptying from the retr Tite an issue going to take the growth hormonal empty stomach no because delayed gastric emptying will also improve your insulin sensitivity so again I I think the the problems with growth hormone and the reduction in insulin sensitivity are greatly overrated if you live the lifestyle you eat healthy and again you're in the chloric deficit so how much um impedance of the growth hormone regarding insulin sensitivity are you going to have when you are limiting fat sources and and carb sources I think not right you're living a lifestyle you do daily F cardio your glucose or glycogen storage are depleted you're in the chloric the deficient State it's not going to make a difference actually retr TI or negative difference and retr TI plus growth hormone both before bed is basically a cheat code for fat loss because the glucon is active the entire night you don't have any fat food in your stomach the growth hormone is helping with lipsis along sides the glucagon and also raising igf1 levels Downstream and then you have continuous appetite suppression during the day and again retr Tite has a very long halflife so whether you take that in the morning or evening it doesn't really matter but if you combine it with growth hormone around the same time then they have basically trip action through the GP glucagon and growth hormone receptor agonism overnight while you're um while you don't have any food in your stomach or at least minimal amounts because you're again your appetite is severely blunted so I think that's a great stock selfless Fitness welcome back
@@ -58,11 +60,15 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## Thoughts On Taking 1 Month Off Lifting Per Year
 
+### Viewer question at [14:31](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=871s): Thoughts on Mike Israetel's 1 month off of lifting per year, to let everything heal?
+
 [14:31](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=871s) Viewer question (read aloud): "Thoughts on Mike Israetel's 1 month off of lifting per year, to let everything heal?"
 
 [14:31](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=871s) Israel one month off of lifting per year to let everything heal yeah does it Mak sense man makes sense I mean if I take one month off here and there when I need it I said once per year once every one and a half years once every nine months when I feel that everything is kind of tight and the deep tissue massage therapy isn't really cutting it anymore and one week off from the gym or one week de lo isn't really improving my situation but yeah take a month off I mean I'm taking this month pretty easy as well I just had two workouts in the UK I didn't really work out in Holland just too cold I want to go to the gym then next week I'll trade in Thailand when I'm back and then I go to New Zealand I might trade once or twice so December is kind of easy and then January we'll pick up the slack and go back to the gym hardcore um the my main goal is not to get overly fat in December which is hard biscup regarding noobs what would be
 
 ## Thoughts On A First Cycle Of 250mg Test Vs. Anavar Only
+
+### Viewer question at [15:30](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=930s): Regarding noobs - What would be your guess on the rate of complications in 250mgTE vs var only first cycle? I'd say v...
 
 [15:30](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=930s) Viewer question (read aloud): "Regarding noobs - What would be your guess on the rate of complications in 250mgTE vs var only first cycle? I'd say var much worse, but I'm struggling to convince a lad who watched Isratels video"
 
@@ -70,11 +76,15 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## What Can Cause Pitting Edema While Having E2 In Range?
 
+### Viewer question at [18:05](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1085s): I’ve been on 300mg test and i have pitting edema. E2 on 20-30 with 2x 6.25mg aromasin. Bf is low doing daily cardio h...
+
 [18:05](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1085s) Viewer question (read aloud): "I’ve been on 300mg test and i have pitting edema. E2 on 20-30 with 2x 6.25mg aromasin. Bf is low doing daily cardio high water with good diet. i've also tried telmisartan/winstrol. What should i do?"
 
 [18:05](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1085s) St bitting a Dem estrel on 20 to 30 with two times romin 6.25 milligrams per week so it's 12 and a half milligrams per week boyfriend is low actually it's body fat body fat is low body is low on the floor surfacing my junk body fat is low doing daily cardio high water with good diets I'll starty to start in a wind strol what should I do um I don't know maybe uh your electrolyte balance is off maybe too much sodium maybe enough magnesium maybe not enough potassium could be a couple different things maybe torine maybe heart failure could be low ejection fraction can lead to edema um of course you don't want to hear that but maybe if the pitting and Diva doesn't go away on start and wistol and controlling Herer then uh yeah maybe it's time to do a an echocardiogram on your heart and determine your ejection fraction so you know I'm not sure or maybe you think you have terrible edema well pitting edema of course is terrible maybe maybe it's just time to take a week off and let your body rest could be multiple different things man I hope he gave you some insight to uh figuring it out chingis welcome to the Vigor crew bump Deuce welcome to the Vigor crew Lonnie lion welcome s Burton e glob 5 uh red
 
 ## Thoughts On 140/80 BP At 80kg Body Weight
+
+### Viewer question at [19:27](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1167s): RBC: 5.7 Hemoglobin: 179, Hematocrito: 52. Blood Pressure 140/80. Body weight 80kgs, height 179cm. Cause for concern?
 
 [19:27](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1167s) Viewer question (read aloud): "RBC: 5.7 Hemoglobin: 179, Hematocrito: 52. Blood Pressure 140/80. Body weight 80kgs, height 179cm. Cause for concern?"
 
@@ -82,11 +92,15 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## How Was The Enhanced Games Seminar?
 
+### Viewer question at [20:07](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1207s): How was the conference of human enhancement?
+
 [20:07](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1207s) Viewer question (read aloud): "How was the conference of human enhancement?"
 
 [20:09](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1209s) enhancement and this was very interesting yeah so I was the only non- doctor non-phd there under an alias no less but there was another guy that was into genetics under Alias as well uh again it's all new and it's all scary and people don't want to use their medical license by being associated with something like the enhanced games because enhanced games basically implies uh any goes in using pharmacology for um you know Sports enhancement which is not where these uh medications and compounds are designed for um so yeah you know this being frowned upon by the medical community a little bit even though there's a good amount of doctors or or people with PhD and then very high education uh there to kind of help out and see what the fuss is all about so it was basically like a brainstorming session we had three panels where several experts came together and just discussed the reason why athletes and enhance and how they can stay healthy while enhancing and what falls under the umbrella of enhancement it's just that not just the EPO and growth hormone I mean geneic modifications uh crisper you know uh bionics all that kind of stuff falls under enhancement to where you where do you draw the line because if anything goes during an enhanced game then you know the athletes might be incentivized to kind of you know tear themselves apart and then we need instead of drug testing to keep the ATL in line we need health screening to keep the athletes in line because and then it's basically the same right you're limiting the athlete um so even having a lot of doctors on board if you're limiting the athletes by saying hey you can't compete because you're AA gr is 65 then it's just another form of drug testing you're allowed to use drugs but you're not allowed to be unhealthy but what on What range of unhealthiness right is that the the human reference range up to 56 or are we going to take the reference range in particular countries where mards can be higher because they live at elevation so that's 56 58 maybe are we going to go with the medical dosages or the medically examined dosage of 600 milligrams testosterone inate from the Basin studies uh EPO dosages which are way higher than required because they're prescribed in the context of anemia or blood loss but you're healthy you already have good hematocrit so you're going to go with the medical dose of EPO and give yourself a stroke I all these things have to be figured out so it was a good brainstorming session to kind of get that done but it's it's very exciting yeah I felt like 40 or 50 of the smartest people regarding enhancements were one in one room and that uh led to a lot of discussions yeah it was a lot of fun but there's there's a lot of brainstorming that still needs to take place before this can come into a fruition let's see chingas G wants up to intramuscular which is best for muscle gu doesn't matter doesn't matter just get it in doesn't does doesn't matter dude I don't think we can do super chats today have
 
 [23:09](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1389s) seen yeah I haven't seen any super chats can't Super Chat for some reason okay so maybe there's still some restrictions on my channel I have to look into that guys see if you can Super Chat and otherwise um might have to file a complaint because well the figures Q&A is all about that Super Chat flood
+
+### Viewer question at [23:31](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1411s): I don’t think we can do super chats today. How high have you seen c reactive protein from vaping?
 
 [23:31](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1411s) Viewer question (read aloud): "I don’t think we can do super chats today. How high have you seen c reactive protein from vaping?"
 
@@ -95,6 +109,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 ## How High Can CRP Get From Vaping?
 
 [23:37](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1417s) reactive protein from vaping um usually guys that chronically Vape they don't come to me because they're not at health and fitness but it could be as high as 10 to 20 milligrams per liter but I've seen 40 50 60 milligrams per liter from uh that's on high sensitivity test from injectable synthetic car oils like propylene G propylene glycol polyethyl glycol or ethylate and those were like multiple gram Cycles where just inject EO and guol and that was pretty bad congrats on beating the Matrix uh
+
+### Viewer question at [24:11](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1451s): congratz on beating the matrix, what bloodwork should be requested to check the authenticity of a trenbolone? I am gu...
 
 [24:11](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1451s) Viewer question (read aloud): "congratz on beating the matrix, what bloodwork should be requested to check the authenticity of a trenbolone? I am guessing prolactin? have fun in ur vacation"
 
@@ -105,6 +121,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 [24:18](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1458s) be requested to check the authenticity of trimone I'm guessing prolactin have fun in your vacation uh well you could do a non-sensitive estr doll test or you send it into yanosik um can I mention that well it's for health and [ __ ] Wellness right so it should be able to mention yanos shik where you can at least verify the quality of your steroid so you don't hurt yourself otherwise I really don't know what to do um because well at least everything that I recommended were were high quality Affiliates maybe maybe under the new Administration we can get away with a little bit more but we have to wait until January 15 one month out waiting until RFK hits the office um so yeah the high sensitivity Ser active protein for terone should be low so you know that the carer oil is not bad estr nonsensitive testing so you know that the termon is detecting is estr and that's about it but I would send it in for third party testing in a place where they can actually uh see how many milligrams of troner in one milliliter of the product that you intend to use Stone W welcome to the figur crew I think it's a lot of new people people or old people just resigning hey Steve hope you're well
 
 ## Thoughts On IGF-1 DES
+
+### Viewer question at [25:33](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1533s): Hi Steve. Hope you well. Been looking to add IGF-1 DES, 100mcg once a day pre workout for 6 weeks to my test amd prim...
 
 [25:33](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1533s) Viewer question (read aloud): "Hi Steve. Hope you well. Been looking to add IGF-1 DES, 100mcg once a day pre workout for 6 weeks to my test amd primo in 2025. Would DES once a day be as beneficial as splitting dose to 2-3 daily?"
 
@@ -126,11 +144,15 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 [31:12](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1872s) Primo to go along with trt provider is
 
+### Viewer question at [31:12](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1872s): Considering low dose primo to go along with TRT. My provider in the U.S. can only legally provide oral primo. Other t...
+
 [31:12](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1872s) Viewer question (read aloud): "Considering low dose primo to go along with TRT. My provider in the U.S. can only legally provide oral primo. Other than low bioavailability is it as good as injectable primo?"
 
 [31:14](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1874s) in the US can only legally provide oral Primo yeah that's a new thing in the US oral Primo B acetate tablets even though it's s tier or F tier oh it's better than getting no Primo right other than low bioavailability is it is good the injectable Primo no you need to use the double amount and then you potentiate more liver stress and more significant reduction in uh HDL and shbg so in any way context injectable Prim ball in the superior um and I would rather go with underground lab or Pharma injectable Primo over oral Pharma primabol and acetate but you know uh you could do it this way you get yourself a nice four to six week supply of oral prolin acetate you run 25 milligrams to 50 milligrams per day and in the meantime you sour some injectable primo and then you switch from uh let's see onto five no 25 time 7 you switch from 175 to 350 migr prol acetate Orly to 100 to 200 milligrams PR anate injectable injectable PR acate and then you you you compare the difference that's what I would do actually I would start with ictable Primo because I've already done this experiment and I know uh what the end result and the conclusion is going to be so let us know a couple weeks from now and you'll uh you can tell me that I was right zionic coming off a T3 protocol on
 
 ## How to Come Off T3
+
+### Viewer question at [32:41](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1961s): Coming off T3 protocol (on for 45 days): How much T4 and dose timing? I am also taking ZHOU's Thyroid Support with Io...
 
 [32:41](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=1961s) Viewer question (read aloud): "Coming off T3 protocol (on for 45 days): How much T4 and dose timing? I am also taking ZHOU's Thyroid Support with Iodine/Zinc/B12/Selenium/etc. Thanks coach! Glad to see we are back!"
 
@@ -138,11 +160,15 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## Thoughts On Injectable Cardarine & SR-9009
 
+### Viewer question at [33:54](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2034s): what are your thoughts on injectable cardarine and sr-9009 blend? are the carrier oils trash? AA carries a blend, but...
+
 [33:54](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2034s) Viewer question (read aloud): "what are your thoughts on injectable cardarine and sr-9009 blend? are the carrier oils trash? AA carries a blend, but wasn't sure of the inflammation"
 
 [33:55](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2035s) injectable carterine sr900 Blends are the carer trash so I believe that sr9009 can be dissolved in regular MCT oil with Beno Beno and B alcohol you don't need synthetic care oils from what I've been told haven't used it myself um and again it's going to vary from Brand to Brand so stick to the ones that I would uh endorse somewhere like AA or ma um shouldn't cause inflammation I haven't used the injectable Blends myself or Gardine or sr9009 solo uh because well the oral tablets have always worked well for me so why inject more oil when it's not needed but some people swear by it so give it a run see if you notice a difference I'm sure the bioavailability is significantly higher if you get better fat loss or better stamina injour and and wakefulness out of it then by all means go for it and again if you're unsure run this compound for two weeks and then go check your high sensitivity Ser active protein levels to see if um if you get systemic information and otherwise you would get R this at the side of administration and maybe flu like symptoms within two or three shots and that's probably an early indication that the oils are not really suitable for long-term use six weeks into trt 25 milligrams
 
 ## How To Dose Aromasin After Adding 250 IU hCG To 175mg Test
+
+### Viewer question at [35:10](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2110s): 6 weeks into TRT 25mg daily (175 weekly) with no AI. Total test at 1550, E2 at 86. Now I'm adding HCG 250iu 3x per we...
 
 [35:10](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2110s) Viewer question (read aloud): "6 weeks into TRT 25mg daily (175 weekly) with no AI. Total test at 1550, E2 at 86. Now I'm adding HCG 250iu 3x per week. Would 12.5mg Aromasin daily be too much to take to get to favorable E2?"
 
@@ -154,6 +180,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## Thoughts On Combining CJC, Ipamorelin & HGH
 
+### Viewer question at [37:44](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2264s): Any point in running cjc/ipa with HGH? I have a lot of it that I dont want to waste.
+
 [37:44](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2264s) Viewer question (read aloud): "Any point in running cjc/ipa with HGH? I have a lot of it that I dont want to waste."
 
 [37:46](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2266s) growth remon I heard a lot that I don't want to wa want to waste I I don't think it's useful if the CJC and I is going to increase your growth levels maybe you can do that in the morning and growth remone at night or CJC I at night and a growth rone in the morning uh but you still get a negative feedback from the elevated ig1 making the CJC and I less effective so you get less bank for your buck um dude I would just write down how much money you would spend on this combination of CJC and I Morland over the week and then run an equivalent dose for the exact same amount of money on growth remone you probably get better results because these growth remone securitys are expensive in most uh great area peptide website companies they sell that sell growth Ron of cre gos usually also sell growth remone um and otherwise well I'm sure you can piece it together for [ __ ] sake and then if you spend $5 on cgci Morel and you could spend $5 on growth remote and it's already two units I think you get more out of it you know you just got to learn how to source and chat feels dead without the super chats I got so spoiled over the last two years normally we'd already be up to $100 by now talking about $100 Bitcoin is still over $100,000 10,600 time to buy the lambo guys welcome back bro yeah yeah everything seems to be in order you got a same amount of people 250 260 people in the chat zero likes but I expect nothing less of you guys uh I got 121 likes and 260 people in the chat so as usual the likes are um not directly correlated to the viewer account but that's okay but the super chats are not here oh well maybe I have to put adds every 1 minute when we're done let's see where are we getting fat is just it just makes the
@@ -162,6 +190,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 [40:10](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2410s) cut feel so much better yeah I think the cut is gonna go fantastically because now I've been in the clork Surplus for like seven weeks when I left or eight weeks when I left so now we're week nine then we got four more weeks to go so it's like 13 weeks of good good old eating good old heavy training my pants don't fit my clothes don't fit underwear is too tight um yeah so we're definitely making some gains but 121 kilos was a little bit too much so I didn't weigh myself I'm probably 117 now when I saw the pictures of the enhanced games of me in a shirt in a suit next to everybody else I'm like [ __ ] man I look like a [ __ ] ogre just like commission said whoops I accidentally all the
 
+### Viewer question at [41:04](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2464s): hi Steve is their any way to tell if you have accidentally injected into a vein instead of IM?
+
 [41:04](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2464s) Viewer question (read aloud): "hi Steve is their any way to tell if you have accidentally injected into a vein instead of IM?"
 
 [41:08](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2468s) carbohydrates hey Steve is there a way to tell if you've accidentally injected into a vein instead of intramuscular um if you start coughing after a steroid injection doesn't matter if it's tremone testosterone bone then yes you went into a vein and if it's with growth hormone and you suddenly go dizzy you're like o it's a bit much then yeah it happens sometimes man how do you like the B P how do you
@@ -169,6 +199,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 ## Experience With BP HGH
 
 [41:34](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2494s) like the BP growth hormone so far I like it a lot better than the TP growth hormone um they didn't take any of the videos offline where I discussed all of these Brands so I I'm not sure what's allowed and what's not allowed yeah how
+
+### Viewer question at [41:50](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2510s): you know why you got banned?
 
 [41:50](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2510s) Viewer question (read aloud): "you know why you got banned?"
 
@@ -184,11 +216,15 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## What Is The Most Oil You Can Inject SubQ?
 
+### Viewer question at [45:37](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2737s): what is the biggest quantity of oil you can pin in subcutaneous micro administration daily in one injection site?
+
 [45:37](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2737s) Viewer question (read aloud): "what is the biggest quantity of oil you can pin in subcutaneous micro administration daily in one injection site?"
 
 [45:38](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2738s) you can bin subcutaneous micro Administration daily and one is the action side I found that 1 milliliters pretty much the maximum um it kind of depends on where you do it so I do it in the upper glute where there's still a little bit of meat even when I'm 8% body fat there's still some fat left there in the upper glute side glute area so I can pin an entire CC every single day for 7cc steroid cycle and then water base is also a milliliter but of course you could do multiple one millit injections per day because it disperses and absorbs so fast can you does oral bpc157 and tb500
 
 ## Can Oral BPC & TB-500 Give Similar Effects To The Injectable Versions?
+
+### Viewer question at [46:13](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2773s): Can you dose oral bpc-157 + Tb-500 high enough to get similar effects to injectable?
 
 [46:13](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2773s) Viewer question (read aloud): "Can you dose oral bpc-157 + Tb-500 high enough to get similar effects to injectable?"
 
@@ -200,6 +236,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 ## Bodybuilders Don’t Get Deep Vein Thrombosis From Flying + How To Prepare For Long Flights
 
+### Viewer question at [48:23](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2903s): I heared that many bodybuilders end up with DVT after long flights, how do you usually prepare for long flights?
+
 [48:23](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2903s) Viewer question (read aloud): "I heared that many bodybuilders end up with DVT after long flights, how do you usually prepare for long flights?"
 
 [48:25](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=2905s) with a defro bosses after fights how do you usually prepare for long fights I've never heard that of any bodybuilder getting that ever so I don't know which bodybuilders you talk to but I've never heard a bodybuilder get a deep vein trombosis uh but maybe the bodybuilders you know are [ __ ] unhealthy they don't do their daily facet cardio they got verico SEALS or what is it called not verico seals um uh you know those veins in their legs that are completely horrendous due to poor blood flow and uh maybe they're on uh maybe they're vitamin K deficient you know and then fully vaxed and then some so no I've never heard of that of anything what I do is I wear my compression socks and of long flights I just fast drink a bottle out of water and then I arrive lean dry and not water retentive unless I use a bottle out of growth hormone so maybe take the growth hormone out a couple days before the flight wear the compression socks drink a a lot of water don't eat any of the airplane food unless you're flying back home so I didn't really eat anything um I ate something when I arrived in the UK and then uh well since the damage is already done and since the food at Emirates is absolutely phenomenal I will be eating on the way back and then I'll do the same I'll clean out for about a week little binging and purging not too hard not to hard purging though and then I'll clean out a little bit for a week and then I uh will fly fasting to New Zealand hit the ground running because then I arrive for Christmas and then on the way back I'll probably just eat the airplane food because then the damage is already done
@@ -208,6 +246,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 [50:00](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3000s) do you prefer to run mitochondrial stack
 
+### Viewer question at [50:00](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3000s): Do you prefer to run mitochondira stacks year round as an entrepreneur and help with energy/ focus, or do you priorit...
+
 [50:00](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3000s) Viewer question (read aloud): "Do you prefer to run mitochondira stacks year round as an entrepreneur and help with energy/ focus, or do you prioritize it primarily in a cut?"
 
 [50:02](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3002s) year round as an entrepreneur to help with energy Focus or do you prioritize it primarily for cutting catic onal support stack would be maybe a little bit higher dosed during the cutting phase to help with fat loss obviously and energy levels as they come down because you're calorically depleted and restricting obviously and right now I just run theu the m and the the methylene blue at you know modest do 750 micrograms SLU um per day 1 milligram oi on trading days and then 5 milligrams methylene blue on workout days so that's four times a week for the Moy and the methylene blue but then of course when I'm cutting I do five workouts per week so it's a little bit more and then I might shift up the methylene blue to 10 milligrams just to get a little bit of a boost for oxygenation and stamina and moods because it is a myo inhibitor increases serotonin levels in the brain so yeah I I run this year round and then uh I think that the stack is pretty much the same yeah need to stay cognitive man got a lot of work to do when you're bulking or cutting or not let's see what's interesting to answer Steve what's your favorite Mass
@@ -215,6 +255,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 ## Steve’s Favorite Mass Builder Is… FOOD!
 
 [51:19](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3079s) Builder not including Primo food man come on you know the answer to this doesn't matter what drugs you use I mean I do like the cycle of test De aend uh was great got nice and fluffy nice and juicy The Joint felt really lubricated gyno grew like crazy though so I have to get that surgically removed but that was the goal didn't call it operation gyno for no reason but dude you can grow on anything man it doesn't [ __ ] matter you can cut on anything do I'm I might when I start my cut sometime next year when I'm Healed from the gyno surgery I might just do test deck and to keep the joint lubricated and and you know in the beginning of dieting you turn into a watery mess anyway before the body fat is really gone so what's the point I I could run Primo from the start and then still end up as a watery mess as the you know the body fat levels come down and it the fat is being replaced with water until all everything kind of contracts or it can run test deand to stay strong I think I'm just going to do that testement GH incx retti and uh and then leave the orals for the end when I need it and then maybe replace the deck I meant for a Primo and low dose of train and then in six weeks you see some serious transformation which is just water redistribution not actual fat loss just water redistribution you know from the subcutaneous space to the intermuscular space and then you throw in some yk11 to push past strength blood TOs and then hopefully the deck will be overlapping so I don't get creaky joints and then uh well when this baby hits 88 miles per hour you'll see some serious [ __ ] so whatever you prefer man don't rely on me what the run you can figure that out by yourself yeah Alvaro Alvaro knows man I'm pretty sure Steve's favorite Mass bur Builder is a ton of food you know yeah but we mean drugs [ __ ] test GH insulin now go forth and make it happen I was like a video do I get a cookie now you get more free content which is is unlike you get from other channels high quality content it is all meant to be problematic for
+
+### Viewer question at [53:33](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3213s): Will ment be problematic for the pregnancy stuff?
 
 [53:33](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3213s) Viewer question (read aloud): "Will ment be problematic for the pregnancy stuff?"
 
@@ -228,6 +270,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 
 [55:52](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3352s) hey Steve Steve now did you went through it
 
+### Viewer question at [55:55](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3355s): Hey Steve, now that you went through it all, would it have been better to go straight to IVF instead of hopping off g...
+
 [55:55](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3355s) Viewer question (read aloud): "Hey Steve, now that you went through it all, would it have been better to go straight to IVF instead of hopping off gear to increasing fertility?"
 
 [55:56](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3356s) all would it have been better to go straight to IVF since hopping on gear to increase fertility no you have to go through the process because like we tried naturally for one year then we did IVF and then the first implantation was a success um but maybe maybe we didn't need IVF and IVF is expensive man you know not not that I'm short on cash but if I don't have to spend €25,000 Euros on IVF and and additional treatments and fertility medications then I'd rather keep that money and buy half a Bitcoin or well in this case quarter Bitcoin but at the time we did IVF was about half a Bitcoin right so you know could have doubled my money or Forex my money but now it's uh well now it's in the form of a little child um so no I think everybody should go through the process and try for a year to try naturally which I will explain in the you know how to get your wife pregnant video which I'm working on but again next week I probably don't have time to record so there'll just be another anabolic ground table the videos will be very thin guys I'm just [ __ ] flooded with work and then others and travels honestly so I'm doing all my emails but I'm not doing any preparation for scripts so just give me some time January is when I'll pick up the slack uh but no I think everybody should come off or come off or sort their fertility parameters try for six six months to one year depending on the age of the wife or the girlfriend or the partner however you want to call it and nobody wants to get married nowadays I get it Western world's up divorce rules right you got to protect yourself even though I I didn't because I uh you know I'm really in love which is rare nowadays um so yeah if she want to take my half my assets fine I don't give a [ __ ] I'll make more money afterwards you can take away somebody's ability to make money uh which I don't expect to divorce in my near future but you never know right um let's see so go through that process um and then do IVF when you're at the end of your line and you know feel that you need it because in many like Chase irons didn't need to do IVF and his fertility parameters were way worse than mine um even though his wife was probably more fertile than my wife because she's younger and maybe lived a different life um so all these things you know you have to consider but yeah why why spend 20K 50k 75k depending on the country where you live on IVF unless you get it um you know through your health care which is also the case for many countries if you get IVF for free through your Healthcare then [ __ ] it man why wait why wait the donate the Sean sample with 22 million with decent morphology decent morality let them split it up select the best Seamans to get the the I don't know 10 to 20 eggs that they retrieved from the partner um you know in a in a good state of uh uh blast assist and the genetic analysis and then go right back on cycle man and I had to poter proof right I'm a public person so
@@ -237,6 +281,8 @@ url: https://www.youtube.com/watch?v=CIvzuCLtbjM
 ## How Was The IVF Process? – Benefits Of Going Through IVF
 
 [59:23](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3563s) lot of benefits we did chromosome testing we were able to select the healthiest embryos and implanted that and go through the process of implantation and then uh you know do know exactly when to check for HG and then HG is high right you go to the clinic you check the serum HG it's high and then you do the ultrasound you see something moving so and then two weeks later it turns into from a little worm to a uh I don't know tide Poole and then tide Poole to a gummy bear and then a gummy bear to a little human and then you can see the heartbeat develop so all these things are [ __ ] cool and I'm glad I did because you know now from start to finish basically the earliest um baby pictures that we have are the embryos you can't say that if you do it naturally so at least we got the day one embryo pictures um yeah and if they cost a little bit extra money then so be it you know the money will come the money will flow but the pictures you would never be able to get if you do it naturally so all right where are we went on a tangent I guess that's the last one guys my family is going to come in about five minutes it's time to eat let's see if there's anything pending or anything crazy uh asking for a friend how do you
+
+### Viewer question at [1:00:38](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3638s): Steve asking for a friend, how do you get your husband pregnant?
 
 [1:00:38](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3638s) Viewer question (read aloud): "Steve asking for a friend, how do you get your husband pregnant?"
 

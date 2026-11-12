@@ -28,6 +28,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 
 [06:20](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=380s) All right. K. He has no question, but $99.99 goes a very long way to the Cheesecake
 
+### Viewer question at [06:24](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=384s): Love the content thank you for the free knowledge Steve! Enjoy some Cheesecake Factory!
+
 [06:24](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=384s) Viewer question (read aloud): "Love the content thank you for the free knowledge Steve! Enjoy some Cheesecake Factory!"
 
 [06:24](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=384s) Fund. Love the content. Thank you for the free knowledge, Steve. Enjoy some Cheesecake Factory. Hell yeah. I'm dieting now. My lower back is almost in. It's like this much. So, I think by the time my birthday hits, what is that? The end of September. One, two, three. One, two, three, four, five, six. Six weeks. I think you can look pretty good in six weeks. Yeah, we'll show you the money shots in six weeks from now. Spin. Damn it. Six weeks from now. So, maybe no Cheesecake Factory now because I'm really on a good stride. Thank god for Rich T back in the picture. diet adherence is 100%. Let's see finance stuff.
@@ -39,6 +41,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 [08:18](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=498s) Yeah, that's about it. So yeah, you have to be if you're in cryptocurrency, you have to be on top of the market 24/7. But hey, at least with the, you know, bad PPI data and and all the other bad data that we've been getting out, I mean, uh, if you look at the the Fed watch again, we'll we'll do some charts a little bit later on, you see that 92% is a predict or they're predicting 92% chance that they're going to have rate cuts in September um, by a quarter percent. And that is very promising because that means that the market is going to pump. So get your entries in before that time and I might see a little bit of a front run of the market where people expect that uh you know the rate cuts is going to take place and then maybe a week before the announcement is going to take place people already front running the announcement and then you see the market go up and then of course if they don't do red cuts then we'll get rate cuts in October and December will be two more rate cuts. So October, December would be good. And if they do a double rate cut in December, that would be a bit weird, but you never know, man. With Jerome Pal.
 
 [09:20](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=560s) What's your financial favorite financial book? I can't say that I really read a lot of financial books. I read a couple
+
+### Viewer question at [09:25](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=565s): Do you think that the financial market is run by an algorithm or is it driven by buyers and sellers?
 
 [09:25](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=565s) Viewer question (read aloud): "Do you think that the financial market is run by an algorithm or is it driven by buyers and sellers?"
 
@@ -53,6 +57,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 ## How To Start A Business
 
 [12:22](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=742s) Steve, what's your advice for somebody who wants to start a business and has no clue what to do? Do what you're good at. That's what I did. I I am good at talking about drugs. I'm good at talk about bodybuilding, but you guys wanted to see more about drugs. So, um yeah, that means that uh over time I saw the views go down on the the training videos and the supplementation videos and the nutritional videos. And I was like, you know what, you guys want to see drug content? Sure, I'll give you the best [ __ ] drug content you can find anywhere on the internet. Hence, all of the deep dives. Nobody's matching those. No way. All right. So, the W Aaron, you got to read the subtitles. You donated5 pounds. So, you about three pounds left before I start answering dress questions. It's a finance Q&A, buddy. Teach you about finance. $10 minimum. If you don't want to talk about finance, I'll still teach you about finance. Uh, let's see. Have you heard about ICT
+
+### Viewer question at [13:20](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=800s): Have you heard about ICT in the trading space and if you did what do you think about his concepts
 
 [13:20](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=800s) Viewer question (read aloud): "Have you heard about ICT in the trading space and if you did what do you think about his concepts"
 
@@ -98,6 +104,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 
 ## Would You Need An AI While On 300 Test, 200 Primo & 20 Anavar?
 
+### Viewer question at [34:28](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2068s): Thanks and sorry i was miss that hello master steve i gona start my second cycle with 300 test and 200 primo and 20mg...
+
 [34:28](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2068s) Viewer question (read aloud): "Thanks and sorry i was miss that hello master steve i gona start my second cycle with 300 test and 200 primo and 20mg anavar do you think i need to add ai 1mg every 2 day ? thanks"
 
 [34:29](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2069s) You miss me that. Hello, Master Steve. I'm going to start my second cycle with 300 milligrams test, 30 milligrams primo, 20 milligrams anavor per day, I'm assuming. Do you think I need to add in an AI every two days? Uh, I think with this cycle you can get away with no AI, but I would still do a blood work four or five weeks into it. Um, because that testosterone dose might might be a little bit too high for the amount of primo that you have. And Anavar is not really known to lower estradi levels, but it will lower SHPG levels, freeing up more testosterone, which increases the potential of testosterone converting into estradiol because it's no longer bound to binding proteins like sex binding globulin, only albumin. So or albumin and 1 milligram arimidex uh it's probably too much. I would do like 6.25 milligrams aromomasin Monday, Wednesday, Friday, three times per week if your body fat levels are not that high. Um so check your blood work 3 week or four to five weeks into it. And then if your estrogen is a little bit too high, which it could be, you either bump up the primo or you add in 6.25 milligrams, maybe 12.5 milligrams. Again, depends on your estrogen levels. Monday, Wednesday, Friday of arroin, not arimidex. Arimedex is worse on your lipids than aromomasin.
@@ -105,6 +113,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 [35:44](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2144s) So if you have a choice, go with aromisin over ardex, man. If you know, if you were around at that time, Bitconnect, [Laughter] Bitconnect, got all this [ __ ] money, bro. I was actually a Bitconnect. I did made some money there, but [ __ ] what a scam, dude. What a [ __ ] Ponzi scheme. You can reinvest your profit. You can reinvest your profit. And then at one point, the company is gone. And all the money you withdrew was actually other people putting their Bitcoin in for staking. Was it Bitcoin or Ethereum? I can't remember. Uh brain versus body. Which one to
 
 ## Should You Prioritize Brain Or Body In Your Late 20s?
+
+### Viewer question at [36:29](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2189s): brain vs body, which one to prioritize first? assuming you can't do 100 percent on both, how much percent allocate to...
 
 [36:29](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2189s) Viewer question (read aloud): "brain vs body, which one to prioritize first? assuming you can't do 100 percent on both, how much percent allocate to each? Assuming you're in your late 20s, kinda broke, kinds soft body. thanks bud"
 
@@ -130,6 +140,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 
 ## Thoughts On Managing Test Dose Based On Total Serum
 
+### Viewer question at [46:59](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2819s): Why do you talk about cruise recommendations in dosages rather than serum levels? I have 1000 total test at 100 mg. S...
+
 [46:59](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2819s) Viewer question (read aloud): "Why do you talk about cruise recommendations in dosages rather than serum levels? I have 1000 total test at 100 mg. So wouldn't me cruising at 200 mg be like a small blast for others? Would that be deleterious to cruise on?"
 
 [46:59](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=2819s) about cruise recommendations in doses rather than serum levels? I have a thousand total testosterone at 100 milligrams. So wouldn't it mean cruising in 200 milligs be like a small blast for others? Wouldn't that be delterious to cruise on? Yeah, I mean you could do it both ways. You can go by serum levels, but serum levels doesn't always indicate how much of a response you get. Some people like you get 1,000 nigrams per diliter and 100 milligrams. Either that means that the testosterone is not getting to the androgen receptor and you're not getting as much of a response as you want. you're a slow metabolizer or you have [ __ ] all body weight and maybe you're 50 kilos or 60 kilos. So again, recommendations are only as good as the modifications that you make with them based on your individual needs. And I would cruise in 200 tests. My testosterone levels would be 900 NOGS per deciliter and would probably be barely enough to sustain my size and strength unless I eat like a [ __ ] maniac, right? to compensate for the lack of androgens floating around in my bloodstream. I need the calories to keep me going. And as calories come down, I increase the dosages. Some people don't agree with that. That's totally fine. I don't give a [ __ ] what other people do.
@@ -141,6 +153,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 [50:58](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3058s) Do you have some money invested in real
 
 ## Does Steve Have Money Invested In Real Estate?
+
+### Viewer question at [50:59](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3059s): you have some money invested in real estate ?
 
 [50:59](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3059s) Viewer question (read aloud): "you have some money invested in real estate ?"
 
@@ -160,6 +174,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 
 [55:33](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3333s) Uh how come uh off blast on testosterone
 
+### Viewer question at [55:34](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3334s): How to come off blast on test and Aromasin? Drop test to cruise and stop Aromasin, or titrate Aromasin while serum te...
+
 [55:34](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3334s) Viewer question (read aloud): "How to come off blast on test and Aromasin? Drop test to cruise and stop Aromasin, or titrate Aromasin while serum test drops? Does Anavar while coming from a blast to a cruise mitigate muscle loss?"
 
 [55:36](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3336s) and aromomasin drop testosterone cruise and stop aromomas or titrate aromomas while test drops does anavar well man English is not your first language huh [ __ ] um so if you're coming off a blast yeah testosterone and aromomasin is a good combination you don't have to taper down the aromomasin and the testosterone you just go from your blast dose to what you feel is a suitable dose of testosterone and aromomasin and then uh four weeks five weeks into that you do some blood work and adjust where needed right we make adjustments based on blood work but if your testosterone is at the top of the reference range and your estradile is at the top of the reference range under 100 milligrams of test and 6.25 25 milligrams of Romin twice per week for example. Then you keep it exactly there. Now you're happy golucky, numbers look good, you feel good, you cruise for a couple months and then uh yeah, then you throw in the Anavar. So does Anavar while coming off a blast to a cruise mitigate muscle loss? No. Training hard and eating right mitigates muscle loss.
@@ -169,6 +185,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 [57:42](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3462s) Uh, let's see. Antiocho, hey Steve, been on retro diet
 
 ## Can PEDs Help With Fat Loss While Being 300 Pounds?
+
+### Viewer question at [57:48](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3468s): Hey Steve, Been on Reta/diet/walking since July 1st, was at 335 lbs. Im down to 302 in 6 weeks. Is it worth getting o...
 
 [57:48](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3468s) Viewer question (read aloud): "Hey Steve, Been on Reta/diet/walking since July 1st, was at 335 lbs. Im down to 302 in 6 weeks. Is it worth getting on small amount of Peds to help with Fatloss after I hit a plateau."
 
@@ -181,6 +199,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 [1:00:13](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3613s) I literally owe nothing 40k, but that does seem like a good idea. Yeah, you'd be surprised like when I talk with Paul Barnett or Chase Irons, who obviously have corporations in the United States, they they everything is a taxdeductible, dude. Like I think Chase got that that Mercedes or BMW, whatever car he drives in all the mods as a tax deductible because he has a a company that that uh you know he has to deliver packages. So he uses it as a pack what I think and I don't know how he does it but I think he made it as a tax deductible because um he sells product and for that you need to deliver packages to um and Chase please correct me if I'm wrong here. That's how that's the first thing I would look at. Um, right. He has products that he uh makes packages for, it needs to go to the post office. And then, you know, you get the max tax deductible on on a vehicle you can. And if that's 100K on a Mercedes or a BMW, then of course you're going to do it. [ __ ] it, Steve. Can I borrow 20 bucks? People who ask to borrow 20 bucks means they will never get it back.
 
 [1:01:17](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3677s) What is that scene where uh the little boy comes up to the mafia boss? Man, which movie is this? I'm sure you guys know that. Yeah, he he uh he borrowed me 50 bucks. He said, "Do you like the guy?" He said, "No, he's a [ __ ] asshole." Said, "Okay, you give him 20 bucks and you'll never see him again." What movie is that? Uh, it's a mafia movie. It's a good movie, too. I was thinking about getting a custom power armor made for the Arnold. Yeah. So if if you're if you cosplay and you have a Instagram page and you sell power armor, I'm sure it's taxdeductible, but again tax deductibles are different in every country and you can only push the boundaries so much. Like I I know that um Star Wars theory bought a Lamborghini and he made that a tax deductible because he started filming videos from his Lamborghini every couple of weeks and it became a taxdeductible. So, you'd be surprised, man.
+
+### Viewer question at [1:02:20](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3740s): @VigorousSteve I’ve been watching Facebook groups for homes in Phuket seems like some beautiful places for 10-12M wha...
 
 [1:02:20](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3740s) Viewer question (read aloud): "@VigorousSteve I’ve been watching Facebook groups for homes in Phuket seems like some beautiful places for 10-12M what’s happening with the market these days ? Is it all Russian development"
 
@@ -198,6 +218,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 
 [1:06:30](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3990s) It's probably at the bottom, dude. We're at the end of the bull market. So based on historical analysis, Bitcoin might run up till the beginning of October based on the previous four-year cycles. But again, if the four-year cycle is over, then obviously this um this analysis is not correct. But if you compare the time frame from the the bare market the better market bottom to the bull market top and the cryptocurrency having to the bull market top we're probably going to peak out around early October then usually 360 to 365 days later one year Bitcoin retraces between 75 to 80%. That means the altcoin might retrace way way more because all of the altcoins bleed into Bitcoin as the Bitcoin bull market comes to an end and it turns into a bare market. So XRP will where will it
 
+### Viewer question at [1:07:27](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4047s): Thoughts on XRP. Where is it in a year from now?
+
 [1:07:27](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4047s) Viewer question (read aloud): "Thoughts on XRP. Where is it in a year from now?"
 
 [1:07:29](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4049s) be a year from now? Probably at the bottom. Probably at the [ __ ] bottom, dude. Where could it be a month to maybe November be from now? Let's see. Binance. No, let me go to uh Trading View. We have an export XRP chart. It's at $310. Now, is it the day chart? I'm at the wrong [ __ ] There we go. Dude, if you compare XRP to Bitcoin, it's literally been going down. [Laughter] The last time it was anywhere favorable is December 2017. And since December 2017, compared to Bitcoin, XRP has been dumping.
@@ -209,6 +231,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 [1:11:16](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4276s) This is 179 rupees. $2. You're $8 short, bro. Read the [ __ ] subtitles. Yeah, the US has very favorable business conditions for tax write-offs. Yeah, but you still pay a lot of tax. You have corporate tax depending on the state and then income tax and then what? State tax. [ __ ] man. And then value added tax and then mandatory tipping. Man, America makes you spend money, dude. Before you know it, you're broke. Sounds like Joe Peshi. Yeah, it's Joe Peshy. Exactly. Yeah. Is that in a Bronx tale? Yeah, that was like the $20 joke, right? And he had to Star Wars the good dude. Yeah, I occasionally talk with him and he's he's he's a solid dude, man. He did a lot for the Star Wars community. I wish um I wish Disney would sell Star Wars to Neotus. [ __ ] man. If he gets a budget and he does Vader episodes.
 
 [1:12:19](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4339s) [ __ ] dude. That I would spend money on. I would not download. Just got back from your hometown, Amsterdam. I Amsterdam is not my hometown. And I lived in Mira, very small town next to Amsterdam. Well, 200,000 people, give or take. Uh, but it's about 20 minutes, 30 minutes away from Amsterdam. Yeah. So, we would not hang out in Mira. We would go to Amsterdam and have a blast. Good clubs there.
+
+### Viewer question at [1:12:51](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4371s): it's he taking Ped questions from members?
 
 [1:12:51](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4371s) Viewer question (read aloud): "it's he taking Ped questions from members?"
 
@@ -236,6 +260,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 
 [1:23:16](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4996s) Uh, 26 years old, 80 kilos and 200
 
+### Viewer question at [1:23:17](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4997s): 26yo, 80kg on 200mg TRT. Planning 600mg pharma test + 2iu Norditropin (5x/wk). Goal: 90–92kg , minimal fat. Best way ...
+
 [1:23:17](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4997s) Viewer question (read aloud): "26yo, 80kg on 200mg TRT. Planning 600mg pharma test + 2iu Norditropin (5x/wk). Goal: 90–92kg , minimal fat. Best way to structure diet, training, and health support?"
 
 [1:23:18](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=4998s) milligrams testosterone replacement therapy. Planning on 600 milligrams format test two. I use nitropin five times per week. goal is 90 to 92 kilos, minimal fat, best way to structure diet training and health support. Jesus Christ, you want you want a coach. What you're looking for is a coach. Um, eat beef. That's the best way to grow, man. And if you can't eat beef due to religious reasons, supplement with some [ __ ] creatine. But yeah, you need to go be in a caloric surplus because you want to gain 10 kilos of body weight with minimal fat, which means you're going to have to be on a enough calorie diet to slowly and steadily increase your strength. Now, the 600 test until you use norropen should be more than enough. You could probably get it done in 500 test uh or or even 400 tests. Uh and and what you can also do is do like 400 tests for like 8 weeks and then 600 tests for 8 weeks and then increase the nurropen for two IUs with 400 tested. Three I use nutropin with 600 test and um one one IU per 200 milligrams testosterone. I think that's a nice ratio. And then slowly increase the food depending on your body fat level. So what you need to do is slowly but steadily increase the pharma testosterone dose. Slowly but steadily increase your food intake. slowly and steadily focus on your training strength and maybe slightly increase the volume, but usually going uh getting stronger is more than enough. And regarding health support, I mean, you don't need much.
@@ -245,6 +271,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 ## How Would Steve Invest $5K?
 
 [1:25:40](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=5140s) If you just had 5K to invest, would you
+
+### Viewer question at [1:25:41](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=5141s): If you had just $5k to invest, would you go with ETF or crypto? Not looking to touch it until I can make enough passi...
 
 [1:25:41](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=5141s) Viewer question (read aloud): "If you had just $5k to invest, would you go with ETF or crypto? Not looking to touch it until I can make enough passive income to pull $1-2k per year for vacation."
 
@@ -287,6 +315,8 @@ url: https://www.youtube.com/watch?v=mGCZSZ6erKc
 ## Learn To Start Each Month At $0!
 
 [1:41:15](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=6075s) Did you see Ferrari dealerships take
+
+### Viewer question at [1:41:15](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=6075s): Did you see Ferrari dealerships take bitcoin as payment now?
 
 [1:41:15](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=6075s) Viewer question (read aloud): "Did you see Ferrari dealerships take bitcoin as payment now?"
 

@@ -18,6 +18,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [03:55](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=235s) Today was the last injection of the injectable YK11. I did my blood work this morning, a day early, but tomorrow I have to drive a car. Yeah, we'll explain it a little bit later. Um, so I did the blood work today. I already got it back. Uh, estradile went down a little bit, but most of the other blood work parameters actually look good. So I'll just make a quick before and after with before and after pictures, the diet and the update that I got from Epicagen. And luckily my inflammatory markers unlike with Epicagen were not completely [ __ ] I still don't know why, but with epic antigen blood work parameter CRP in the trash and then an injectable YK11.
 
+### Viewer question at [04:27](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=267s): Hey Steve, Just got some injectable YK-11. When’s the next yk-11 video dropping?
+
 [04:27](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=267s) Viewer question (read aloud): "Hey Steve, Just got some injectable YK-11. When’s the next yk-11 video dropping?"
 
 [04:28](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=268s) Just gains upon gains, baby. So, that will be dropping next week and then we'll start with the Fostatin experiment, which will be uh 1 milligram folatin 344 pre-workout for 14 days. Yeah, let's see if I get full-blown heart enlargement. Fingers crossed that that's not going to happen. Uh and then after that TR theft is safe there I'm scripting for that the BDNF deep dive I started scripting and then I realized that exercise also increases brain drive neurotropic factor and that's so extensively studied that there's like 12 review papers. [ __ ] my life man. And review papers have 130 citations each. So training increases brain drive neurotropic factor quite dramatically especially when you combine it with curcumin. Don't worry we'll discuss that in the deep dive. Um curcumin separately and training separately is not as effective as com combining curcumin with training together regarding the increase in brain drive neurotropic factor. Who would have thought? Um so yeah we're working on that and then uh before that I'll drop the nenton deep dive because that's pending first in the queue. Then we got a data deep dive, trap deep dive, bath mate, metaline blue, mitochondrial support stack, fuckload of [ __ ] to do and not enough time unfortunately. So expect like one video per week and then maybe a podcast. I'll do my best. Uh for last [ __ ] time, the injury and surgery recovery protocols linked down below. If you ask me on this live chat, I'll bang you for life. Yeah, I've I've done enough content like that. Okay. Uh so it's all linked down below. I'll put it in the pin comment as as soon as we're done here. Um, so why we're going
@@ -40,11 +42,15 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [14:35](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=875s) want. Robin T, I heard you talk about a zet zedomite years ago, but I haven't
 
+### Viewer question at [14:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=879s): I heard you talk about ezetimibe years ago but haven’t heard you speak of it since. Do you still recommend it and, if...
+
 [14:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=879s) Viewer question (read aloud): "I heard you talk about ezetimibe years ago but haven’t heard you speak of it since. Do you still recommend it and, if so, why not on your CTRL-F list?"
 
 [14:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=879s) heard of you speak it since. I literally talk about it during every blood work video. Every time cholesterol comes up, every time somebody needs to manage their lipids, I talk about a zeta. So, you even either haven't been paying attention or you got uh cholesterol in your ears, maybe. Do you still recommend it? Yes. And if so, whether it's not on your contra source list, uh it should be there. And if it's not there, it's because I removed uh a source recently or I redid their source list and they took a Zamipe off. Um so, I'll see if I can add it. If you go through the sources like uh PCT, they should have it and otherwise AP should have it. AP is coming out with a new website reasonably soon. So I'll index his website. Um as well he has Zmi and 24 they they've just been their communication has been [ __ ] Um, so I took them off until they can sort their [ __ ] out cuz I don't want to be uh the one like I didn't hear back from them for 4 weeks and then I have to in between and then another guy comes to me I didn't hear back or didn't get order confirmation or didn't get tracking details and before you know it I'm you know for a little bit of commission I'm playing in between help desk. I'm don't want to do that. So until they sort their [ __ ] out I cannot promote it and I think maybe they're the one that sold the Zenomype. So, and if you don't know what the abbreviations are, then well, you can find that on the source list. Steve Allen, supplements like
 
 ## Does Steve Take Citrus Bergamot, Astragalus & TUDCA Year Round?
+
+### Viewer question at [16:04](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=964s): Supplements like Citrus Bergamot, Astragalus Root, and Tudca. Do you take these year around or cycle them?
 
 [16:04](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=964s) Viewer question (read aloud): "Supplements like Citrus Bergamot, Astragalus Root, and Tudca. Do you take these year around or cycle them?"
 
@@ -55,6 +61,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 ## How To Start A Business
 
 [17:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=1059s) intelligent. That's what young and dumb people say, but that's fine. I'm young
+
+### Viewer question at [17:43](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=1063s): Im young and intelligent: any tips from steve how to actually get going starting a business? I lack the confindence, ...
 
 [17:43](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=1063s) Viewer question (read aloud): "Im young and intelligent: any tips from steve how to actually get going starting a business? I lack the confindence, thinking my efforts are pointless"
 
@@ -67,6 +75,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 ## Can GHK-Cu Tighten The Skin?
 
 [21:02](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=1262s) Klein, hey, two years ago I lost 150
+
+### Viewer question at [21:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=1263s): Hi 2 yrs ago, I lost 150 lbs and had some bad loose skin (apron belly but abs still). Started 5 mg ghk what can I exp...
 
 [21:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=1263s) Viewer question (read aloud): "Hi 2 yrs ago, I lost 150 lbs and had some bad loose skin (apron belly but abs still). Started 5 mg ghk what can I expect In 6-9 months. Ghk deep dive?"
 
@@ -154,17 +164,23 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [51:07](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3067s) movie. 56 years old. Going to use your
 
+### Viewer question at [51:08](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3068s): 56yo, gonna use your trt vid to design my own protocol, is there any cons that I should know?
+
 [51:08](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3068s) Viewer question (read aloud): "56yo, gonna use your trt vid to design my own protocol, is there any cons that I should know?"
 
 [51:09](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3069s) TRT video to design my own protocol. Are there any cons that I should know if everything is discussed there? Everything is discussed there, buddy. Uh, cons, high blood pressure, hair loss, gyno, water retention, uh, insane libido, feeling like a [ __ ] man again, uh, being a rebel, anti-governmental protests, seeing through the [ __ ] not finding your wife hard enough, wanting to [ __ ] girl half her age, uh, getting in shape, making a fuckload of money, not giving a [ __ ] Being yourself, spending your money on motorbikes and cigars. Yeah, man. A lot of risks. A lot of risks. Also, my sodium was out of the range. Yeah, that seems pretty normal. Should I like electrolytes are usually in range? If they're off, then then your kidneys are [ __ ] So it's uh or or you're taking something like Telmmaarten or Nivival which really has an overlapping effect. But I I wouldn't worry about these numbers, man. I wouldn't your your body is pretty good at regulating your electride levels unless you take medications that manipulate it or your kidneys are blown out.
 
 [52:32](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3152s) uh previously experiencing tender
 
+### Viewer question at [52:32](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3152s): Previously experiencing tender breast with E2 at 45 and one month on raloxafine and dropped tren and anadrol. Prolact...
+
 [52:32](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3152s) Viewer question (read aloud): "Previously experiencing tender breast with E2 at 45 and one month on raloxafine and dropped tren and anadrol. Prolactin now at 238 mu/L. Should I lower prolactin before reintroducing tren and anadrol?"
 
 [52:35](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3155s) breasts. You mean gyno with estradalis 45 and one month on reloxifene and and drop trend and nod prolactin is now 238 millio use per liter. Should I lower prolactin before reintroducing? So you didn't learn from your mistake, right? You you had gyno before your estrogen went or your estrogen was normal but your prolactin is high. You took a month of relaxine and dropped the train on anrol. Now you want to add it back in. No test mastron primo that's it. I can't live without training and drone. Then then do the [ __ ] gyno surgery.
 
 ## Can You Get Gyno With E2 In Rage?
+
+### Viewer question at [53:18](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3198s): Hey Steve !can you still start to develop gyno , even though estradiol is in range ? if so , how/ why ?
 
 [53:18](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3198s) Viewer question (read aloud): "Hey Steve !can you still start to develop gyno , even though estradiol is in range ? if so , how/ why ?"
 
@@ -176,6 +192,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## When Are You Fully Recovered After ACL Surgery?
 
+### Viewer question at [56:59](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3419s): 5’11,84kg 8% BF. 300mg test,100mg primo. Goal is 6% BF & hold until August. I want to compete 12 months but need to g...
+
 [56:59](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3419s) Viewer question (read aloud): "5’11,84kg 8% BF. 300mg test,100mg primo. Goal is 6% BF & hold until August. I want to compete 12 months but need to get done: Off szn, gyno & ACL surgery, time off drugs. Wondering how to time it all?"
 
 [57:00](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3420s) body fat 300 test 100 primo per week goal 6% body fat hold until August I could be 12 months but needs to get done offseason gyno ACL surgery time of drugs wondering how to time it all uh do the gyno surgery and ACL surgery now do it now because if you go down to 6% body fat and hold until August is that for like uh it's summer and I want to look good on the beach purposes And the timing really depends on what how you spent your social time. So I kept procrastinating the the gyos surgery and the is and the leg surgery. Um and the gyo surgery is still not recovered, man. It's not still got a little bit of scar tissue. It's a lot better than before, right? But I also did lipo suction like in before it was like this like this much fat and now it's like this much fat. Still I got a little bit maybe a little bit more. Um so I still need to get leaner obviously. So, I would, you know, if your goal is 6% body fat until August and then uh, you know, you want to look large and in charge on the beach and [ __ ] a lot of [ __ ] fine. I get it. Do the gyo surgery and ACL surgery as fast as possible. Clean out and then uh you start prepping to compete. So, you got, let's see, two week two months, four to six months of recovery.
@@ -184,15 +202,21 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Thoughts On Stacking Ngenla With Pharma Grade HGH
 
+### Viewer question at [59:00](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3540s): Thoughts on using a lower dose long acting gh (still dosed daily) to have constantly elevated gh stacked with 5-10iu ...
+
 [59:00](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3540s) Viewer question (read aloud): "Thoughts on using a lower dose long acting gh (still dosed daily) to have constantly elevated gh stacked with 5-10iu of decent underground gh before bed. Still giving a large pulse and more cheap ius"
 
 [59:01](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3541s) using lowd dose long acting growth hormone still do daily to have consistently elevated growth hormone stacked with 5 to 10 decent underground growth hormone before bed? Still giving you large pals and steep IUs. Uh, never heard anybody try it before, but could make sense. like how many how many IUs of equivalent of somatrogen would you you know or what sato engina right so I'll use 6 milligrams in genla equaling about 10 I use of growth hormone after your discount for the the hCG subunit weight it's like combining MK677 with you know UGL growth hormone at 5 to 10 I use you'll probably be very watery Will it be worth it in the long run? Sure. Sure. Sure. Sure. I know. I I think the blood glucose issues and the water retention probably will prevent you from doing this long term.
 
 [1:00:06](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3606s) Yeah. All right. I'll keep my eye on it. But oh, here it is. Tedd up to 500
 
+### Viewer question at [1:00:11](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3611s): titrated up to 500mgs of test with out ai on first cycle. planning on adding in a secondary anabolic for next cycle(p...
+
 [1:00:11](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3611s) Viewer question (read aloud): "titrated up to 500mgs of test with out ai on first cycle. planning on adding in a secondary anabolic for next cycle(primo or mast). what would be a good starting dose for my secondary anabolic?"
 
 [1:00:11](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3611s) milligrams of test with an AI in the first cycle. Pairing on adding in a secondary anabolic for the next cycle. Primo Mestron. What would be a good starting dose from a secondary anabolic? 250 test and 250 primo or 250 mastron. So you start with the same dose um because you get a synergistic effect. You get less bloat, less water retention
+
+### Viewer question at [1:00:30](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3630s): Will HGH put you at greater risk of high blood glucose if you have carbs right before or after the GH dose? Should ca...
 
 [1:00:30](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3630s) Viewer question (read aloud): "Will HGH put you at greater risk of high blood glucose if you have carbs right before or after the GH dose? Should carbs be avoided near a GH dose?"
 
@@ -202,6 +226,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:00:41](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3641s) risk of higher blood blood glucose if you have carbs right before after the growth hormone dose. Should carbs be avoided near the growth hormone, though? Yes, I think that's ideal. Unless you're a [ __ ] freak and your metabolism is absolutely insane. This doesn't matter. But judging by your picture, you know, uh you're not a freak, that's for sure. So, if you take your growth hormone before bed, I would not have carbs with the last meal of the uh before bed. I mean, why would you take carbs before bed anyway? You know, take that uh around the workout. All right. Super sticker. Slic. Which alien is that? And recorder tit up to 500 milligrams test without an AI. I just answered this. I just answered this, bro. Please tell me your thoughts on
 
+### Viewer question at [1:01:38](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3698s): Please tell me your thoughts on Anavar and Enclo cycle.
+
 [1:01:38](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3698s) Viewer question (read aloud): "Please tell me your thoughts on Anavar and Enclo cycle."
 
 [1:01:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3699s) Anavar and Enclophene cycle. Man, I feel like banning this guy, you know. I'm going to be generous and not banan today. Uh, what do you
@@ -210,9 +236,13 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:01:48](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3708s) think about SS31? So, I used this in the past five mills per day for two weeks and I did not do anything in the bigger picture of the mitochondrial support stack that I was already on. So, I felt it was a based on money. Um, I haven't really done the research on it much since then. Uh I'll I'll redo the SS1 or SS31 research, the eleides research when I work on the mitochondrial support stack redo video, but that might be weeks to months away based on all the other videos that I need to do and all the workload that I got coming up. Yeah, it will be a while away. So aneol of one, it didn't work for me. Too expensive to run it again. Hey brother, 2 milligrams of remedics is
 
+### Viewer question at [1:02:28](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3748s): Hey brother. 2mg adex is said to reduce e2 by 90% is that sound right? A nd iirc MT2 was .5 mg daily then .1 mg maint...
+
 [1:02:28](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3748s) Viewer question (read aloud): "Hey brother. 2mg adex is said to reduce e2 by 90% is that sound right? A nd iirc MT2 was .5 mg daily then .1 mg maint ? Would love to get you opinion on what my physique is lacking. @Provethemwrong_fit"
 
 [1:02:29](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3749s) said to reduce estradile by 90%. Does it sound right? Yes. If you do that for natural individuals, I think that's uh I think that's for naturals, not for uh people who are enhanced. And I don't know, Milano 102 was 0.5 milligrams daily. And then you I'm not going to do that, man. We don't have time for that. Hire a [ __ ] coach. I'm not going to do uh rate my physique here live. We're This is not what the Q&A is for. So, thanks for your 20 bucks, but uh No. And thanks for all the great content for the
+
+### Viewer question at [1:03:05](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3785s): Thanks for all the great content! for the diaper fund.
 
 [1:03:05](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3785s) Viewer question (read aloud): "Thanks for all the great content! for the diaper fund."
 
@@ -228,9 +258,13 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Pharma HGH Vs. UGL HGH
 
+### Viewer question at [1:07:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4023s): Glad to be back! Quick HGH question. Is there a difference between pharma and genetics in terms of substance structur...
+
 [1:07:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4023s) Viewer question (read aloud): "Glad to be back! Quick HGH question. Is there a difference between pharma and genetics in terms of substance structure or it's just about quality/potency diferrences?"
 
 [1:07:04](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4024s) growth hormone question. Are there any differences between pharma and generics in terms of substance structure or is just about quality potency differences? Now, I think the amino acid sequence is exactly the same. But pharmaceutical um has less impurities. It's 99.7% pure or less more pure 99% 99.9%. and generics could be 80% 90% 95% 97% um and again it depends on how it comes back at Yanoshik or some of these other third priority uh you know analytic websites um so so always make sure that if you go with generics you check out what kind of you know what kind of lab results you get out of that and then from the 0.3 to 3% impurities you might get various side effects that's the only difference and the price obviously But offseason you can get away with generics and then as you get leaner it's probably better to use pharma because you're also on more gear and pharma is just a little bit cleaner so you can judge your conditioning a little bit better when you get leaner and you have less water retention less side effects because if you're on 50 milligrams anadrol per day and 8 I use growth hormone per day uh that's basically you could compare that being on 50 milligrams deanabol per day and and you know 10 IUs of UGL growth hormone or 15 IU UGL generic growth hormone and which of these the anadrol the pharmaceutical anidadrol and the pharmaceutical uh pharmaceutical growth hormone or the deanal and the Chinese generics which one will make you hold more water give you more side effects give you carpal tunnel give you water retention yeah give you moon phase give you blood pressure issues right I I think it's generics have you considered NAD+ and
+
+### Viewer question at [1:08:51](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4131s): Have you considered an NAD or a Glutathione deep dive?
 
 [1:08:51](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4131s) Viewer question (read aloud): "Have you considered an NAD or a Glutathione deep dive?"
 
@@ -244,6 +278,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:10:26](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4226s) Steve, are there any indicators that you
 
+### Viewer question at [1:10:27](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4227s): Steve, are there any key indicators that you’d use to determine whether acne is being caused by androgens or by estro...
+
 [1:10:27](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4227s) Viewer question (read aloud): "Steve, are there any key indicators that you’d use to determine whether acne is being caused by androgens or by estrogens?"
 
 [1:10:28](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4228s) use to determine whether acne is being caused by androgens or by estrogens? H, that's difficult. I know you hear people say, I added in the prim and got acne on my shoulders and my arms and then estrogens on the face and the back and the chest. I don't know. I think if you do subcutaneous micro ministrations and your estrogile is in range, then you should not really get acne unless you eat a buckload of chocolate, you know, so avoid the chocolate daily micro ministrations. Keep your estrogen in range and I think you should be okay. And otherwise, there's always Accutane, man. Low dose Accutane 10 milligrams twice a week. Um, yeah, it is uh it can fix a lot of problems. Thanks for all the info, Steve. Looking forward to seeing the new membership website in the future. Yeah, give me some time. Give me some time. Ryan, I was considering running my
@@ -253,6 +289,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 [1:11:25](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4285s) first cycle of VA. I'm currently on TRT. I almost banned you for that. I'm currently on TRT pills with inclapene. Sorry, dude. I'm not interested in answering your question. You take TRT pills and inclin. I know exactly where you're getting that from. And then you want to add an for oral only cycle. That's not what we do in this YouTube channel, bro. Thanks for the 10 bucks. I'll put it in my pocket. You just lost 10 bucks because, well, you're doing it wrong. Real men inject. Real men [ __ ] inject. They inciminate and they inject, right? You take an injection and you give an injection. That's what real men do. They don't take oral [ __ ] It's [ __ ] pathetic. Take that [ __ ] out of here. I don't want your I don't want to hear about it.
 
 ## Thoughts On Blood Work Not Changing From PED Use
+
+### Viewer question at [1:12:16](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4336s): Full bloodwork every 2 months, and no matter how long of cycle, amount, aas combo, or oral. Health markers barely mov...
 
 [1:12:16](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4336s) Viewer question (read aloud): "Full bloodwork every 2 months, and no matter how long of cycle, amount, aas combo, or oral. Health markers barely move, cruise vs blast look identical. Is that genetic, and when do I know to come off?"
 
@@ -266,15 +304,21 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Best Time To Take HGH For Recovery & Performance
 
+### Viewer question at [1:15:36](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4536s): also, for recovery and performance is HGH better pre sleep or upon waking do get 2 pulses (if natural production is s...
+
 [1:15:36](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4536s) Viewer question (read aloud): "also, for recovery and performance is HGH better pre sleep or upon waking do get 2 pulses (if natural production is still on, not sure)? Thanks coach!"
 
 [1:15:36](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4536s) performance is growth hormone better pre-leep or upon waking do you get two pulses if natural production is still recovery and performance I would say that taking it before bed is better and then your your nighttime growth hormone pulse might be diminished because your IGF-1 levels are elevated obviously from the first growth hormone injection that you took blunting or sending negative feedback to your growth hormone pulse that occurs at night at let's say 3:00 a.m. according if you sleep according to your circadian rhythm but recovery and performance uh recovery happens at night also and performance during the day requires you to have lower body weight and if you take your growth hormone before bed you generally gain less additional body weight from uh water than you do when you take it during the day. So yeah, take two AUs, three AU before bed and shut the [ __ ] up. All right, Eduardo, look at the purple super chat. Master Steve, ever
 
 ## Can Arimidex Lower Libido?
 
+### Viewer question at [1:16:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4599s): Master Steve! Ever noticed that Arimidex cuts your libido more in comparison to Aromasin? Thinking about getting back...
+
 [1:16:39](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4599s) Viewer question (read aloud): "Master Steve! Ever noticed that Arimidex cuts your libido more in comparison to Aromasin? Thinking about getting back to low dose Primo along with the Test TRT+++, but DHT and hairline, you know... And thanks again for all the lives you made us!"
 
 [1:16:40](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4600s) noticed that the rimmedex cut your libido more in compared to a Romson? I haven't used the rimmedex in close to a decade. Thinking about getting back to low dose primal along with TRT plus, but DHT and hairline, you know. Well, thanks again for all the lives you uh made us. Okay. Um, no, never noticed that. I I think I mean if you take half a milligram of Reimdex versus 12.5 milligrams of Romin a couple times per week, maybe the Arimedex is more potent than dropping your estradile and that's why your libido is a little bit worse. So, do your blood work, add in the primo. Uh, if you're worried about your hair, then it's obviously t uh just
+
+### Viewer question at [1:17:16](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4636s): All my levels are within range — E2, total T, FSH, LH, SHBG, etc. But my free testosterone is low and below normal, a...
 
 [1:17:16](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4636s) Viewer question (read aloud): "All my levels are within range — E2, total T, FSH, LH, SHBG, etc. But my free testosterone is low and below normal, and I feel like crap. My sleep is okay and my diet is as well.What should I do?"
 
@@ -286,6 +330,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Stack To Lose Stubborn Belly Fat
 
+### Viewer question at [1:18:51](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4731s): Whats going BRO! Love your work, looking for a super stack for weight loss for stubborn belly fat. Can you elaborate ...
+
 [1:18:51](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4731s) Viewer question (read aloud): "Whats going BRO! Love your work, looking for a super stack for weight loss for stubborn belly fat. Can you elaborate on the best stack? Was thinking about L Carnitine 1gm EOD. What else could I add in addition to keto?"
 
 [1:18:52](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4732s) your work. Looking for a super stack for weight loss, for stubborn belly fat. Can you elaborate on the best stack? I'm thinking about LC carnitine one gram every other day. What else could I add in the addition to keto? Okay, so you do ketogenic diet retro 2ide 1 milligram three times per week. Injectable alcarnitine 5 m 500 milligrams per day. Uh 750 micrograms LCU PP332. Uh 1 milligram mod even though it will help less than the SLU PP332. Mirabon or Clamitrol or Rubine or a combination thereof or aluterol instead of the clitrol or ephadrine instead of the clamitrol or the albuterol to uh activate the beta 2 adrenergic receptor. So what you need to do is watch the stubborn body fat video where I discuss all of this at length stubborn body fat. Just type in stubborn and you'll get it and I discuss all of this in great detail. Thanks for the 20 bucks, though. Uh, this will sound like an odd one, but what compounds or peptides work well at reducing or eliminating subgic dermatitis or sorasis all the best? I have no idea. I have no idea.
@@ -294,17 +340,23 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## What Do You Guys Want For Steve To Do With The Memberships?
 
+### Viewer question at [1:20:26](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4826s): I'll miss the Q&A's :( maybe do it monthly and answer questions ranked by donation amount?
+
 [1:20:26](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4826s) Viewer question (read aloud): "I'll miss the Q&A's :( maybe do it monthly and answer questions ranked by donation amount?"
 
 [1:20:28](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4828s) it monthly and answer questions ranked by donation amount. Yeah, I wish uh I wish Live StreamYard would offer that option, but they can't. So, I just have to scroll through everything. Um I I for now, I can't commit to monthly even. And you guys, let me know what you want me to do with the memberships because we got 150 members that pay $10 a month to get their questions uh rolled up and answered, which I've been honoring since the beginning, even though some of the questions are dumb, but so, you know, I have to scold you a little bit. Um, but if I'm not going to do the Q&A, then obviously I need to cancel the membership. So, let me know how you feel about that. Uh, I I'll make a pin comment at the bottom and I'll post it on Instagram. Unfortunately, I can't message any of you uh that are members here. That's not how YouTube works. But uh I could keep it if you guys want to keep supporting the channel for whatever reason or you want to give me $10 for doing nothing basically. Or I could just cancel all the memberships and then uh everybody loses their membership, but also the the duration of time maybe.
 
 [1:21:29](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4889s) Yeah, because the only reason I can cancel the membership is by removing that membership tier of uh vigorous Q&A VIP and then everybody loses their uh their their badges of uh you know 23 months or 18 months or 15 months. So let me know how you feel about that because uh there's multiple options we can do. Is 1200 1300 total T okay for
 
+### Viewer question at [1:21:53](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4913s): Is 1200-1300 total t ok long term trt
+
 [1:21:53](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4913s) Viewer question (read aloud): "Is 1200-1300 total t ok long term trt"
 
 [1:21:55](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4915s) long-term TRT? Yeah, I think so. I think so. But when you're 60, 70, 80 years old, you might want to bring that down to 500 to 700. Depends on how you feel and how you live your life. Drew Vogle, I'm on low milligrams
 
 ## How To Dose MENT
+
+### Viewer question at [1:22:13](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4933s): I am a hyperresponder I guess you could say. I do well with low dose. 400 test 100 Rimobolan 70 tren. how much ment s...
 
 [1:22:13](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4933s) Viewer question (read aloud): "I am a hyperresponder I guess you could say. I do well with low dose. 400 test 100 Rimobolan 70 tren. how much ment should I run a week."
 
@@ -314,6 +366,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:22:55](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4975s) like somebody took epicagen also. What blood test can I do to
 
+### Viewer question at [1:23:00](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4980s): CRP went from 0.7 to 23. what blood test can I do to understand why? i did not change anything. 300 test, 8iu gh, 150...
+
 [1:23:00](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4980s) Viewer question (read aloud): "CRP went from 0.7 to 23. what blood test can I do to understand why? i did not change anything. 300 test, 8iu gh, 1500hcg, 50mg aromasin a week"
 
 [1:23:00](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4980s) understand why? You can't. There's no other blood test. CRP goes up. You need to find the root cause. What caused it? And it's probably the uh the the synthetic carrier oils or epicaggen or dietary problems. It did not change anything. 300 test 8 I use growth hormone 1500 ATG 50 milligrams aromas in a week. Um could be a food thing then food allergy maybe you have uh cancer send your CRP skyh high uh I don't know if you change your food sources if if there's a lot of pollution where you live you started smoking and vaping and and smoking cigars the day before blood work I mean it there's so many things that could change your CRP levels just this dramatically so and unfortunately you could check your homoyine levels and feritin levels which are other markers for information but and then you're none none the wiser what it caused. So now unfortunately this is uh this is what you have to work with. You just have to find a cause to bring it down.
@@ -321,6 +375,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 [1:24:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5043s) Like when I did the epicen experiment my CRP was 21.8 on a sensitive test. So imagine if it was regular it was like 50 probably. Um and because I didn't change any variables it's like okay this must be the epicagen. I took it out and a week later was like 2.5. So it cames down really really fast because I knew exactly what the root cause was. I just answered this, bro. Castles, you mentioned before in a
 
 ## How Does Aromatization Work?
+
+### Viewer question at [1:24:33](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5073s): You mentioned before in a previous live that HCG aromatizes in the testes, and thus, EQ wouldn't affect aromatization...
 
 [1:24:33](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5073s) Viewer question (read aloud): "You mentioned before in a previous live that HCG aromatizes in the testes, and thus, EQ wouldn't affect aromatization from HCG. Do you have an explanation as to how/why EQ doesn't aromatize in balls?"
 
@@ -330,6 +386,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Thoughts On Myostatin Inhibitors
 
+### Viewer question at [1:26:54](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5214s): Thoughts on the myostatin inhibitor SRK-439 getting FDA approval for clinical trials this year?
+
 [1:26:54](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5214s) Viewer question (read aloud): "Thoughts on the myostatin inhibitor SRK-439 getting FDA approval for clinical trials this year?"
 
 [1:26:55](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5215s) inhibitor uh getting FDA approval for clinical trials this year. I've not looked into that. So don't know. I don't know. I'll look into it. Uh but from all of the satin inhibitors that I revealed in the matin inhibitor video, I was not impressed. And again, if it would work, everybody would be running it, man. And dude, I'm running the injectable YK11 now, and I took epicagen. Were my results that dramatic? No. No. You know what lowers my statin? Training. You know what increases levels? Training. You know what increases brain draft, neurotropic factor levels? Training. So, just go to the gym. Don't worry about these drugs. And if if it gets FDA approved, you'll probably not be able to afford it because it sounds like a $200 per pill kind of medication. If everybody stays a member after this Q&A, you may or not win a cookie. Unfortunately, with YouTube, we can't contact any of the members, right?
@@ -338,11 +396,15 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:29:01](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5341s) Uh, four min games weekly or for eight
 
+### Viewer question at [1:29:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5343s): 400 mg weekly for 8 weeks nandrolone npp , good?
+
 [1:29:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5343s) Viewer question (read aloud): "400 mg weekly for 8 weeks nandrolone npp , good?"
 
 [1:29:04](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5344s) weeks. Nanderlone NVP. Good. Sure, man. For two bucks. [ __ ] good. Holy [ __ ] So good. Makes me hard. Oh, can't get any harder than this. Your resistance makes my penis harder. 4chan memes. 4chan memes. How
 
 ## How To Accurately Test IGF-1 After A Cut?
+
+### Viewer question at [1:29:21](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5361s): How long should one wait for to pull blood work after an aggressive 4 week mini cut (27.5% calorie drop) to get an ac...
 
 [1:29:21](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5361s) Viewer question (read aloud): "How long should one wait for to pull blood work after an aggressive 4 week mini cut (27.5% calorie drop) to get an accurate IGF value since carb intake, insulin levels, surplus, etc all effect it?"
 
@@ -350,13 +412,19 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:30:30](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5430s) Are there some people HCG just doesn't
 
+### Viewer question at [1:30:30](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5430s): Are there some people who HCG just doesnt work well for?
+
 [1:30:30](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5430s) Viewer question (read aloud): "Are there some people who HCG just doesnt work well for?"
 
 [1:30:32](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5432s) work well for? Yeah, there's some people who don't respond to it. They might have a varicose seal or or some sort of polymorphism or their hg is fake. That's you HCG doesn't work. That's because your HCG is [ __ ] bunk. You know, HG is [ __ ] bunk, man. You just need to go to Merov drill. Speaking of
 
+### Viewer question at [1:30:53](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5453s): Speaking of 4chan, did you ever learn anything useful back in the day from /fit/?
+
 [1:30:53](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5453s) Viewer question (read aloud): "Speaking of 4chan, did you ever learn anything useful back in the day from /fit/?"
 
 [1:30:54](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5454s) 4chan, did you learn anything useful from back in the day from FIT? Now, I I was out of 4chan by the time Fit came around. I was in B. You know, you're young and dumb and you go to B and you have all these silly conversations with people. But Fit wasn't around when I was on 4chan, man.
+
+### Viewer question at [1:31:11](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5471s): Natty Hematocrit was 50.4%, now on 400T 53.6% doing daily cardio, telmi, an hydrated before bloods is this a concern ...
 
 [1:31:11](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5471s) Viewer question (read aloud): "Natty Hematocrit was 50.4%, now on 400T 53.6% doing daily cardio, telmi, an hydrated before bloods is this a concern and does this mean no EQ for me?"
 
@@ -369,6 +437,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 [1:32:40](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5560s) Watch the YK11. uh uh video you know there'll discover that will be on the screen what I run and that keeps my mat quite in range. Is there anything that scares you
 
 ## Steve Is Very Excite To Become A Dad + Importance Of Financial Freedom
+
+### Viewer question at [1:32:59](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5579s): Is there anything that scares you about becoming a dad? Every man can be a father but not many can be a dad.. just a ...
 
 [1:32:59](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=5579s) Viewer question (read aloud): "Is there anything that scares you about becoming a dad? Every man can be a father but not many can be a dad.. just a thought.."
 
@@ -388,6 +458,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:41:46](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6106s) great content, man. Bump up the price for the Q&A memberships and go to once a month. We will pay. Yeah, I think I know, I know, I know, but I'm I I'm not sure if I could commit to once a month. Like the next month it's blessly fully booked and then well then it's uh any day now, any time now. So, no man, I don't want to take you guys money if I can't offer something in return. So, I'll probably just e either uh make a big announcement that hey the you know the Q&A will be stopped or uh I'll just cancel all the memberships and then make that decision for you guys and then if you want to send me some money just to
 
+### Viewer question at [1:42:20](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6140s): Would love to continue to keep my membership always cool to see the badges and the knowledge youve put forward is wor...
+
 [1:42:20](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6140s) Viewer question (read aloud): "Would love to continue to keep my membership always cool to see the badges and the knowledge youve put forward is worth the support. Maybe pop in for a livestream ever now and then when you want"
 
 [1:42:22](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6142s) schedule a consultation you know do it that way. Uh would like to continue with your memberships. Always cool to see the badges. Yeah. So that's the only problem, right? You'll lose the [ __ ] membership badges and the knowledge you're putting forward and worth the support. Maybe pop in for live stream every every now and then when you want. Yeah. So, but I know I think the first three months of having a daughter, I just either don't want to or I don't have time, you know, and and the next month is planned ahead. And honestly, I just want my Saturday back. I've been doing this for 5 years now with a one-year break. And at one point, enough is enough. You know, enough is enough. I think I gave back a lot and otherwise it will just have to be on a forum something like where I can just do it anytime. But these live streams it's uh I just don't know how to fit it into my schedule with all the stuff that I got coming up. Man, it's like dude, I still need to build a baby room. I need to get my driver's license.
@@ -396,11 +468,15 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Thoughts On Nebivolol For Heart Enlargement
 
+### Viewer question at [1:44:44](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6284s): Any benefit to running Nebivolol before a hard leg day over Telmisartan to avoid heart enlargement? If yes, what is t...
+
 [1:44:44](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6284s) Viewer question (read aloud): "Any benefit to running Nebivolol before a hard leg day over Telmisartan to avoid heart enlargement? If yes, what is the best administration protocol."
 
 [1:44:45](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6285s) before hard leg day over to start to avoid heart enlargement uh if yes what's the best administration protocol I know I would I would just take it every day because if you have a hard leg day you also have a hard back day and a hard chest day and that also sends your heart rate skyhigh. So if you're really wor worried about heart enlargement and you need more better blockade and and blood pressure management and you run both 5 milligrams in bivival and maybe 20 to 40 milligrams to masartan and that should avoid heart enlargement more than taking nivol occasionally and tasartan daily. Um, that's what I did when I when I every time I blast my socks off when I was 120 kilos, I took Nivival and Thomas Hart in at the same time. And you know, and my heart was generous but not too big. Lucas, I really appreciate your response and wish you and your wife all the best. Definitely going to be something new. Good stuff, man. Yeah, I can't wait, dude. Can you run 10 milligrams of metal blue indefinitely?
 
 [1:45:49](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6349s) There's no scientific evidence to support that, but based on anecdotal reports, uh I would say you can run that for a pretty long time. Yeah. So, but you'll be a guinea pig just like I am. Uh Drew Vogle, I'm happy for you. Having kids is awesome, especially when you get to act like a kid again. Yeah. Can't wait for that. I have a son and we go skateboarding, go-karting. It's it's awesome. Very happy for you. Yeah, I can't wait for that, dude. Even if it's playing with Barbies and uh you know that kind of stuff, it's just it's gonna be a lot of fun. Be present. Do stuff together. Even if it's a bit weird and boring, just be present. Be good. Dad, right? You you chose to put this life on the on the planet and now you got to see it through. You know, just like marriage. You decided to get [ __ ] married. Now you got to see it through. Any chance to get a DD on peptide
+
+### Viewer question at [1:46:37](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6397s): any hance we get a DD on peptide allergies etc?
 
 [1:46:37](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6397s) Viewer question (read aloud): "any hance we get a DD on peptide allergies etc?"
 
@@ -411,6 +487,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 [1:46:48](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6408s) definitely enjoy Universal. Yeah, I've been to Disneyland and Universal. Um, Universal Japan and Disneyland Paris, Disneyland LA, Disney World Florida, Disneyland Sea, Japan. I haven't been to Hong Kong or China. Uh, but hey, it's closer than the US, so we might do a test run there first. Great rides. Can't wait to have memories like that with my future kids. Happy for you. Yeah. So, I went with my parents when we were That was actually a good holiday. It was like two days at Disneyland. We stayed at one of the hotels. I think it was after my dad got one of those fat bonuses for for finishing a project early. And then we drove from Holland to Disneyland Paris. And then we stayed in a hotel uh Disney official Disney hotel. And then we went to the park for two days in a I think it was absolutely fantastic. No fast passes though. I don't think those existed cuz I do remember standing in line for like two hours straight just to watch uh you know that Michael Jackson 3D video with the little I don't know [ __ ] doll something like that and Space Mountain and you go through it. You're like oh this is a great roller coaster but I didn't see [ __ ] Um so yeah I I and and we went to the Eftilling a lot. That's basically the best theme park in Holland. Eftling.
 
 [1:48:08](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6488s) It's a lot of fun. I love theme parks, man. It's uh I love theme parks. You can't fit in a Huracan anyway. Yes, I can, man. I've sat in a Huracan a couple times. Corvette. Those are a bit small. Uh Chad, no questions. Just want to say congratulations. Thank you. Is that congratulations for my daughter being born soon or congratulations for not being able to do the vicious Q&A? Let's do it for both. Yeah. Will we ever go a Q&A without an
+
+### Viewer question at [1:48:41](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6521s): Will we ever go a Q&A without an anavar only cycle question
 
 [1:48:41](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6521s) Viewer question (read aloud): "Will we ever go a Q&A without an anavar only cycle question"
 
@@ -426,6 +504,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [1:50:20](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6620s) go. Cutting fat, rebuilding muscle after
 
+### Viewer question at [1:50:21](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6621s): Cutting fat & rebuilding muscle after a year off (depression). Now: retatrutide 1 mg/wk, LGD-4 2.5 mg/d, regular HBOT...
+
 [1:50:21](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6621s) Viewer question (read aloud): "Cutting fat & rebuilding muscle after a year off (depression). Now: retatrutide 1 mg/wk, LGD-4 2.5 mg/d, regular HBOT (longevity), eyeing plasmid follistatin gene therapy. 500-cal deficit + muscle memory helping. Any recommendations to keep strength gains & momentum?"
 
 [1:50:22](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6622s) one year off depression. Now, Richard Diet 1 milligram per week, LGTD 2.5 milligrams per day. Regular Hbot longevity. What's that? 100 bucks. I'll uh I'll put in the effort. Oh, hyperbaric oxygen therapy. All right. Uh eyeing plasmid folstatin gene therapy. Don't do it. It's a waste of money. It's an absolute waste of money. 500 calorie deficit plus muscle memory is helping. Any recommendations to keep strength gains and momentum? Added some testosterone, man. And replace the LGD for uh for anavar because LGD is [ __ ] gay. There's no scientific evidence on humans or very limited. Anavar has scientific evidence of plenty. You're taking retroact. You're in choric deficit. So, you definitely need some testosterone and anavar. And testosterone has anti-depressive properties, man. And if you take LGD and it's shutting down your HPTA, then your testosterone estral is even lower. And now you sink further into depression. So um and look at the fluoxamine. It it made the world of difference for me or at least methylene blue 10 milligrams per day because 10 milligrams or 5 milligrams methyline blue is very close to the scientifically proven dose of 15 milligrams per day where it was shown to reduce depression and anxiety that I mentioned it in methylene blue deep dive. So if you take 10 milligs metal blow I think it will resolve depression or symptoms of depression already quite a bit. And then uh and testosterone is the best anti-depressive compound you can take, man. And if you're already taking LGD, you're not adverse to and you're injecting, you're not adverse to injecting from the retro tides. The following gene therapy is what 20 $25,000. Put that $25,000 in Bitcoin.
@@ -436,6 +516,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Does Steve Plan On Using MENT Again?
 
+### Viewer question at [1:53:40](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6820s): Any plans to incorporate more trestolone into your future cycles? Or are you sticking to your test/primo?
+
 [1:53:40](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6820s) Viewer question (read aloud): "Any plans to incorporate more trestolone into your future cycles? Or are you sticking to your test/primo?"
 
 [1:53:41](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6821s) incorporate more Tristallone in your future cycles? Are you sticking to your test primo? actually I want to put trust alone in there and um I just don't know when because this follow like I'm I'm so [ __ ] sore now from the YK11 and I'm getting close to a DLO like I'm I'm strong as [ __ ] obviously hitting PRs but it also drains my mental capacity and I got about two weeks left on this followstaten 344 experiment and then AP wanted me to run the enginella experiment for at least a month so I can kind of discuss that because I'm sure it will generate some sales if I like it right if give it my blessing. Um, I'm pretty close to getting a cruise and again by the time the engine experiment uh ends and my daughter is here and I don't know if I can commit to uh like 500 tests, 500 deca and 150 mint even. That was a great cycle by the way. Okay, it was a little bit watery but it was a great cycle. I was in a good mood. It was strong. Uh, you know, joints felt very lubricated. Now everything is starting to feel a little bit squeaky again but not as bad as I expected.
@@ -444,6 +526,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 ## Does Steve Enjoy Fasted Cardio?
 
+### Viewer question at [1:55:42](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6942s): Steve Just wondering do you actually enjoy daily fasted cardio? I find it therapeutic and calming
+
 [1:55:42](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6942s) Viewer question (read aloud): "Steve Just wondering do you actually enjoy daily fasted cardio? I find it therapeutic and calming"
 
 [1:55:43](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=6943s) doing daily fast cardio? I find it therapeutic and calming. Yeah, I enjoy it. Yeah, sometimes I don't feel like it and then I'll just scroll on my phone, look for something to watch, and then I'll get through it, man. It's uh there's things you enjoy to do and things you have to do, right? That's uh that what that's what it means to be a [ __ ] adult. So, sometimes you don't feel like doing it and then you still do it. Like these cute Sometimes I really didn't feel like doing this Q&A, but I still sat here for two and a half hours answering questions like a [ __ ] adult. Sometimes I lost my mind a little bit. Got a little bit irritated, a little bit upset. And hey, man, I'm only human. And again, Anniver only cycles every single week. MK6 every single week. What' you expect was going to happen, right? I'm going to just keep that cool. Like I'm not Chase Irons, man. That guy is so chill. I wish I could have his genetics, but I'm [ __ ] hot athead, man. Sometimes the [ __ ] gets to me.
@@ -451,6 +535,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 [1:56:45](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7005s) Uh, blue collar bodybuilding, what's up,
 
 ## Negativity Has Grown In The Fitness Industry
+
+### Viewer question at [1:56:47](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7007s): What’s up, brother? Hope all is well. Looking like you got a tan a bit
 
 [1:56:47](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7007s) Viewer question (read aloud): "What’s up, brother? Hope all is well. Looking like you got a tan a bit"
 
@@ -465,6 +551,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 ## Best Places To Go In Thailand
 
 [2:01:15](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7275s) greeting from Holland. I'm thinking to
+
+### Viewer question at [2:01:15](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7275s): Hey Steve greetings from Holland i'm Thinking to go to Thailand for a Vacation where do you recommend to go
 
 [2:01:15](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7275s) Viewer question (read aloud): "Hey Steve greetings from Holland i'm Thinking to go to Thailand for a Vacation where do you recommend to go"
 
@@ -486,15 +574,21 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 
 [2:07:52](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7672s) okay to visit Thailand on a tourist visa
 
+### Viewer question at [2:07:53](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7673s): Hi Steve is it okey to visit Thailand on a tourist visa and stay for 2 months then extend the period? Moving with my ...
+
 [2:07:53](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7673s) Viewer question (read aloud): "Hi Steve is it okey to visit Thailand on a tourist visa and stay for 2 months then extend the period? Moving with my girlfriend and working from Thailand with my swedish company"
 
 [2:07:54](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7674s) and stay for two months and extend the periods? Moving with my girlfriend and working from Thailand with my Swedish company. Yeah, you should be able to do that. Just keep in mind that they I think they just changed from 60 day to 30 days and you can only extend your 30 days one time. So if the 60 days is no longer available, it's probably better to go through your the Thai consulate or immigration and get a couple tourists visas in advance which last 60 days which you can then extend with 30 days for a total of 90 days. Uh, and if you want to stay any longer, just get the DTV visa. Then you can stay 18 or uh 180 days. Yeah. But look into the options, man. They keep changing. I'm on a marriage visa. I just got it extended. So, I just show up once per year, show that I have 400,000 bot in the bank, which is $13,000 or something. And then uh I show up with my wife and some pictures and uh smile and why and file the paperwork and then I'm done in 15 minutes. So, because I'm married to a Thai and then you can stay. Good stuff. If you wanted to experience most
 
 ## Budget To Experience The Most Of Thailand In 2 Weeks
 
+### Viewer question at [2:08:57](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7737s): If you wanted to experience most of Thailand with another person for like 2 weeks what kind of budget would you sugge...
+
 [2:08:57](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7737s) Viewer question (read aloud): "If you wanted to experience most of Thailand with another person for like 2 weeks what kind of budget would you suggest? 5k? More? Not including flights"
 
 [2:08:58](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7738s) of Thailand with another person for like two weeks, what kind of budget would you be suggesting? 5K more, not including flights. I think you need about $500 per day to have a good time here. Yeah. So, two weeks would be uh and it's for a couple $7,000. $5,000 is doable. Yeah, when I travel, I spend $1,000. That's always my goal. That's including the flights. So, we went to uh Bali for Bliss's class. It was $9,000 in eight days. But yeah, that's me. I could do it a lot cheaper, too. But I I I just want to have fun and don't give a [ __ ] about spending money. But 5K is doable, man. For two weeks, for two people. Yeah, man. Very, very doable. very very doable. Yeah. So, send me an email about this. That's why I removed them from the source list because their uh contact details are atrocious. So, please uh contact me through the website. I'll get you sorted and make sure they contact you and send you your orders. But that's why I removed them from the source list because their communication is just [ __ ] atrocious the last couple of months and I'm sick of acting as a inbetweener. But I'll make sure you get your money or your your order in and otherwise a refund. Please contact me
+
+### Viewer question at [2:10:22](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7822s): thoughts on Sodium Valproate for post-finasteride? Our late friend's protocol sounds promising.
 
 [2:10:22](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7822s) Viewer question (read aloud): "thoughts on Sodium Valproate for post-finasteride? Our late friend's protocol sounds promising."
 
@@ -503,6 +597,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 ## Benefits Of Traveling
 
 [2:10:46](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7846s) worked. If you're 25 years old and
+
+### Viewer question at [2:10:47](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7847s): If you were 25 and retired, how would you personally maximize Positive Emotions, Engagement, Relationships, Meaning, ...
 
 [2:10:47](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=7847s) Viewer question (read aloud): "If you were 25 and retired, how would you personally maximize Positive Emotions, Engagement, Relationships, Meaning, and Achievement for the rest of your life?"
 
@@ -521,6 +617,8 @@ url: https://www.youtube.com/watch?v=aFs_qHXqWpM
 [2:16:08](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=8168s) more than enough for me. Yeah, it's that's a lot of fun. also, but they're a little bit higher, right? Because, you know, you need that suspension. So, I I I never really I like the bikes that are a little bit lower, so you can put both feet on the floor and the center like that's why I like the BMW cuz it's got a boxer engine so that the it's down. It's not up and the cylinders are down. So, the center of gravity is really low and it makes it very maneuverable. [ __ ] man. I can't wait to own that [ __ ] car. I'm back. Oh, I can't wait. It's going to be so much fun. All right, I think we're pretty much done for today. No. Yeah, we're done for today. All right, guys. Um, thanks for joining in for the Victor's Q&A for so many years. Uh, it was a lot of fun, but now it's time to kind of focus a little bit more on family. Oh, Jesus Christ. Non Drugler
 
 ## Thoughts On Flat Bench
+
+### Viewer question at [2:17:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=8223s): Non drug related question! Do you think flat bench has a place, or just do incline when lifting for size?
 
 [2:17:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=8223s) Viewer question (read aloud): "Non drug related question! Do you think flat bench has a place, or just do incline when lifting for size?"
 

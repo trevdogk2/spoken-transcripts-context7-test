@@ -62,6 +62,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 ## Thoughts On MA Motivator
 
+### Viewer question at [16:24](https://www.youtube.com/watch?v=0lswGv0maqE&t=984s): Watched it better pumps vid. Used MA motivator .25ml in each Lat. pip horrible lasting >24 hours. Can I use SC somewh...
+
 [16:24](https://www.youtube.com/watch?v=0lswGv0maqE&t=984s) Viewer question (read aloud): "Watched it better pumps vid. Used MA motivator .25ml in each Lat. pip horrible lasting >24 hours. Can I use SC somewhere & get pump effects?"
 
 [16:27](https://www.youtube.com/watch?v=0lswGv0maqE&t=987s) . Check out the Better Pumps video. I used a quarter of a million Motivator in each batch. Horrible pain after the injection that lasted more than 24 hours. Can I use C somewhere and get pump effects? C sub Q. Yes . Yes, Motivator isn't really a pump product. It's more like a motivational product with NAD+ and choline, and then the other ingredients. Um, so you can fix that subq. I simply do it IM because otherwise I have to do like 500 million injections, and if I'm going to use 1 million or 2 milliliters or 3 milliliters like today or yesterday I did quadriceps and I felt a little bad. So I wanted to try some pre-workout and took three cc per side and had a legendary leg day. Yes, I know I shouldn't do that in the YK11 experiment, but the blood tests have to be available within four weeks, so give me a break. I cheated a little. Okay, I admit it. Everyone is supposed to use the test and YK11. Shut your [ __ ] mouth. Not you, Carolyn, but people in general. I already give more than enough.
@@ -70,6 +72,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [18:30](https://www.youtube.com/watch?v=0lswGv0maqE&t=1110s) So you'd better use my discount codes. The best
 
+### Viewer question at [18:34](https://www.youtube.com/watch?v=0lswGv0maqE&t=1114s): hey Steve quick question what are the best products to buy from pct mart?
+
 [18:34](https://www.youtube.com/watch?v=0lswGv0maqE&t=1114s) Viewer question (read aloud): "hey Steve quick question what are the best products to buy from pct mart?"
 
 [18:35](https://www.youtube.com/watch?v=0lswGv0maqE&t=1115s) products to buy at PCT. It depends on what you're looking for, right? If you're looking for PCT, you know, I indexed everything in the F control source list, right? All pharmaceutical products and products I endorse. So, give it a try . But, friend, they have so many products and I don't know what you're looking for. So I ca n't give you recommendations with
@@ -77,6 +81,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 ## Reta & SGLT2 Inhibitor Protocol For Fat Loss
 
 [18:54](https://www.youtube.com/watch?v=0lswGv0maqE&t=1134s) so little information. Benjamin, what's wrong? What was Reta's protocol and
+
+### Viewer question at [18:58](https://www.youtube.com/watch?v=0lswGv0maqE&t=1138s): hey steve, what was the protocol of reta, and a sglt2 inhibitor? thanks!
 
 [18:58](https://www.youtube.com/watch?v=0lswGv0maqE&t=1138s) Viewer question (read aloud): "hey steve, what was the protocol of reta, and a sglt2 inhibitor? thanks!"
 
@@ -90,6 +96,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [22:26](https://www.youtube.com/watch?v=0lswGv0maqE&t=1346s) sure. Gym, 28 years old, with a
 
+### Viewer question at [22:27](https://www.youtube.com/watch?v=0lswGv0maqE&t=1347s): I'm a natural gym goer. 28 years old with 320 total test. Would you recommend hcg mono therapy first, rather than trt?
+
 [22:27](https://www.youtube.com/watch?v=0lswGv0maqE&t=1347s) Viewer question (read aloud): "I'm a natural gym goer. 28 years old with 320 total test. Would you recommend hcg mono therapy first, rather than trt?"
 
 [22:28](https://www.youtube.com/watch?v=0lswGv0maqE&t=1348s) total of 320 nanogs in the distillery test. Would you recommend hCG monotherapy first instead of TRT? Yes, it's a good way to evaluate . I already mentioned it in the video "Try this before starting TRT". I assume you've already seen it, otherwise you wouldn't be asking this question, but watch it again to confirm the protocol I'm about to explain. Basically, what you want is to assess whether your testicular function is intact, not whether your pituitary gland is lazy in sending that LH to FSH signal and it doesn't reach where it wants to. Therefore, the HD monitoring therapy and evaluation protocol increases doses from 250 IO to 500 IO, to 000 IO three times a week subcutaneously from Monday to Friday, up to perhaps 1000 IO every day. But by then you'll probably need an aromatase inhibitor because otherwise your estradiol levels will reach 45 kg. Well, we'll get to that question. That's ok. It's great that I can afford all my alcohol in Bali. Yes. Where was that? Yes. 250 IO three times a week for one or two weeks. 500 IOS three times a week for one or two weeks. 1000 IOS three times a week for one or two weeks. And then 1000 iOS per day.
@@ -101,6 +109,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 ## How To Assess Real Liver Enzymes & Creatinine Elevation
 
 [25:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=1510s) between training for muscle mass, increasing
+
+### Viewer question at [25:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=1510s): Steve, how do you discern between training/muscle mass inflating liver enzymes and creatinine vs. legitimately elevat...
 
 [25:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=1510s) Viewer question (read aloud): "Steve, how do you discern between training/muscle mass inflating liver enzymes and creatinine vs. legitimately elevated values?"
 
@@ -120,6 +130,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 ## Importance Of Blood Work
 
+### Viewer question at [29:38](https://www.youtube.com/watch?v=0lswGv0maqE&t=1778s): On average, what would you say is the highest dose of testosterone only that most men can tolerate without an AI? Tip...
+
 [29:38](https://www.youtube.com/watch?v=0lswGv0maqE&t=1778s) Viewer question (read aloud): "On average, what would you say is the highest dose of testosterone only that most men can tolerate without an AI? Tips on how to gradually increase the dosage when trying to find that limit?"
 
 [29:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=1780s) is the highest dose of testosterone that men can tolerate without an AI? It's very individual, my friend. Some people can tolerate 150 milligrams, and then Chase Irons reached 5000 milligrams. So start small and gradually increase the volume. It's that simple. And get blood tests every month or every time you increase the dose. Tips on how to gradually increase the dose when trying to find that limit. Get a blood test. You go from 150 tests for eight weeks, you have blood tests, then 250 tests for eight weeks, you have blood tests, and then 375 and then 500 and 750 and one gram, then one and a half grams, and then two grams. The changes increase slowly, and at some point your body will say, "No, [ __ ] you , here's your estradiol." For example, if I don't use an AI with 625 milligrams of testosterone, I have a serum estradiol of 225 grams per milliliter. However, it's also because I'm overweight, not as much as I used to be, but my body fat levels aren't low enough to cause less aromatization. And you know I could take things that, uh, you know, downregulate the turnover or reduce my body fat levels.
@@ -132,6 +144,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [32:03](https://www.youtube.com/watch?v=0lswGv0maqE&t=1923s) So yeah, forget about Big Brother, man. That's old news. I know that Joshua meme has been on 4chan too often to be a brother. Hi Steve, my average blood pressure is around
 
+### Viewer question at [32:17](https://www.youtube.com/watch?v=0lswGv0maqE&t=1937s): Hey steve My avg bp is around 125/67 Witch i thought was pretty good but i’ve been learning about pulse pressure and ...
+
 [32:17](https://www.youtube.com/watch?v=0lswGv0maqE&t=1937s) Viewer question (read aloud): "Hey steve My avg bp is around 125/67 Witch i thought was pretty good but i’ve been learning about pulse pressure and apparently mine is not good, how could i work on improving this?"
 
 [32:18](https://www.youtube.com/watch?v=0lswGv0maqE&t=1938s) 125 over 67, which I thought was pretty good, but I've been learning about pulse pressure and apparently mine isn't good. How could I improve it? I have no idea what pulse pressure is or if it's a bad thing. So you're leaving me perplexed. I have no idea. I think these readings are good. They seem fine to me. That's more or less what I have. 25 out of 65, 70 at most. Or maybe 75 if I'm taking a stimulant. Pulse pressure. I don't know, man. This comes from the TRT community, which is trying to sow fear. Don't use AIS, brother. You're going to die. Jay Fatler, come on, man. Where is your question? Going up. I'm going down, but I don't see her. Lionus,
@@ -139,6 +153,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 ## How To Cut E2 By 25% With EQ While On 200mg Test
 
 [33:16](https://www.youtube.com/watch?v=0lswGv0maqE&t=1996s) I want to reduce estradiol by 25%
+
+### Viewer question at [33:16](https://www.youtube.com/watch?v=0lswGv0maqE&t=1996s): If u want to cut e2 by 25% on 200mg test per week (to 60 from 80), how much EQ would you add per week?
 
 [33:16](https://www.youtube.com/watch?v=0lswGv0maqE&t=1996s) Viewer question (read aloud): "If u want to cut e2 by 25% on 200mg test per week (to 60 from 80), how much EQ would you add per week?"
 
@@ -154,11 +170,15 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 ## Thoughts On Using Proviron As An AI
 
+### Viewer question at [37:18](https://www.youtube.com/watch?v=0lswGv0maqE&t=2238s): Thoughts on my coach suggesting Proviron as an AI?
+
 [37:18](https://www.youtube.com/watch?v=0lswGv0maqE&t=2238s) Viewer question (read aloud): "Thoughts on my coach suggesting Proviron as an AI?"
 
 [37:19](https://www.youtube.com/watch?v=0lswGv0maqE&t=2239s) on the coast suggest that Proviron is an AI. I mean, it works like an AI, but it reduces SHBG so much that you don't have concentrations of cyclic glucan, cyclic CMP, or cyclic monophosphate, which are necessary for antigen receptor-mediated gene transcription. So I would use Primo as the AI, which actually has anabolic properties, you know? Hi Steve, Zenote. Hi Steve, I bought
 
 ## Thoughts On Nose Bleeds From Cialis
+
+### Viewer question at [37:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=2268s): Hey STEVE, bought some cialis and 2 days into my short experiment 10mg daily ED, I started to experience some terribl...
 
 [37:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=2268s) Viewer question (read aloud): "Hey STEVE, bought some cialis and 2 days into my short experiment 10mg daily ED, I started to experience some terrible constant nosebleeds. Is there anyway to circumvent this, or is cialis just not suitable for me?"
 
@@ -170,6 +190,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [39:37](https://www.youtube.com/watch?v=0lswGv0maqE&t=2377s) doubt. 100 pounds, no doubt. I just wanted to
 
+### Viewer question at [39:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=2380s): No question, I just wanted to thank you. I have been watching you religiously and living the lifestyle for 18 months....
+
 [39:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=2380s) Viewer question (read aloud): "No question, I just wanted to thank you. I have been watching you religiously and living the lifestyle for 18 months. I am 82kg lighter with lots of muscle definition from a horrifically obese starting point of 190kg. My marriage and life has never been better!"
 
 [39:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=2380s) thank you, my friend. You simply like the video. I forgot to tell people you liked me. I've been watching you religiously and I quit that lifestyle for 18 months. I've lost 82 kilos and have a lot of muscle definition from a horribly obese starting point of 190 kilos. My God. My marriage and my life have never been better. [ __ ], dude. I'm glad to hear that. Good job, Tom, and thanks for the great chat. Those 100 pounds will undoubtedly go to the Bali fund, and will probably be enough for me to spend a whole day in one of those hammocks at some beach club. I think it 's 150. Yes, what is 100 pounds ? $200 or something like that. Let's see. Pounds to US dollars. Oh, Google, don't fill me up now. Oh, damn it , man. That's $130. Yes, $129. Yes, I would definitely be treated to a pleasant afternoon in a hammock at the Tropical Temptation Bali Beach Resort in South Bali. So, thank you very much, Tom. I'll get drunk as hell in your name, since my wife won't drink because she's pregnant, obviously. But I'm glad to hear that, man. 82 kilos less. That's right , so now you're almost 100 kilos and have muscle definition and that kind of thing. I hope your skin is retracting or look into GHK copper.
@@ -177,6 +199,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 [41:00](https://www.youtube.com/watch?v=0lswGv0maqE&t=2460s) I've heard many people say anecdotally that 5 to 10 milligrams of copper GHK helps the skin retract so that your skin doesn't sag. I'm not sure of your age, but yes, 82 kilos in 18 months. Of course, that's rapid weight loss. And that's 7 kilos, no, 5 kilos a month divided by 7, 12 kilos a month. Oh, wait a minute, calculator of 82/18, 5 kilos per month. Yes. And, of course, you gain some muscle in the meantime. So you may have lost between 5 and 7 kilos per month. And you may have some loose skin. So look at the GHK copper. And then, basically, everything I discussed in the healing peptides package , which is also linked below. And then, uh, you might be able to get around that. But good job, man. Thanks again for the great chat. Always highly appreciated. Well, that will definitely be spent wisely next week. Abrams, do you have any supplements that can
 
 ## How To Reduce Anxiety From TRT
+
+### Viewer question at [41:57](https://www.youtube.com/watch?v=0lswGv0maqE&t=2517s): Any supplements that help alleviate anxiety and feeling on edge? Currently on Fluoxetine 30mg/day and noticed more an...
 
 [41:57](https://www.youtube.com/watch?v=0lswGv0maqE&t=2517s) Viewer question (read aloud): "Any supplements that help alleviate anxiety and feeling on edge? Currently on Fluoxetine 30mg/day and noticed more anxiety since starting trt (200mg test c week) pinning tues/fri. Thanks!"
 
@@ -188,9 +212,13 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [44:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=2680s) Thank you for everything you do. I'll stop being a fat piece of [ __ ]. I will go from 145 kilos to 102 kilos. There it is. There is no love for fat shits. You know, you become a meme. Okay, if you can lose weight, fine? And if you need to lose a little more weight, like 145 kilos is feasible if you're muscular as hell. But if you're fat, no, no,
 
+### Viewer question at [45:01](https://www.youtube.com/watch?v=0lswGv0maqE&t=2701s): Thanks for everything that you do! I stopped begin a fat peice of shit!Down to 225 lb from 310. Four pack now visable...
+
 [45:01](https://www.youtube.com/watch?v=0lswGv0maqE&t=2701s) Viewer question (read aloud): "Thanks for everything that you do! I stopped begin a fat peice of shit!Down to 225 lb from 310. Four pack now visable !Watching you 2 years! I never ask questions because you literally have videos for everything !Thanks Steve"
 
 [45:01](https://www.youtube.com/watch?v=0lswGv0maqE&t=2701s) thank you. It's completely unfuckable. I'm sure you're much more [ __ ] now. Now you can see the defined abdomen of 102 kilos. Yes, it's [ __ ] material. See you in two years. I never ask questions because, literally, you have videos for everything. Thanks, Steve. So, we need more guys like Stitches, right? He simply watches the videos, gets to work, loses 80-something pounds, and then sends 28 Canadian dollars to show gratitude. Stitches, I wish everyone in the chat was like you. Just watch the videos I have. Get to work, lose fat, stop being a fat piece of [ __ ], and then, at some point, when you get the results, you'll have a six-pack and maybe a six-pack in a couple of years. Then you show some gratitude. This is the way to do it. Yes, as my mother almost says: "I don't understand why these people are beating you in the chat when, literally, all the information
+
+### Viewer question at [45:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=2748s): do some research. you're on a channel with all the information you need
 
 [45:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=2748s) Viewer question (read aloud): "do some research. you're on a channel with all the information you need"
 
@@ -204,6 +232,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [46:39](https://www.youtube.com/watch?v=0lswGv0maqE&t=2799s) fermented pickles offer
 
+### Viewer question at [46:39](https://www.youtube.com/watch?v=0lswGv0maqE&t=2799s): Hey Steve, do fermented pickles give me practically the same benefit as kimchi or should I switch to kimchi for bette...
+
 [46:39](https://www.youtube.com/watch?v=0lswGv0maqE&t=2799s) Viewer question (read aloud): "Hey Steve, do fermented pickles give me practically the same benefit as kimchi or should I switch to kimchi for better gut microbiome results?"
 
 [46:41](https://www.youtube.com/watch?v=0lswGv0maqE&t=2801s) roughly the same benefits as kimchi, or should I switch to kimchi to improve my gut microbiome? Well, is a variation the best option? Well, I have fermented pickles, kimchi, and sauerkraut. And like sushi and raw peaches. Ask your mother. She knows it. Damn, dude. I could eat a beach for hours. What movie is that? I could eat a beach for hours. Well, a change, my friend. Variety is the best. Don't get married to just one food. Don't go, I'm going to become a carnivore and I'll wait for all the benefits. No, no, no. Variation. You should have your diet like your women do, man. Variation. The more variety, the better. But of course, if it's spoiled, then don't eat it. Don't consume it. You could get sick. You could have a long-lasting illness. And then you'll have to find a guy like me to buy you the growth hormone, right? Because those 18 hours a day I use it are, well, a lot of numbness in my hands, man. I'd be happy to take half of that off for you . I really appreciate the information.
@@ -214,6 +244,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 ## Things Steve Would’ve Done Differently In The Past
 
+### Viewer question at [49:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=2950s): What would you do differently as a natural knowing what you know now? How much more muscle do you think you could hav...
+
 [49:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=2950s) Viewer question (read aloud): "What would you do differently as a natural knowing what you know now? How much more muscle do you think you could have gained?"
 
 [49:11](https://www.youtube.com/watch?v=0lswGv0maqE&t=2951s) natural knowing what you know now? Dude, I'd sign up for a 3-day muscle-building trip, but they didn't exist when I was natural. How much more muscle do you think you would have gained ? I think between 5 and 10 pounds. Honestly, the more I see these natural products working, the more I understand how much science has evolved when it comes to training, nutrition, and supplements. I think I could have reached 90 kilos naturally, honestly. But keep in mind that when I was a natural, I worked full-time, you know? We did n't have social media. We didn't have opportunities like coaching to earn money. Self-employment was unheard of in the Netherlands unless you did something substantial. But now you can earn money through social media and promote your natural physique and live your lifestyle. You can cook all your meals. You sit at home all day answering customer questions or doing some kind of affiliate promotion. So that did n't exist. He was a full-time business consultant and worked 40 to 80 hours a week. Yes, I brought my own meals. Yes, I went to the gym, but that's not very good for gaining weight. And yet I still managed to make decent profits as a natural. I mean, you can find the details of my first cycle before and after on this YouTube channel and on my website. I didn't look bad as a natural, but I think I could have gained maybe 10 pounds more and probably could have weighed 200 pounds, man, now that I think about it.
@@ -221,6 +253,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 [50:32](https://www.youtube.com/watch?v=0lswGv0maqE&t=3032s) But I would have had to sign up with a trainer and I would have signed up with some guys from 3D Muscle Journey because they do a great job with Naturals. It's probably the best coaching staff for Naturals. But that's in hindsight. For example, if I were 26 years old now and had the money and social media presence and was making some money through that channel, I would simply sign up in a heartbeat and let them do it. I see what they did to Durk Emerick, the world champion who trains here in Thailand. He is the WNBF world champion in his weight category. Wow, he looks like a weirdo, dude. He looks like a weirdo. Well, I think I could have gone much further if I were young now. If I had stayed natural, obviously, but then we wouldn't have the Vigor Steve YouTube channel, and I think I would contribute more to the bodybuilding world with this YouTube channel, which is like being natural, than I would by being natural. I mean, let's be honest, performance-enhancing drugs are a completely different medium that is not well understood. And I think I'm doing a pretty good job contributing to that medium. So yeah, to sum it up, get into social media, make money, live the lifestyle so you don't have to work for anyone else, and then hire a [ __ ] trainer like the ones on 3D Muscle Journey. I think they have like seven coaches or something.
 
 [51:53](https://www.youtube.com/watch?v=0lswGv0maqE&t=3113s) You'll probably choose the most expensive one with the most experience. Okay, so why the hell not spend the money, dude? Go with the best one. We have another guy asking for anniversary cycles. You're leaving here too, mate. Today I'm going to be on a prohibition spree. Get out of here. End of rotation cycles. Suck my balls. Hey. Hey , Big Steve. Hey, Coupe Deluxe, can I
+
+### Viewer question at [52:24](https://www.youtube.com/watch?v=0lswGv0maqE&t=3144s): Yo Yo Big Steve! Can I keep injecting my daily GH and Reta during a 3 day fast?
 
 [52:24](https://www.youtube.com/watch?v=0lswGv0maqE&t=3144s) Viewer question (read aloud): "Yo Yo Big Steve! Can I keep injecting my daily GH and Reta during a 3 day fast?"
 
@@ -236,6 +270,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [54:44](https://www.youtube.com/watch?v=0lswGv0maqE&t=3284s) clandestine testosterone and pharmaceutical testosterone laboratory. What is
 
+### Viewer question at [54:47](https://www.youtube.com/watch?v=0lswGv0maqE&t=3287s): I have UGL test E and pharma test cyp, whats the best way to use both during a test only cycle? Any vids on this? Thanks
+
 [54:47](https://www.youtube.com/watch?v=0lswGv0maqE&t=3287s) Viewer question (read aloud): "I have UGL test E and pharma test cyp, whats the best way to use both during a test only cycle? Any vids on this? Thanks"
 
 [54:47](https://www.youtube.com/watch?v=0lswGv0maqE&t=3287s) the best way to use both during a single test cycle? Uh, any vitamins in this? And use testosterone cypronate and then switch to testosterone when the cypronate runs out. You don't need to combine both if you want to. The proof is the proof, man. Although the pharmacokinetics of cypionate are not as favorable as those of annatto, and you will see in Kurt's study a decrease is observed in approximately one month, where serum levels of testosterone cypionate are lower for the same dose of testosterone. And when I say lower, I mean significantly lower. So, you know, start with 200 milligrams of SIP and then switch to 200 milligrams of testosterone and you'll probably get higher serum levels and a better dose response because the serum levels are much higher. Pokémon without a prescription. I prefer nighttime cardio
@@ -247,6 +283,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 ## Methylene Blue Is Powerful Stuff!
 
 [56:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=3408s) Sit down. Okay, Steve. I don't know if this
+
+### Viewer question at [56:49](https://www.youtube.com/watch?v=0lswGv0maqE&t=3409s): Steve! I don't know if it is placebo or what, but I finally got some 5mg of MethyleneBlue and took it in the morning....
 
 [56:49](https://www.youtube.com/watch?v=0lswGv0maqE&t=3409s) Viewer question (read aloud): "Steve! I don't know if it is placebo or what, but I finally got some 5mg of MethyleneBlue and took it in the morning. Did my 1h workout and I feel like I can do another hour and no brain fog! WTF!THZ!"
 
@@ -262,6 +300,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 ## Thoughts On 50mg Halo & 100mg Winstrol On Peak Week
 
+### Viewer question at [59:30](https://www.youtube.com/watch?v=0lswGv0maqE&t=3570s): Your thoughts on combining 50mg halo and 100mg winstrol a day in peak week when 4% bodyfat for polishing off. will yo...
+
 [59:30](https://www.youtube.com/watch?v=0lswGv0maqE&t=3570s) Viewer question (read aloud): "Your thoughts on combining 50mg halo and 100mg winstrol a day in peak week when 4% bodyfat for polishing off. will you make you flat on stage at all?"
 
 [59:31](https://www.youtube.com/watch?v=0lswGv0maqE&t=3571s) milligrams of Halo with 100 milligrams of Winstrol per day during peak week, when you have 4% body fat to finish? I love ending things well, brother. Will it leave you flat on stage? 50 milligrams of Halo. No way , dude. Do it, man. One or two weeks a day. Split it up and make sure you do your blood carb load and GH load properly. Then you'll have a phenomenal physique, dude. I mean , I can see your competitor based on your avatar. So I 'm not against it. I mean, 50 milligrams of Halo is pretty strong . I'd put in 30 milligrams, but if you're a weirdo, you seem to be quite a bit bigger than either of those two. They both look great, so go for it. Are you Dutch? Yes. I didn't think this was a secret, guys. I am Dutch. I simply do not identify as Dutch. That's why I don't talk about it anymore unless it's with my family. And the people at the gym want to speak Dutch with me. I say, "No, no, no , no. I didn't move to the other side of the world to go back to speaking Dutch.
@@ -274,6 +314,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:02:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=3730s) But friend, if you take testosterone cream or sublingual testosterone, sublingual testosterone data, not natural, not natural. And monotherapy with hCG is much better than those three practices. Perhaps there are any
 
+### Viewer question at [1:02:22](https://www.youtube.com/watch?v=0lswGv0maqE&t=3742s): Any practical uses for methyltestosterone? Pre workout perhaps?
+
 [1:02:22](https://www.youtube.com/watch?v=0lswGv0maqE&t=3742s) Viewer question (read aloud): "Any practical uses for methyltestosterone? Pre workout perhaps?"
 
 [1:02:24](https://www.youtube.com/watch?v=0lswGv0maqE&t=3744s) practical uses for methyltestosterone before training? Is it available? The truth is I never did much research on methyl testosterone, so I'm not sure. Yes, I'm not sure. I mean, there are a lot of orals out there, and if you have access to methyltestosterone, you probably also have access to Anadrol, and I'd say it's a superior pre-workout compared to most of the Tanker diapers. Yes , diapers are expensive, man. Diapers are expensive. Face to face. He has to
@@ -283,6 +325,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 [1:02:59](https://www.youtube.com/watch?v=0lswGv0maqE&t=3779s) take his face away. The best, the best scene is like the opening scene of Face Off where Caster Troy. Is it Caster Troy? Caster Troy. Movie character. Yes. And then he dresses as a priest, right? And then he grabs that girl from behind, grabs her ass, and says, "Ah, I did that with my wife once in public, and she was really uncomfortable, and I started laughing. You grab her. You grab her ass like you have some kind of divine intervention. Then I'm like, 'Oh, oh, [ __ ].'" So round." And then I give it to him when we get home. As if Caster Troy would be proud. Of course, this is Alexandra Carrera. Who didn't dislike Dad's jokes? Wait. [ __ ] off. You don't dislike jokes about dying.
 
 [1:04:01](https://www.youtube.com/watch?v=0lswGv0maqE&t=3841s) Strongass Shell, if you've been in the
+
+### Viewer question at [1:04:02](https://www.youtube.com/watch?v=0lswGv0maqE&t=3842s): If you pin in the same muscle group but a few inches away from your normal spot, it can still be considered virgin mu...
 
 [1:04:02](https://www.youtube.com/watch?v=0lswGv0maqE&t=3842s) Viewer question (read aloud): "If you pin in the same muscle group but a few inches away from your normal spot, it can still be considered virgin muscle?"
 
@@ -294,11 +338,15 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:05:24](https://www.youtube.com/watch?v=0lswGv0maqE&t=3924s) Yes. And remember. They all had a shitty story, man. Mine is excessive. No, you're not going to Thailand for
 
+### Viewer question at [1:05:33](https://www.youtube.com/watch?v=0lswGv0maqE&t=3933s): started methylene blue 12mg and 750 SLUPP332. It feels like I'm glowing / energized everywhere, do you notice this too?
+
 [1:05:33](https://www.youtube.com/watch?v=0lswGv0maqE&t=3933s) Viewer question (read aloud): "started methylene blue 12mg and 750 SLUPP332. It feels like I'm glowing / energized everywhere, do you notice this too?"
 
 [1:05:34](https://www.youtube.com/watch?v=0lswGv0maqE&t=3934s) a reason, are you? Start mentally blue 12 milligrams per day and 750 milligrams. Also PP332. I feel like I'm radiating energy all over. Do you notice this too? Yes. Yes. That's half the fun, buddy. Add a C module. You'll shine even brighter. Why do you think I mentioned that you're shooting laser beams from your fingertips? You know, unlimited power . That's the ATP, man. Get used to it. It's a [ __ ] awesome feeling. Add 1 milligram of Mi to that. You'll feel so full of energy that you won't even know where to put it. Yes, but that 's the ATP. That's the ATP. It's not for everyone, but for the kids who love it, they love it. Alexander King, I have a
 
 ## Steve Doesn’t Recommend GHK-Cu Due To The Pain!
+
+### Viewer question at [1:06:22](https://www.youtube.com/watch?v=0lswGv0maqE&t=3982s): I have a noticeable chest imbalance. Can you give your GHK CU protocol again? Specifically, how much? How often? Intr...
 
 [1:06:22](https://www.youtube.com/watch?v=0lswGv0maqE&t=3982s) Viewer question (read aloud): "I have a noticeable chest imbalance. Can you give your GHK CU protocol again? Specifically, how much? How often? Intra muscularlar or sub q? I’d like to try your protocol for my left pec."
 
@@ -306,9 +354,13 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:08:00](https://www.youtube.com/watch?v=0lswGv0maqE&t=4080s) Was it fun? At all. 5 milligrams intramuscularly every eh after training and then eh two days after training. So, three days a week. And if you train chest twice a week, which is probably better, uh, low volume, high intensity, high frequency, then you inject GHK copper six days a week, dude. Yes, good luck. John Wilson, what's up, brother? Steve falling at the end of our only cycles is [ __ ] hilarious. Yeah, it's exhausting, man. This channel is not for children. This channel is for shitty adults. And if you come to me with a purely oral cycle, it means you're a shitty kid. Even if you're 40, you're still a shitty kid. And it disgusts me. Go to Togei's channel . Go to all those shitty influencers, you know, where you can ask questions like that. You get a 15-second video as a response. That's not what we do here, man. What is a good beginner dosage of
 
+### Viewer question at [1:09:00](https://www.youtube.com/watch?v=0lswGv0maqE&t=4140s): What’s a good beginner dose of injectable GHK-CU in an injury site location?
+
 [1:09:00](https://www.youtube.com/watch?v=0lswGv0maqE&t=4140s) Viewer question (read aloud): "What’s a good beginner dose of injectable GHK-CU in an injury site location?"
 
 [1:09:01](https://www.youtube.com/watch?v=0lswGv0maqE&t=4141s) injectable copper GHK for injury areas? It's linked below in the YouTube description section, mate. It's literally linked there . It's 5 milligrams intramuscularly and subcutaneously upon waking and before going to bed, a total of 10 milligrams intramuscularly and subcutaneously per day. Guys, John Wilson. Hi, Steve. What's up, bro? Any questions? We just said hello. That was bad. Oh, man. You haven't seen me in a bad mood. I can be much worse. Hey, what do you think of
+
+### Viewer question at [1:09:32](https://www.youtube.com/watch?v=0lswGv0maqE&t=4172s): What’s your opinion on SERM trt? My father had terrible insomnia with injectable, trying cream for more natural like ...
 
 [1:09:32](https://www.youtube.com/watch?v=0lswGv0maqE&t=4172s) Viewer question (read aloud): "What’s your opinion on SERM trt? My father had terrible insomnia with injectable, trying cream for more natural like cycle but being a farmer he gets dirty fast and forgetsJust want him to feel better"
 
@@ -332,6 +384,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:14:29](https://www.youtube.com/watch?v=0lswGv0maqE&t=4469s) Hogan, elaborate. What IGF level would a
 
+### Viewer question at [1:14:30](https://www.youtube.com/watch?v=0lswGv0maqE&t=4470s): What igf-1 levels would make 4 units gh daily at only a dollar per unit worth it. It’s real, love it. Getting blood w...
+
 [1:14:30](https://www.youtube.com/watch?v=0lswGv0maqE&t=4470s) Viewer question (read aloud): "What igf-1 levels would make 4 units gh daily at only a dollar per unit worth it. It’s real, love it. Getting blood work soon to see how potent. Thanks for the previous answer as well"
 
 [1:14:31](https://www.youtube.com/watch?v=0lswGv0maqE&t=4471s) 4 have? I use growth hormone daily at only one dollar per unit... okay, so, 4? I use Chinese generic GH? It's real. I love it. I'm getting a blood test soon to see how potent. Thanks for the previous answer as well. Again, it depends. Like, my IGF -1 levels are garbage because I use GH. Same as Chase Irons' IGF-1 levels. So we increased the dosage and still... 10... I use IGF-1 levels that are still not that favorable. I think the highest I ever got was like 450. It was around 20. I use GH a couple of times a week. So everyone is different. It depends on the health of your liver. The health of your liver depends on your serum estradiol levels. It depends on whether you're taking something that suppresses IGF-1 levels, like curcumin or metformin, or if you have fatty liver disease." Alcoholic. Obviously, your IGF-1 levels aren't going to be that high. So, assuming you're perfectly healthy and reasonably young, I would say that for one use, growth hormone would give you serum IGF- 1 levels of at least 300, hopefully 400. But man, it could be 80 and it could be 800. Everybody's different, you know?
@@ -339,6 +393,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 [1:15:38](https://www.youtube.com/watch?v=0lswGv0maqE&t=4538s) People respond differently to secretions, whether it's follistatin secretions or testosterone secretions like ATG, for example, or FSH or LH, sorry, or IGF-1 secretions, which is growth hormone, right? That's how you have to look at it. And then growth hormone secretions also have some kind of effect, you know, age-dependent and secretion-dependent. Some people respond really well to them: growth hormone goes up, IGF-1 goes up. Some people respond only to the growth hormone part: the growth hormone It increases, but HGF-1 does n't really move. Everyone is different with these secret compounds . If you ever came off
 
 ## You Still Need A PCT After hCG Monotherapy
+
+### Viewer question at [1:16:18](https://www.youtube.com/watch?v=0lswGv0maqE&t=4578s): If you were to ever come off hcg mono, do you have to taper off or use another pct protocol?
 
 [1:16:18](https://www.youtube.com/watch?v=0lswGv0maqE&t=4578s) Viewer question (read aloud): "If you were to ever come off hcg mono, do you have to taper off or use another pct protocol?"
 
@@ -350,9 +406,13 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:18:06](https://www.youtube.com/watch?v=0lswGv0maqE&t=4686s) you recommend as an AI just in case?
 
+### Viewer question at [1:18:06](https://www.youtube.com/watch?v=0lswGv0maqE&t=4686s): Hi Steve - what would you recommend as a AI “just in case” (arimidex vs aromasin) on a cycle of EW - test E 250 - Pri...
+
 [1:18:06](https://www.youtube.com/watch?v=0lswGv0maqE&t=4686s) Viewer question (read aloud): "Hi Steve - what would you recommend as a AI “just in case” (arimidex vs aromasin) on a cycle of EW - test E 250 - Primo E 100 - Tren A 25 - anavar 140."
 
 [1:18:08](https://www.youtube.com/watch?v=0lswGv0maqE&t=4688s) Ardex versus Aromin? I'd say Aromin because Ardex prevents cholesterol metabolism, and therefore serum LDL levels increase on a cycle of 250 tsp, 100 primo, 25 trenbolone, and 140 anavar. Yeah, aromomasin 6.25 milligrams on Mondays and Fridays if necessary, but I don't think your estradiol levels are going to get too high, and otherwise, increase the primo, man. You know, 200-250 tsp, 250 primo, 25 trenbolone, and 20 milligrams of anavar a day. I think you'll look pretty good on that. I got
+
+### Viewer question at [1:18:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=4720s): could GH be detectable easyly in a drug detection test?
 
 [1:18:40](https://www.youtube.com/watch?v=0lswGv0maqE&t=4720s) Viewer question (read aloud): "could GH be detectable easyly in a drug detection test?"
 
@@ -362,9 +422,13 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:20:15](https://www.youtube.com/watch?v=0lswGv0maqE&t=4815s) you taking any holidays
 
+### Viewer question at [1:20:15](https://www.youtube.com/watch?v=0lswGv0maqE&t=4815s): are you taking any slu on holiday to counteract the buffet's?
+
 [1:20:15](https://www.youtube.com/watch?v=0lswGv0maqE&t=4815s) Viewer question (read aloud): "are you taking any slu on holiday to counteract the buffet's?"
 
 [1:20:17](https://www.youtube.com/watch?v=0lswGv0maqE&t=4817s) to hire buffets? I don't think I'll go Buffets, but I'll definitely eat. I'm a pretty lean man. My lower back is fine. My abs are, you know, my legs are spread. So we'll be getting some beach-ready pork soon . But I'll try to control my diet. I've done really well the last few months since that preseason plan where I bulked up to 122 kilos. My face looked like a [ __ ] tomato. Yeah, I'm pretty lean. I still can't see anything in my chest. I'm still at 12% body fat or something, but lean enough. Beach-ready lean . Maybe 10%. But yeah , my supplement mix will probably continue. I'm actually just testing YK11. So no SLU, no MS, nothing , man. I'm not allowed to use it. Well, people complain even though I give them loads. You give them an inch and they take a mile . You know how it is. Bumpkins get annoyed when people like free knowledge. No, man. Maybe I should ask for "likes" " During consultations. What's your take on the clean brand test
+
+### Viewer question at [1:21:21](https://www.youtube.com/watch?v=0lswGv0maqE&t=4881s): what ur opinion for Clean name brand test?
 
 [1:21:21](https://www.youtube.com/watch?v=0lswGv0maqE&t=4881s) Viewer question (read aloud): "what ur opinion for Clean name brand test?"
 
@@ -380,11 +444,15 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:23:57](https://www.youtube.com/watch?v=0lswGv0maqE&t=5037s) I was wondering if you're doing a
 
+### Viewer question at [1:23:57](https://www.youtube.com/watch?v=0lswGv0maqE&t=5037s): Hey man! I was wondering if you're doing a 3 month cycle of test, can you switch to test prop near the end for a fast...
+
 [1:23:57](https://www.youtube.com/watch?v=0lswGv0maqE&t=5037s) Viewer question (read aloud): "Hey man! I was wondering if you're doing a 3 month cycle of test, can you switch to test prop near the end for a faster PCT? Since you could start PCT 4-5 days after last shot?"
 
 [1:23:58](https://www.youtube.com/watch?v=0lswGv0maqE&t=5038s) 3-month trial cycle, can you switch the trial attachment near the end for faster post-cycle therapy , since you'd start post-cycle therapy four to five days after your last injection? Tell me you didn't see the PCT videos without telling me you didn't see the PCT videos. Regardless of estrus, testosterone and estrogen levels take between four and six weeks to drop low enough for PCT to be successful. Inject the test probe and begin PCT four to five days later. When you finish PCT, your testosterone levels will still be elevated due to the testosterone propaate injection. Check out the PCT videos and fertility videos where I go into detail about how to stop cycles so your partner can get pregnant. You stop taking testosterone and wait until you feel like a girl. That could take between four and six weeks. And if you can't do that, then steroids aren't for you because they're a roller coaster. TRUE? If you can't handle it , everyone can go through the high, but if you can't handle the comedown, then they're not for you because sooner or later you'll have to quit. You have to leave them several times in your life, either because of health problems that prevent you from getting someone pregnant or because of availability. And that means a significant period of inactivity . It's just part of the game, man. I believe that if you stop taking prescription testosterone, you can safely begin post-surgical therapy 3 weeks, maybe 4 weeks later. Three weeks is the shortest, but wait until you go to the gym, don't feel a pump, feel sluggish, and don't even want to go to the gym. That's when you start post-surgical therapy, brother. Not before. All these standardized post-surgical therapies: you stop injecting testosterone and a week later you start post-surgical therapy. These guys never have a successful post-surgical therapy , do they? This is the standardized crap forum or the forum for old-school educators. I have experience, brother. I know this is work. No, you do n't know. Shut your [ __ ] mouth.
 
 [1:25:39](https://www.youtube.com/watch?v=0lswGv0maqE&t=5139s) Shut the [ __ ] up. You don't know what you're talking about. You don't even know how long these steroids stay in your system. Look at the detection time. I'll be very careful about where you get your information. These metabolites take weeks to be eliminated, as does testosterone . Then you can start post-cycle therapy without any negative feedback from having slightly elevated testosterone and estradiol needing to bottom out. And then your LH will rise, and then your FSH will rise, and then slowly your testosterone will rise. And it's [ __ ]. It's not fun. You'll probably gain weight, but that's part of the game, man. That's why you signed up. Ricardo, hi Coach Steve, I just wanted to thank you
+
+### Viewer question at [1:26:17](https://www.youtube.com/watch?v=0lswGv0maqE&t=5177s): Coach Steve! Just want to say thanks for all the amazing info and all the help youre the best! Increased my food inta...
 
 [1:26:17](https://www.youtube.com/watch?v=0lswGv0maqE&t=5177s) Viewer question (read aloud): "Coach Steve! Just want to say thanks for all the amazing info and all the help youre the best! Increased my food intake and lifting vigorously, cant wait to update you on my progress when you get back"
 
@@ -400,6 +468,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 ## Ideal E2 While On Cycle
 
+### Viewer question at [1:30:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=5450s): Hey Unc. What's YOUR ideal E2 range while on cycle. I have everything in check except my E2 - think it's too low. Eve...
+
 [1:30:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=5450s) Viewer question (read aloud): "Hey Unc. What's YOUR ideal E2 range while on cycle. I have everything in check except my E2 - think it's too low. Ever noticed worse sleep (GABA/serotonin production) if you crashed E2? Much love"
 
 [1:30:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=5450s) ideal ID uh E2 range during the cycle at the top of the reference range? I have everything under control except my E2. I think it's too low. Have you ever noticed that GABA serotonin production during sleep decreases if you lower E2? Wow, you have a lot of problems if you lower E2 GABA in certain serotonin production or neuronal modulation. That 's the least of your problems. So you have low libido, dry joints, dry skin, uh, deficient lipids, low SBG levels. It's simply not a good idea to lower estrogen levels unless you 're competing. So keep it at the top of the reference range, maybe a little above. I think that normally 60 per liter is where people start to experience side effects. So I usually keep it around 50, except now. It's 220 now. That's why I'm so irritable, moody, and annoyed all the time. But hey, you guys wanted to see it, so it's not my fault, right? The chat wanted to see : "Steve, you can't use anything other than analyzing YK11." Very good. Very good, brother. Now you have to deal with my emotional outbursts, my complaints, and my dad jokes. Well, yes, let's say 35 to 60 is a good range if you're on a cycle. And some men feel better with 100 picograms per milliliter. They underwent gynecological surgery. They are not prone to gynecomastia. His libido problems are nonexistent, while my libido is great, man. At 220 picograms per milliliter. But I have an attractive wife. It lasts a long time.
@@ -407,6 +477,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 [1:32:10](https://www.youtube.com/watch?v=0lswGv0maqE&t=5530s) Even if she's pregnant, a little chubby. I mean, she's still attractive. So, they're trial glasses. Trial glasses. Everyone is attractive. [ __ ]. But yes, having estradiol near the top of the reference range, slightly above, is probably more favorable than having it low. Jam, jam, have you ever seen my super chat? No, I didn't see it . Let me scroll up . Now here. I'm sorry, brother. Hi
 
 ## Thoughts On Khavinson Peptides To Improve Vision & Hearing
+
+### Viewer question at [1:32:37](https://www.youtube.com/watch?v=0lswGv0maqE&t=5557s): Hi Steve do you know of any compounds that improve vision + hearing? Do you have any experience with Khavinsons pepti...
 
 [1:32:37](https://www.youtube.com/watch?v=0lswGv0maqE&t=5557s) Viewer question (read aloud): "Hi Steve do you know of any compounds that improve vision + hearing? Do you have any experience with Khavinsons peptides?"
 
@@ -422,11 +494,15 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:36:52](https://www.youtube.com/watch?v=0lswGv0maqE&t=5812s) experimentation should stop. You know, I'm... I'm more inclined to think that. You know, I have a daughter on the way and I'm thinking: you know what? Do I really want to reuse this? Do I really want to use that? I have so many drugs in my arsenal that I think I can handle it. And even with 625 tests and a little bit of epi kathagen or YK11, I look pretty good. So, are there really more incentives to perform very high doses or crazy experiments? Probably not. Steve, Steve, have you ever come across methanol
 
+### Viewer question at [1:37:21](https://www.youtube.com/watch?v=0lswGv0maqE&t=5841s): Steve, ever come across Metelenolone Enanthate (Primo) in powder form? If so, what would be best practice for oral do...
+
 [1:37:21](https://www.youtube.com/watch?v=0lswGv0maqE&t=5841s) Viewer question (read aloud): "Steve, ever come across Metelenolone Enanthate (Primo) in powder form? If so, what would be best practice for oral dosing? THANK YOU FOR ALL YOU DO!"
 
 [1:37:22](https://www.youtube.com/watch?v=0lswGv0maqE&t=5842s) annotate primo powder? Yes. Yes, of course, my friend. What? What are you talking about? All crude oil suppliers sell it. If so, would it be a good idea to implement an oral dosing program? No, you would have to take crude methanol without annotate ester or acetate ester. Otherwise, you would have to microdose it, like several milligrams several times a day. So this isn't the way, that's why we have injection tanks, maybe after a show. Yes. I do n't know. If you really want to do a program afterward, what do you recommend to increase opioid receptors? It's not something I'm really specialized in. I could have talked about this in methods for agonizing opioid receptors. I don't know, friend, I don't know his name. What was the name of that compound? I don't remember. I think it's meltraxone in low doses. So, maybe that's it. I don't know, man. Look here. I'm looking for mushrooms and NAD. Okay , I'm going to move up a bit . Let's see if there's anything else. It seems we 've reviewed the questions pretty quickly this week. That's ok. Then I can take a break.
 
 [1:39:16](https://www.youtube.com/watch?v=0lswGv0maqE&t=5956s) Let's go for another 20 minutes and then we'll throw in the towel. My son receives
+
+### Viewer question at [1:39:28](https://www.youtube.com/watch?v=0lswGv0maqE&t=5968s): My sons gets Hgh from novo (somatropin) i often have exces amp left. How many cc is 10mg / 1,5 ml ?
 
 [1:39:28](https://www.youtube.com/watch?v=0lswGv0maqE&t=5968s) Viewer question (read aloud): "My sons gets Hgh from novo (somatropin) i often have exces amp left. How many cc is 10mg / 1,5 ml ?"
 
@@ -438,9 +514,13 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:40:41](https://www.youtube.com/watch?v=0lswGv0maqE&t=6041s) I'll start the growth hormone soon . Testosterone is 250 milligrams per week, increasing to 300 milligrams, increasing further for
 
+### Viewer question at [1:40:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=6048s): Starting GH soon,(2IU)test is at 215/week increasing to 300. increase more for better synergy? any tips on starting G...
+
 [1:40:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=6048s) Viewer question (read aloud): "Starting GH soon,(2IU)test is at 215/week increasing to 300. increase more for better synergy? any tips on starting GH journey? (My first trt add on)"
 
 [1:40:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=6048s) better synergy. I believe that using growth hormone twice a day and 250 milligrams of testosterone is fine, and increasing the testosterone to 300 milligrams and then adding growth hormone will probably cause more water retention and weight gain than expected. Any advice for starting my growth hormone journey ? First TRT supplement ? Keep your test the same. Add a variable to a growth hormone used before bed and then wait
+
+### Viewer question at [1:41:08](https://www.youtube.com/watch?v=0lswGv0maqE&t=6068s): Hey Steve, how close to bed do you take your GH to improve sleep quality?
 
 [1:41:08](https://www.youtube.com/watch?v=0lswGv0maqE&t=6068s) Viewer question (read aloud): "Hey Steve, how close to bed do you take your GH to improve sleep quality?"
 
@@ -452,11 +532,15 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:42:34](https://www.youtube.com/watch?v=0lswGv0maqE&t=6154s) Oh, guys, don't forget to like the video. Don't forget to like the video. Aid. 226 likes . Finally, we surpassed the like-to-view ratio. Let's see. Is everyone watching a bodybuilding competition or something today? Oh, we're sick of Steve Rant. We're not going to tune in anymore. It's Chinese urine . Yes, that's what HMG and HCG are, man. It's urine. And then people complain about how cerebral it is. I can't inject purified pig brains, but you 've been injecting purified urine. That? Yes friend. Piece of golden shower fetish [ __ ]. That's why I prefer recombinant growth hormone or recombinant ATCG because you're literally injecting purified urine from pregnant women. You're persistent, aren't you? You're a persistent [ __ ]. All farmers' brands conduct good quality tests. He is a pharmacist. They have to comply with the guidelines of the United States Pharmacopeia and others, but Bayer is the best proof in my opinion. Bayer test of iron, testosterone and castor oil. Let's see . I think that's pretty much all for this week. 6.7 milligrams per milliliter. Does that mean that 0.33
 
+### Viewer question at [1:44:32](https://www.youtube.com/watch?v=0lswGv0maqE&t=6272s): 6,7 mg (20IE)/ml does that mean 0,33 mg somatropin is 1 IU , right ?
+
 [1:44:32](https://www.youtube.com/watch?v=0lswGv0maqE&t=6272s) Viewer question (read aloud): "6,7 mg (20IE)/ml does that mean 0,33 mg somatropin is 1 IU , right ?"
 
 [1:44:33](https://www.youtube.com/watch?v=0lswGv0maqE&t=6273s) milligrams of satropene is one IU? Yeah . Yes. So, if you have 6.7 milligrams divided by 0.33, that's 20 IU . 20 IU per milliliter. It makes sense to
 
 ## Pros & Cons Of Taking DHEA & Pregnenolone
+
+### Viewer question at [1:44:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=6290s): It make sense to take 25mg DHEA 10mg Pregnenolone for 3 months ? pros/cons? if any side effects , do i need to add ot...
 
 [1:44:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=6290s) Viewer question (read aloud): "It make sense to take 25mg DHEA 10mg Pregnenolone for 3 months ? pros/cons? if any side effects , do i need to add other compund?"
 
@@ -466,11 +550,15 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 
 [1:45:43](https://www.youtube.com/watch?v=0lswGv0maqE&t=6343s) yes, I am thinking of trying it, but I
 
+### Viewer question at [1:45:44](https://www.youtube.com/watch?v=0lswGv0maqE&t=6344s): Im thinkin about hoppin on but i think its better for me to first do a natural show and see how good i perform or do ...
+
 [1:45:44](https://www.youtube.com/watch?v=0lswGv0maqE&t=6344s) Viewer question (read aloud): "Im thinkin about hoppin on but i think its better for me to first do a natural show and see how good i perform or do you think my perfomance will change when i hop on?"
 
 [1:45:45](https://www.youtube.com/watch?v=0lswGv0maqE&t=6345s) think it is better for me to do it naturally. First, show me how I perform, and do you think my performance will change when I get promoted? Well, of course you'll look radically different when you bulk up, but if you love bodybuilding, do a couple of shows natural, man. I mean, with some of the natural ones you look absolutely fantastic, and it's a good idea to get to know your body without drugs first. I mean , I did a lot of diets when I wasn't on drugs. Did I get in shape to go on stage? No. But at least I learned which diets worked and what training worked with a calorie deficit. So I lost enough weight, man. I got defined glutes when I was natural. Well, you know, not ripped at stage level, but lean enough to know how my body worked without drugs. And then, later on, I added drugs. And then my body functioned better and I maintained a larger size. You know, vitrol. There you have it. Ovitrol de Merc . Perhaps I can point you in the right direction on the website.
 
 [1:46:48](https://www.youtube.com/watch?v=0lswGv0maqE&t=6408s) Yes. What is the minimum effective dose of injectable carina? 200
+
+### Viewer question at [1:46:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=6410s): what is injectable carnitine min. effective dose?
 
 [1:46:50](https://www.youtube.com/watch?v=0lswGv0maqE&t=6410s) Viewer question (read aloud): "what is injectable carnitine min. effective dose?"
 
@@ -489,6 +577,8 @@ url: https://www.youtube.com/watch?v=0lswGv0maqE
 ## Wrapping Up! Vigorous Q&A Will Be Back On April 26th!
 
 [1:49:56](https://www.youtube.com/watch?v=0lswGv0maqE&t=6596s) a good day. Have a good trip. Enjoy your vacation. Thanks, guys. And another $50 for answering, Andy, super light. Thanks a lot, friend. That makes it all worthwhile. I appreciate the price. Sorry to have caught you
+
+### Viewer question at [1:50:06](https://www.youtube.com/watch?v=0lswGv0maqE&t=6606s): appreciate the reply! sorry for catching you on the way out! happy holidays! :)
 
 [1:50:06](https://www.youtube.com/watch?v=0lswGv0maqE&t=6606s) Viewer question (read aloud): "appreciate the reply! sorry for catching you on the way out! happy holidays! :)"
 
