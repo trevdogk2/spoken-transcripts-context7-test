@@ -1,0 +1,15 @@
+---
+title: "Finance Q&A - Earn, Keep, Save, Invest, Build Wealth & HODL!! Wife Changing Wealth Accumulation!"
+channel: Vigorous Steve
+published: 2025-08-16
+url: https://www.youtube.com/watch?v=mGCZSZ6erKc
+chapter: 'Thoughts On The Housing Market In Phuket'
+chapter_start: 3749
+---
+# Finance Q&A - Earn, Keep, Save, Invest, Build Wealth & HODL!! Wife Changing Wealth Accumulation! - Thoughts On The Housing Market In Phuket
+
+Video: [Finance Q&A - Earn, Keep, Save, Invest, Build Wealth & HODL!! Wife Changing Wealth Accumulation!](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3749s), chapter "Thoughts On The Housing Market In Phuket"
+
+[1:02:29](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3749s) Figures, I've been watching Facebook groups for homes in Phuket. Seems like some beautiful place for 10 to Yeah. 10 to 12 million. What happening with the market these days? Is it all Russian development? Yeah, there's a lot of foreign development and they're very nice homes. Um but again in Phuket and other places in Thailand the the building is so fast and the amount of people that can buy those homes will is not enough for the amount of properties that they built again in my opinion. So, they'll build more properties than they'll ever be able to sell, which means by the time you're ready to sell your property for 10, 14, 15 million, if you put 10, 12 million in there, um, it'll be old. And unless the location is really, really good and they built it super, super nice, you're competing against all these new properties that are cheaper and newer. And it's not like like like Amsterdam for example or New York or other big cities where there's no more land to build on. Even here in Bangkok, there's plenty of land to build on. So that means that there's always new space to build new buildings and there's always new opportunities and always new places that um you know have the latest decor and the latest style and then you try to sell your sell your old place unless you make it into a rental. And then again, rentals. There's a lot of low-key millionaires here that are willing to spend $200 to $300,000 or buy per month.
+
+[1:03:54](https://www.youtube.com/watch?v=mGCZSZ6erKc&t=3834s) So, that's let's say $10,000 in rent. Uh because they make a million dollars a month on their corporation and they don't want to buy a house. So, I know plenty of guys that live in Marriott Marquee or Marriott's um residences and they pay $10,000 a month to it and they could easily afford a rental like that. So in that sense it would be a good investment and then the ROI based on what the uh um you know the property would be worth. So let's say 16 million divided by 300,000 uh is that correct? Five. No. [ __ ] I'm missing a zero. 53 months, four years. That's not bad. That's not bad. Four or five years to get ROI based on what it's worth and then you start making profit. So imagine if you put 16 million into cryptocurrency, even if you buy the top, you get you you break even and make profit faster and more profit. So it doesn't make sense.

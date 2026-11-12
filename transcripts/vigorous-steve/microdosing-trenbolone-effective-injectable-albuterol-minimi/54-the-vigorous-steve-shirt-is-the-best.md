@@ -1,0 +1,15 @@
+---
+title: "Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?"
+channel: Vigorous Steve
+published: 2025-01-18
+url: https://www.youtube.com/watch?v=Lbhi0_xs7yk
+chapter: 'The Vigorous Steve Shirt Is The Best'
+chapter_start: 8460
+---
+# Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP? - The Vigorous Steve Shirt Is The Best
+
+Video: [Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=8460s), chapter "The Vigorous Steve Shirt Is The Best"
+
+[2:21:00](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=8460s) Viewer question (read aloud): "My girlfriend won’t go out in public with me when I wear the vigorous shirt you gave me in Vegas, is it time for me to tell her to hit the road"
+
+[2:21:01](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=8461s) out in public with me when I wear the Vigor shirt you gave me in Vegas is it time for her to tell her to hit the road uh really dude when I wore this shirt in Vegas I got a I got a [ __ ] lot of compliments but maybe that was just pity compliments right like look at this [ __ ] idiot wearing a shirt like that that's a nice shirt bro right it's [ __ ] sarcasm is so high I couldn't even recognize it um I know my wife doesn't give a [ __ ] what I wear in public but we do dress up when we go out to dinner uh she dresses up I dress up we both look like a million bucks um but yeah if if if the girlfriend has a problem with it I don't know you just don't wear it and then when you when she wears something you don't like you tell her too and then you say well I don't wear the Vigor shirt so you're not going to wear this and if she says yeah but you can't tell me what to do you wear your Vigor shirt and you go out like that and if that's a problem then you [ __ ] your [ __ ] your [ __ ] best friend that will solve all your problems CU you know how women are they always got a best friend you know and if they have problems she's the first one you [ __ ] just to get it over with what you didn't hear that from me right I don't want to go to the Arnold Classic or to Mr Olympia and then get your ex-girlfriend [ __ ] slapping me with [ __ ] uh baseball bats you made me break up with my boyfriend it's all your fault I think this shirt is [ __ ] killer man who wouldn't like this shirt like look at this this shirt with these glasses you know smile say what's up baby and all the women are cringing right now I don't know man I always have a good interaction with people unless they're [ __ ] so I don't think it's a shirt I think yeah I think I think you just you know what you need to do next time you give her a couple pumps wear this shirt she'll like it yeah make sure it's a good pump give like five pumps for Uncle Steve and then if she doesn't like the shirt back then then come to Thailand I'll hook you up with some chicks that do like the shirt yeah they'll like it all up and down everywhere okay next one anabolic

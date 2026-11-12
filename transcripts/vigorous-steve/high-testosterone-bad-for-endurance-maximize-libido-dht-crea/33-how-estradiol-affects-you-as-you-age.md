@@ -1,0 +1,13 @@
+---
+title: "High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?"
+channel: Vigorous Steve
+published: 2025-01-11
+url: https://www.youtube.com/watch?v=obhAjOAIBZg
+chapter: 'How Estradiol Affects You As You Age'
+chapter_start: 4846
+---
+# High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss? - How Estradiol Affects You As You Age
+
+Video: [High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4846s), chapter "How Estradiol Affects You As You Age"
+
+[1:20:46](https://www.youtube.com/watch?v=obhAjOAIBZg&t=4846s) uh thing about how men age estral levels don't affect them too much I'm at 107 P estral not running my typical estrogen man with no G or issues yeah but aren't you running a boat lot of men so yeah but it seems as you age that um at least the guys that are Physically Active it seems that they have less aromati enzyme expression even though you would expect them to have higher aromati enzyme expression because testosterone levels goes down and ideally in older age you have still the same level of estral so that's why generally speaking people get fatter their metabolism slows down so they can get more aromatized enzym expression and the less testosterone that they produce converts uh with more aromatized enzymes to the same level of estrad that they had before during their prime years whereas where you guys see that are you know more physically active and pay attention to their diet they get leaner and leaner and leaner and their testosterone level stay higher where their estrogen levels stay lower and maybe because their estrogen levels are lower their luing hormone follicle stimulating hormone levels stay higher and thus their testost levels are higher so a cause effect the Chicken and the Egg it's it's hard to really tell um but yeah this is something you see between both groups right senary lazy fox then at older age and guys just killed it their entire lives and still are very physically active and if you're 107 pams estra dial then well it's probably because you're taking copious amounts of aromatizable compounds uh Colin Steve I'm in Japan right now two days left what are some of the must dos please let me know if you're in Osaka or Tokyo Yoto and then we'll answer that [ __ ] I'm 30 minutes late if you're still here let me know if you're Tokyo hoso or Kyoto um when is YK live deep life Jesus [ __ ] Christ man Monday or Tuesday Jesus Christ slow slow down relax take a chill pill take some Valium come back next week thas been running four to six I use

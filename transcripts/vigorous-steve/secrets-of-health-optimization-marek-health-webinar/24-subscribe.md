@@ -1,0 +1,13 @@
+---
+title: "Secrets Of Health Optimization - Marek Health Webinar"
+channel: Vigorous Steve
+published: 2024-03-25
+url: https://www.youtube.com/watch?v=viVab4N35k8
+chapter: 'SUBSCRIBE!'
+chapter_start: 5141
+---
+# Secrets Of Health Optimization - Marek Health Webinar - SUBSCRIBE!
+
+Video: [Secrets Of Health Optimization - Marek Health Webinar](https://www.youtube.com/watch?v=viVab4N35k8&t=5141s), chapter "SUBSCRIBE!"
+
+[1:25:41](https://www.youtube.com/watch?v=viVab4N35k8&t=5141s) you uh it's very easy you type in vigorous Steve on YouTube and you find my channel it's the same for Instagram Vigor Steve there vig.com if you go on Google and I even have a Tik Tok but I believe that that's not around much longer um so so if you want to follow me on Tik Tok while it's still around uh Vigor Steve there as well and I have a discount code with mer Health mer health.com vigorous I have two uh lab panels an extensive one uh which if you do that you qualify for hormone replacement therapy under doctor supervision and a budget one in case you just want to check some health parameters which are generally off when you take uh performance enhancing drugs that one is significantly cheaper but you'll get 10% off using the code vigorous at Che Che out thanks so much dude it was a lot of fun yeah likewise thank you so much for your time for everyone who still has questions please reach out to our team we have a whole network of partner providers that would be happy to meet with you answer any questions you have um and then I saw a lot of questions lastly about where they can see the slides so I'm pretty sure Steve you're going to be putting this up on your YouTube here pretty so so I got all the citations here right and I'll add a few more what I'll do is I'll um I'll combine all of the slides and the high quality recording and then I'll drop that on my YouTube channel um sometime next week I'll put all the cations Down Below in case you want to do additional research and then um you know if you watch that video just ask me some specific questions on the Vigor Q&A which is always on Saturday so I'll do that tomorrow around this time and then once the video dropped and you have additional questions just join in Saturday it's uh well this time I'll be live and then you have two and a half hours to get your questions in but there's a lot of people and a lot of super chats so um yeah be ready for some uh yeah some hurt mentality it's a lot yeah but I'll do my best to answer your questions regardless phenomenal thank you so much thank you so much everyone for attending thanks guys I'll talk to you soon peace out

@@ -1,0 +1,13 @@
+---
+title: "TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies"
+channel: Vigorous Steve
+published: 2025-01-25
+url: https://www.youtube.com/watch?v=6PAD-2YhVig
+chapter: 'Should You Use An Air Purifier In Bangkok?'
+chapter_start: 1352
+---
+# TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies - Should You Use An Air Purifier In Bangkok?
+
+Video: [TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies](https://www.youtube.com/watch?v=6PAD-2YhVig&t=1352s), chapter "Should You Use An Air Purifier In Bangkok?"
+
+[22:32](https://www.youtube.com/watch?v=6PAD-2YhVig&t=1352s) Maximo asks hey Steve do you recommend using an air purifier in Bangkok yes 100% I have four air puer fowers in this house on the first floor I have one for the cats on the second floor I have two one in the living room one in the the let's say the workspace the kitchen and one more on the bedroom I don't have one in this room but when my kid is born I will put another air purifier in here the BP m is absolutely terrible right now the haze is disgusting um so yeah training outside is definitely not a good idea right you open up all your bronchioles and then you're allowing all this polluted air to go in so I'm when I start training it's going to be in an air conditioned gym fingers crossed I can start training next week but uh I know that the water retention and the bloating in my leg is a little bit terrible after the surgery that's why it's fully wrapped up so tight like a Russian baby basically they're all like hugged in so I feel like are back in the womb so they don't cry so that's how tightly my leg is wrapped right now um so I'll give that two more days but I probably start trading on Monday again but it will be an air conditioned gym at least until the ppms come down let's see how bad it is air IQ that's the one right uh IQ no that's not one eqi 166 holy dog [ __ ] that's pretty bad it's like between 100 let's say 140 in the area where I live well that's pretty terrible it's all over Thailand it's all over Asia yeah it's probably the Burning Season right for the new crops oh Vietnam and the coast is really clean jez [ __ ] why am I here in Thailand when it's like so unhealthy well luckily I have money for air purifiers so yeah I would definitely recommend one you to buy one wherever you live in Southeast Asia because the government is not going to do anything about uh you know burning the fields for PL planting season so you're going to spend the money and clean the air yourself in the house and wear a mask when you go outside King David before starting trt

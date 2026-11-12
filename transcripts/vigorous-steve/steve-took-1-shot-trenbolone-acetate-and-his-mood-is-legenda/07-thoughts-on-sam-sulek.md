@@ -1,0 +1,13 @@
+---
+title: "Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A"
+channel: Vigorous Steve
+published: 2024-04-20
+url: https://www.youtube.com/watch?v=BN2d68Job6k
+chapter: 'Thoughts On Sam Sulek'
+chapter_start: 592
+---
+# Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A - Thoughts On Sam Sulek
+
+Video: [Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A](https://www.youtube.com/watch?v=BN2d68Job6k&t=592s), chapter "Thoughts On Sam Sulek"
+
+[09:52](https://www.youtube.com/watch?v=BN2d68Job6k&t=592s) do you think about simul 260 lean on the bulk is insane for somebody who's just turned 22 I think a lot of people forget how big J Cutler and and um you know some of the other teenage bodybuilders were um that were already winning shows uh at age 22 the reason why Sam suik is popular is because he's relatable and he's got a good personality this is what makes him popular right I mean Jay Cutler had zero personality in the beginning uh Lee Priest had great personality I mean look at Lee Priest when he was 22 I mean he he would destroy Sam suik right but back then they didn't have social media so they relied on the magazines and word the mouth and uh um so I think that Lee Priest if he were to go on social media uh if he were if he was 22 right now and he were to go on social media he would blow pass Sam suik in a [ __ ] heartbeat right because he's he's even way more likable even way more funny um and I think Sam suik is figuring it out you know I hope that he gets some good guidance um I hope that he listens to the advice that he might get from for what abad's team I know bencha is uh what is it the athletes manager of hostile supplements and uh Ben bencha is a lot of coaching experience and he seems to be pretty in tune I mean he's doing a good job with the ifb pros so if Sam suik is willing to listen to some of his advice or maybe subscribes to this YouTube channel so he can keep himself healthy and and do smart protocols then I think Sam suik can go very very very far but I just watched a posing video between Sam suik and um Jared feather and well Jared feather is I mean Sam suik you can clearly see the gaps from a bodybuilding perspective right his legs have no separation uh the thickness isn't there yet um that being said he looks 10 times better than I did when I was 22 but there's a lot of room for improvement that being said I would love to have his follower count uh but not that level of Fame because I don't think that kid can go anywhere and everybody's talking about the guy including myself duster DK asks hey

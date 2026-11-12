@@ -1,0 +1,21 @@
+---
+title: "GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat"
+channel: Vigorous Steve
+published: 2026-01-03
+url: https://www.youtube.com/watch?v=S8M-kPa-0UI
+chapter: 'Don’t Worry About Diet During Vacations!'
+chapter_start: 1265
+---
+# GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat - Don’t Worry About Diet During Vacations!
+
+Video: [GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1265s), chapter "Don’t Worry About Diet During Vacations!"
+
+[21:05](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1265s) Friday with a bunch of fellow bikini competitors. Suggestions on supplements, peptides, and other things to help counter the extra food, alcohol, or should I just say [ __ ] it? Just say just [ __ ] it. It's 5 days. Just 5 days. If you want to continue with the retatutide or tirzepatide, keep that going. Choose your proteins over your fats and carb sources, but it's a cruise. What you'll probably regret is not eating at the buffet. When you get back home, back home, your usual routine and you're like, "You know what? I should have had those Oreo ice creams or cheesecakes, the little mini cheesecakes I had at the buffet." Hopefully. Not full slices. What the [ __ ] What's wrong with this cruise? >> [laughter] >> You know? It's just like a floating [ __ ] factory giving you so much food. Uh you go with the lobster, you go with the salmon, you go with the steaks. It's very easy, you know? Enjoy yourself, man. Now, if you've been enjoying yourself for Christmas and Thanksgiving and New Year's and you're already a bit sloppy, >> [snorts] >> then yeah.
+
+[22:07](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1327s) That's a lot of That's That's That's not good. That I I misbehaved for Christmas for 2 days and then New Year's had a little bit of a refeed. Uh rice and eggs with some ketchup. Whoopty [ __ ] do. And then today, I had a normal ketogenic day. And then tomorrow, I'll eat some Thai food, so it's not the end of the world. And that's why I look so flat all the time. Not enough carbs and saturated fats. Need some saturated fats for fullness, bro. Boom boom boom. So, but if if I were you, if I just finished Christmas and Thanksgiving and New Year, and I I controlled myself reasonably, but I got a little bit sloppy, what's another 5 days, man? Enjoy yourself. Get plastered. Eat foods. Control it with tirzepatide or retatutide. You know, prioritize the healthy food first and then finish it off with cheesecake. Why would you fill your stomach up with potatoes and rice when you can have the carbohydrates from cheesecake? And and the good thing with about cheesecake is that it has so much fat that it slows down the digestion of the carbs.
+
+[23:10](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1390s) >> [laughter] >> Um uh senna tea, uh garcinia, uh garcinia cambogia, xenical, you know, the the the What is it? What is it? There's There's one product that's um that Gorilla Mind sells. I forgot the name of it. But it it kind of creates a gel in your stomach making you feel full, so if you combine that with retatutide or tirzepatide, you take a couple of those capsules kind of filling up your stomach and then you eat some food, then you're really really full. But it also sucks if you're on holiday, you feel super full and then you're on the cruise on the deck, you know, trying to get a tan on and then your stomach looks more pregnant than my wife was, but you're not pregnant. You're just pregnant with uh bloating and gas and and weird kinds of substances to make you feel full. So, personally, I would um bring the senna tea, garcinia cambogia, xenical, tirzepatide, and just eat uh according to my heart's desires, which is usually a lot. And then you just you know, fix it later on.
+
+[24:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1464s) Viewer question (read aloud): "Try adding in some CAG ?"
+
+[24:24](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1464s) Try adding in some cag. Cagrilintide, yeah. Yeah, it's something to look into, but some people get an adverse reaction and some people don't respond to it at all.

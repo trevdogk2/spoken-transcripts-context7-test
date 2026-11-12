@@ -1,0 +1,13 @@
+---
+title: "Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?"
+channel: Vigorous Steve
+published: 2024-05-25
+url: https://www.youtube.com/watch?v=mxti9X3a2vU
+chapter: 'Book A Consultation With Steve To Pass Drug Tests'
+chapter_start: 6122
+---
+# Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection? - Book A Consultation With Steve To Pass Drug Tests
+
+Video: [Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?](https://www.youtube.com/watch?v=mxti9X3a2vU&t=6122s), chapter "Book A Consultation With Steve To Pass Drug Tests"
+
+[1:42:02](https://www.youtube.com/watch?v=mxti9X3a2vU&t=6122s) that offer services to help beat the drug test I still offer them it's on my website a one hour consultation we get you there $600 $20 but anybody else who is as good as I am uh no there's people who claim claim a lot but I don't know anybody who who has the succcess rate that I had but after the the Olympics I don't feel confident and it it's I don't get enough consultations like that to upkeep um everything so after after the Olympics I will retire from those services but for now um have a look at my consultation rates read through it a 1our consultation is the way to go or one hour personalized advice by emails the same same right this how 600 3629 G per deit free testosterone 11.2 I always forget what the range is but sounds low Ester dial middle of the range LH 6.85 in considering trt uh okay maybe bring your eston levels down a little bit maybe your LH and FSH will goes up maybe do a verico cell check with the testicular ultrasound uh maybe eat a little bit better right there's a multitude of different options I already linked things to can consider before trt down below but yeah if you want to go on trt that's your decision man go for it is there any online forum for people sharing their lab tests after they did steroid and checked it there used to be a website like that um but it I think it turned out to be a fake website and they only tested underground labs so I don't know just place them inimum order and send it in for your own testing cuz all these tests can be faked man you never know with these with these websites now there used to be a British website that would check recreational drugs and steroids and they close it down because they said it's what was it 70 75% of the samples uh didn't either contain the active pharmaceutical ingredient or something else or nothing at all so they're like why were testing like one out of three samples actually has something in it that's as labeled so why do we bother so they shut that down I've used three arimex brands

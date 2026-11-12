@@ -1,0 +1,19 @@
+---
+title: "High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?"
+channel: Vigorous Steve
+published: 2025-01-11
+url: https://www.youtube.com/watch?v=obhAjOAIBZg
+chapter: 'Thoughts On Elevated Creatinine'
+chapter_start: 5456
+---
+# High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss? - Thoughts On Elevated Creatinine
+
+Video: [High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5456s), chapter "Thoughts On Elevated Creatinine"
+
+[1:30:56](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5456s) Viewer question (read aloud): "creatinine (1.4) on regular basis, but very good cystatin C (0.68mg/l) on 3 separate occasions - is kidney disease with normal cystatin C common?"
+
+[1:30:57](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5457s) basis with very good syst Aden C uh on three separate occasions is kidne disease or normal syy common no so it's not ceny it means if that you have abnormal amounts of muscle mass um which is normal in bodybuilding right bodybuilding is all about having abnormal amounts of muscle mass so we can stand out so creatinine of 1.4 1.5 1.6 1.8 is common and once you start creeping up to two then it's a problem even if ceny is in range so I've had it up to 1.96 when I was training high volume and was heavy body weight and taking like 10 grams of creatin per day and eating like 400 grams of protein yeah you have a lot of protein metabolism within skeletal muscle and that's your coratin levels go up even if you're fully hydrated even if your kidney function is absolutely normal um as long as your zist and sea levels are in range and your cins below let's at 1.9 two depending on your body weight levels your your muscle mass your training intensity and your um your creatine usage then I think you're okay and if you're really worried to do um a 24-hour urine collection test and a ultrasound in your kidney just to make sure that everything is going well I do that every year even though my creatinin is not so significantly elevated that my syy levels are within normal ranges still good to kind of check your organs with imaging uh absin shway
+
+[1:32:24](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5544s) Viewer question (read aloud): "Little bro wants to get excess skin after losing 180lbs and pubertal gyno removed, can you suggest any great places you would go to in Thailand?"
+
+[1:32:24](https://www.youtube.com/watch?v=obhAjOAIBZg&t=5544s) little bro want get X's skin for losing 180 pounds and puber G removed can you suggest any great places you would go to in uh Thailand um I will let you guys know where I did the gyno surgery after I did the gyno surgery in case I'm happy with the service uh if I'm not happy with the service I would not mention the clinic because the defam laws are so bad so if I mention a clinic it's good and if I don't mention the clinic it's bad um I just got to look out for myself and ex's skin I don't know where to do that so I would suggest you to contact private hospitals and private clinics do some research read some reviews online and then make a decision because I don't know anybody here that got their ex's skin removed um so I can't recommend the clinic and gyo removed I know several clinics that did it but until I get my Ghana removed um I'm not going to make any recommendation so give me four more weeks and then I'll have a recommendation for you ask me again oh I'll tell you guys and then um yeah and then uh then then you can make a decision but ex's skin most of the private hospitals and and anti-aging clinics that are um you know highly rated should have a s a cosmetic surgeon for that that seems to be reasonably straightforward emx shark Zab taken in

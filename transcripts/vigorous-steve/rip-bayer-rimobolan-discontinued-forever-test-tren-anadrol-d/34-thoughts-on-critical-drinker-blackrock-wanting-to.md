@@ -1,0 +1,13 @@
+---
+title: "RIP Bayer Rimobolan (Discontinued Forever), Test, Tren & Anadrol During A Cut, Height Consultations"
+channel: Vigorous Steve
+published: 2025-02-22
+url: https://www.youtube.com/watch?v=4-OWzpyXBd0
+chapter: 'Thoughts On Critical Drinker & BlackRock Wanting To Buy Disney Stock'
+chapter_start: 4483
+---
+# RIP Bayer Rimobolan (Discontinued Forever), Test, Tren & Anadrol During A Cut, Height Consultations - Thoughts On Critical Drinker & BlackRock Wanting To Buy Disney Stock
+
+Video: [RIP Bayer Rimobolan (Discontinued Forever), Test, Tren & Anadrol During A Cut, Height Consultations](https://www.youtube.com/watch?v=4-OWzpyXBd0&t=4483s), chapter "Thoughts On Critical Drinker & BlackRock Wanting To Buy Disney Stock"
+
+[1:14:43](https://www.youtube.com/watch?v=4-OWzpyXBd0&t=4483s) that guys also I don't think he would be coming on my channel but that uh yeah neus from a Star Wars the I'm sure he would if he has time critical Drinker [ __ ] that guys l Legend all those guys are Legend man I think because of them from all the reviews that I do Hollywood is changing a little bit but it it will take like one or two years before Hollywood get gets good again but yeah you see with the Acolyte and all those series man it's [ __ ] trash dude Marvel has gone to [ __ ] and I honestly think that it's just some sort of Black Rock Scheme to bring the the stock price of uh Disney down to previously uh previously established level so it will hit like ground support and then Black Rock will put like 600 billion there while it's like [ __ ] botted out and then they'll start redoing Star Wars and Disney in a good way and you'll see Disney Skyrocket because when they bought uh Marvel property and Disney property look at the stock look how [ __ ] high it went after the force awakens it it literally five exra something and then black rock is like oh [ __ ] we didn't get in we're not leveraged enough so uh they give him a call right the black rock is a b pretty big [ __ ] investor of Disney I think they own like seven or 10% of the stock or something like that and then they gave uh you know the people in charge a call like hey we don't want to F in at this state so start producing like [ __ ] movies for 10 years and we'll buy it at floor prices and then you can uh and then you'll see black rock underneath the you know the funding for all these movies wouldn't surprise me man it's [ __ ] will games remember this three to four years from now when Star Wars starts getting good again and Marvel starts getting good again and you see that the stock Mark stock prices are going up that's Market manipulation to the highest degree hi Steve fixes for stomach issues

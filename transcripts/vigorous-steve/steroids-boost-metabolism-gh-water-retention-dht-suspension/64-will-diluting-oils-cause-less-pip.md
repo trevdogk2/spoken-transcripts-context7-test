@@ -1,0 +1,13 @@
+---
+title: "Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?"
+channel: Vigorous Steve
+published: 2024-05-25
+url: https://www.youtube.com/watch?v=mxti9X3a2vU
+chapter: 'Will Diluting Oils Cause Less PIP?'
+chapter_start: 6633
+---
+# Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection? - Will Diluting Oils Cause Less PIP?
+
+Video: [Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?](https://www.youtube.com/watch?v=mxti9X3a2vU&t=6633s), chapter "Will Diluting Oils Cause Less PIP?"
+
+[1:50:33](https://www.youtube.com/watch?v=mxti9X3a2vU&t=6633s) 200 milligrams per millit enjoy the post injection pain it's good stuff in MCT but the but way more paper than mro if I dilute it with more Stellar or will it go smoother yeah yeah so if you get some grap seed oil uh USB grade that you can buy on Amazon um might still need to filter fil it uh let me inser this one first so you might still need to filter it to USB great and then uh dilute it to 100 milligrams per milliliter and MCT oil just it disperses really fast and they can also give you post injection Bain even if the concentration is 50 milligrams per 1 Miller because the MCT all disperses and absorbs and breaks down with a lipases and then you're left with primobolan or methon inate which some of that will metabolize at the side of the administration and thus um and th you get post- injection pain yeah know that kind of sucks uh try and makes you breathe like that not the whole day I've been eating I've been car bloting the whole day so previous weeks you can see that they don't really eat and then on Saturday or Sunday eat but yeah of course the trim blone also makes you breathe a little bit harder it's just part of the game man but my stomach is sticking out because I had a b load of sushi I'm car bloing today I mean look at this dude see this cannons you think they're not full of carbohydrates my stomach is also full with carbohydrates so uh if I bought your ebooks when they were on sale and forgot to download them how would I go about getting them I already emailed you my receipt when you email my receipt you can click the in the emails you can click on the ebook and then it goes straight to the website where you can download it so give that a try and otherwise email me again because I didn't see your email about your receipts and you forgot to download them there you can download them indefinitely through the email receed all right guys um let's uh throw in the towel I'm mad

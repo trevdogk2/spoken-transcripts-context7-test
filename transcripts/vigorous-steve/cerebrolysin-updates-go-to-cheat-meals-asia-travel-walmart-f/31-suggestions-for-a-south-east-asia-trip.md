@@ -1,0 +1,15 @@
+---
+title: "Cerebrolysin Updates, Go-To Cheat Meals, Asia Travel, Walmart, Favorite Ice Cream, Cigars & Whiskeys"
+channel: Vigorous Steve
+published: 2025-03-22
+url: https://www.youtube.com/watch?v=hjnsN6KxiRI
+chapter: 'Suggestions For A South East Asia Trip'
+chapter_start: 4461
+---
+# Cerebrolysin Updates, Go-To Cheat Meals, Asia Travel, Walmart, Favorite Ice Cream, Cigars & Whiskeys - Suggestions For A South East Asia Trip
+
+Video: [Cerebrolysin Updates, Go-To Cheat Meals, Asia Travel, Walmart, Favorite Ice Cream, Cigars & Whiskeys](https://www.youtube.com/watch?v=hjnsN6KxiRI&t=4461s), chapter "Suggestions For A South East Asia Trip"
+
+[1:14:21](https://www.youtube.com/watch?v=hjnsN6KxiRI&t=4461s) Viewer question (read aloud): "My wife and I plan on doing a 1 month trip to SE Asia (Thailand, Vietnam, Cambodia, etc) in the future. Any suggestions on things we must do or must avoid on the trip?"
+
+[1:14:22](https://www.youtube.com/watch?v=hjnsN6KxiRI&t=4462s) month trim to Southeast Asia Thailand Vietnam Cambodia Etc choose one place man you you have like one week in Thailand one week in Vietnam one week in Cambodia it's uh with all the traveling and and it's it's quite a rough and intensive holiday any suggestions on thing we must do uh or avoid on the trip yeah avoid going to three countries um all three are great I you know what I would do if you're uh you want to do it in the future just start planning well ahead of time look for all the cool things you want to do in Thailand look for all the cool things you want to do in Vietnam look for all the cool things to do in Cambodia categorize them prioritize them and then see which country you want to visit and then make a travel itinerary right there's there's really cool [ __ ] to do in Vietnam fuk Island um dang and and Hanoi with Hong Bay right and maybe sapai if you go on the right season and then your month is done dude I was in Vietnam for three months three months and I saw everything between fuk and Sapa I stopped everywhere fuk and bentre and vau is it I think vau South and then Saigon and then and everything in between dang for sure the lot I went to I went [Music] to py um Long Bay but then in Inland where you go through it with a little um battle boat to use their feet on what is it called nin bin nin bin uh Hong Bay obviously sappa i' have been everywhere it took me three months dude so Thailand Shang Rai shangai avoids the the the the guy that will approach you the neck beard and will approach you telling he's the greatest educator on the planet and then makes you want to sign up for his membership side of that guy unsolicited advice from a guy that doesn't look like anything um what else do we have a couple cool places in the middle you have pette obviously P Island Krabby you know all these places you can visit PTI if you like to I mean you can do some cool high roller [ __ ] with your wife regarding cigar lounges and restaurants and uh you know rooftop bars but you can do also that in Bangkok and um yeah just avoid over traveling because she need to stay every place for a couple days enjoy yourself relax a little bit man it's a holiday dude

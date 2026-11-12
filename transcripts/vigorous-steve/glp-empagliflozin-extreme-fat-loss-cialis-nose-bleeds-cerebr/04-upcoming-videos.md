@@ -1,0 +1,15 @@
+---
+title: "GLP & Empagliflozin EXTREME Fat Loss, Cialis Nose Bleeds, Cerebrolysin Vs. Cortexin, AICAR"
+channel: Vigorous Steve
+published: 2025-04-05
+url: https://www.youtube.com/watch?v=0lswGv0maqE
+chapter: 'Upcoming Videos!'
+chapter_start: 270
+---
+# GLP & Empagliflozin EXTREME Fat Loss, Cialis Nose Bleeds, Cerebrolysin Vs. Cortexin, AICAR - Upcoming Videos!
+
+Video: [GLP & Empagliflozin EXTREME Fat Loss, Cialis Nose Bleeds, Cerebrolysin Vs. Cortexin, AICAR](https://www.youtube.com/watch?v=0lswGv0maqE&t=270s), chapter "Upcoming Videos!"
+
+[04:30](https://www.youtube.com/watch?v=0lswGv0maqE&t=270s) , the deep dive into MODS that I already recorded should be released, uh, next week, hopefully. The video of myonuclear transpiration phosphate , also recorded, should probably be published next week. I'm in Bali, so I'm hoping it will be published, uh, I don't know, sometime between the 14th and the 18th. And, uh, actually, I'm working on the GC1 deep dive, so it's a slightly different order than the one I've listed below, so I'm working on that. And after that, I'll work on deep data immersion, in the deep immersion bath, I made a DHT cream protocol, and I keep finding new videos to include there. So I do research for 15 to 30 minutes a day, while working on the other deep dive simultaneously. But for that, I really sit down. Let's see. Deep immersion in methane blue. Well, I was pressured a bit to do it faster, but I'm not going to because Instagram or TikTok influencers make one-minute reels. We're not in the same game, we're not at the same level. A deep dive of 1 hour versus a one-minute TikTok or a one-minute Instagram reel. It's not the same. So I'll gradually prepare myself for the deep dive of Metalling Blue to see if any DNA damage occurs.
+
+[05:42](https://www.youtube.com/watch?v=0lswGv0maqE&t=342s) Again, I came across, you know, some studies showing possible DNA damage from in vitro studies , which I didn't find compelling enough to include, but I mentioned as a final note in the Metalling Blue deep dive that Metalling Blue in higher doses might act as a pro-oxidant, just as vitamin C and glutathione act as pro-oxidants in higher doses. So I thought that was pretty thorough, but you know, we'll gladly do another appendix or a second part and then show you what the actual tests say. Let's see. And then we'll delve deeper into BDNF and then we'll go back to the mitochondrial support stack . That's more or less the schedule for the next two weeks. Let's see, there is another article or publication by TTPowski that is in the link below. Grow up or die trying. Social media is driving steroid use among men, and here we explain how to mitigate the risks. It was an interesting read. It's linked below. And the injury and surgery recovery protocol is also linked below. I already saw that people were asking TB500 questions to BBC5 and 157 questions and that's not really necessary because the protocol is already listed. Well, those are more or less the updates. I think I'm going to Bali

@@ -1,0 +1,17 @@
+---
+title: "TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies"
+channel: Vigorous Steve
+published: 2025-01-25
+url: https://www.youtube.com/watch?v=6PAD-2YhVig
+chapter: 'What Compounds/Ancillaries Could You Take In The Offseason?'
+chapter_start: 7385
+---
+# TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies - What Compounds/Ancillaries Could You Take In The Offseason?
+
+Video: [TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies](https://www.youtube.com/watch?v=6PAD-2YhVig&t=7385s), chapter "What Compounds/Ancillaries Could You Take In The Offseason?"
+
+[2:03:05](https://www.youtube.com/watch?v=6PAD-2YhVig&t=7385s) Viewer question (read aloud): "Hey Steve! I take everything you mentioned in recent ultimate fat loss stack video (SLU, MOTS, reta, jardiance, cardsrin, etc). Which things would you take out during maintainance or bulking phase?"
+
+[2:03:06](https://www.youtube.com/watch?v=6PAD-2YhVig&t=7386s) you mentioned in the recent ultimate fight loss stack SLU mon retro Jans uh cards cartering Etc which things would you take out during maintenance or barking phase all all albe it that the some people swear that retro tide in the offseason might help with insulin sensitivity and improve your blood work markers um so so again I haven't got into that part yet so stay tuned for deep dive on Rich to tide but uh yeah that that might be the only one you keep in like Jans will that the sodium gluc empal flow and sodium glucose type 2 inhibitor will prevent you from um absorbing all of the glucose that you're eating so you might as well eat less what's the [ __ ] point like cardarine I wouldn't take during the offseason SLU you could take during the offseason Moy you could take during the offseason um so yeah SLU Matti retra perhaps I'm taking SLU and Mai I took that throughout the entire seven we eight week offseason that I had and my energy levels were great even though I still got chunky but I ate a lot of food also that's my [ __ ] tonight so yeah I I I would uh SLU Mai 750 micrograms SLU 500 to 750 micr SLU maybe one mill per day 1 milligram mzi per day or five times a week on training days and then like a quarter milligram retr to tide or half a milligram retr to tie three times a week but if it Blends your appetite too much and you can't eat then obviously it kind of defeats the purpose of the offseason because uh you have to um eat thumbnail looks like Steve is pitching a tent really oh no I did pitch a tent though after my lick surgery didn't go down for four hours because they gave me a spinal block did I am I really pitching a 10 [ __ ] that's pretty PG uh God damn it conver stop oh yeah now that was that was after the gynecomastia surgery that's a fract that's that's laser therapy I think it's red light therapy to help with tightening of the skin but no I did pitch a tent I even have a picture but I can't show my wife took it while I sleep like what the hell's going on she's like can see it through the [ __ ] blanket I say yeah it's I didn't expect that that to happen but the spinal top gave me a huge boner she's like what the [ __ ] is this it's not my fault I can't even feel it unless I put my hand
+
+[2:06:07](https://www.youtube.com/watch?v=6PAD-2YhVig&t=7567s) on free uh me USA if growth seems to

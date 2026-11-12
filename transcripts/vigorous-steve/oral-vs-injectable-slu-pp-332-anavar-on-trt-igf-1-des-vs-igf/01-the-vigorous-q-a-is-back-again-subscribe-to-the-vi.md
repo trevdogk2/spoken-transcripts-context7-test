@@ -1,0 +1,15 @@
+---
+title: "Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics"
+channel: Vigorous Steve
+published: 2025-08-09
+url: https://www.youtube.com/watch?v=RVoNhhm6COA
+chapter: 'The Vigorous Q&A Is Back.. Again! Subscribe To The Vigorous Clips Channel!'
+chapter_start: 4
+---
+# Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics - The Vigorous Q&A Is Back.. Again! Subscribe To The Vigorous Clips Channel!
+
+Video: [Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4s), chapter "The Vigorous Q&A Is Back.. Again! Subscribe To The Vigorous Clips Channel!"
+
+[00:04](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4s) What's up, my dudes? It's a vigorous Q&A again. It's been three freaking weeks since we did one of these, but I've been kind of busy with the daddy and parenting stuff, but here we are again. I know you guys missed me, so might as well do another vigorous Q&A and get through all of those performance and drip questions. First couple updates, link down below. Uh, subscribe to the Clips channel. We're at 6,000 subscribers now. uh the more the marrier. That's uh almost covering for the extra editor that I had to hire to get all these clips for you guys done. So, we're slowly working our way back in time. So, all the most recent clips are already there. And then we're slowly going back to 2024, 2023, 2022, and then maybe 21 and 20 if I feel those videos are still clippable, worthy of putting on the clip channel. And otherwise, at least all of the deep dives, all of the long form content will be nicely chopped up on the clips channel. Maybe one clip, two clips, four clips, seven clips, who knows? Then uh you can digest it a little bit easier. All right. Um on Drew, what was it? Drew Donaldson's uh training method. I did a podcast about three weeks ago. So, in the last Figurish Q&A, I told you guys to subscribe to that channel. And now the podcast is finally live. It's been alive for three weeks, but now it's linked down below in case you haven't watched it yet. We discussed all kinds of different things like mitochondrial peptides and retutide and basically everything that we've been talking about on this YouTube channel for the last couple of years. So that was interesting. And I also did a podcast with Mike Thirsten and Vadim Vitov for the Hack podcast. We recorded that last week. So I suspect that will go live on their YouTube channel next week. That was a very interesting discussion again about you know uh what it is to be natural, what it is to go from natural to enhanced because allegedly Mike Thirstston is still natty even though it's hard to believe which I told him on the podcast as well. And uh we discussed all kinds of biohacking methods methods to kind of um improve your overall quality of life.
+
+[02:05](https://www.youtube.com/watch?v=RVoNhhm6COA&t=125s) So that was discussed and that's pretty

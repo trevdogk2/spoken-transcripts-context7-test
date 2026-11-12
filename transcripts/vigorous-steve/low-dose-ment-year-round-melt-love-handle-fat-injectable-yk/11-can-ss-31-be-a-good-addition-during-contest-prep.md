@@ -1,0 +1,21 @@
+---
+title: "Low-Dose MENT Year-Round, Melt Love Handle Fat, Injectable YK-11, SS-31 Mandatory Cycle Support?"
+channel: Vigorous Steve
+published: 2026-04-25
+url: https://www.youtube.com/watch?v=F5G6lxmNrf0
+chapter: 'Can SS-31 Be A Good Addition During Contest Prep?'
+chapter_start: 1332
+---
+# Low-Dose MENT Year-Round, Melt Love Handle Fat, Injectable YK-11, SS-31 Mandatory Cycle Support? - Can SS-31 Be A Good Addition During Contest Prep?
+
+Video: [Low-Dose MENT Year-Round, Melt Love Handle Fat, Injectable YK-11, SS-31 Mandatory Cycle Support?](https://www.youtube.com/watch?v=F5G6lxmNrf0&t=1332s), chapter "Can SS-31 Be A Good Addition During Contest Prep?"
+
+[22:12](https://www.youtube.com/watch?v=F5G6lxmNrf0&t=1332s) Hey Steve could SS-31 be a good
+
+[22:13](https://www.youtube.com/watch?v=F5G6lxmNrf0&t=1333s) Viewer question (read aloud): "hey steve. could SS-31 be a good protective addition for the last weeks of a contest prep, when Tren + orals are added? thx"
+
+[22:14](https://www.youtube.com/watch?v=F5G6lxmNrf0&t=1334s) protective addition for the last weeks of contest prep while trenorol are added? Yes, I think everybody should be running it especially if you use tren or equipoise because SS-31 is predominantly accumulated in the kidneys and it's the kidneys that are susceptible to oxidative stress either caused by trenbolone or equipoise. Again trenbolone there's no scientific evidence that it causes kidney damage but with boldenone that's certainly the case in humans and animal models. Anecdotally we see that trenbolone and boldenone increase cystatin C levels but growth hormone does that as well. So if you're on the triple whammy of high dose growth hormone high dose or moderate dose trenbolone and then insufficient dose equipoise a cystatin C might go up temporarily because you produce more cystatin C on these compounds. Doesn't mean that it affect your kidney function but I would say that tren and EQ affect your kidney function more whereas growth hormone actually promotes the production of cystatin C especially at higher dosages. So I would run 2 2 mg maybe 10 mg SS-31 during a protocol where you're on a lot of trenbolone or equipoise or both. Yeah.
+
+[23:22](https://www.youtube.com/watch?v=F5G6lxmNrf0&t=1402s) And and with growth hormone that's not necessarily the case because from all the blood work results that I've seen on growth hormone where cystatin C was elevated including my own results that always comes back down to baseline within 2 weeks of cessation whereas with trenbolone and equipoise might stay elevated for weeks to months and that indicates some sort of mitochondrial dysfunction or issue with the kidneys. So yeah, I would I would just add it in as soon as you start ramping up the mitochondria or you're suscepting yourself to a lot of oxidative stress SS-31 should be a protective agent. Yeah. Yeah, and I'm talking about 2 mg to 10 mg and and maybe 40 mg. If you did damage to your kidneys maybe 40 mg can fix that but the only person I'd ever heard talk about getting improved kidney values was Ben Chow and I had tried to reach out to him but I never got a reply. I mean it's it's Instagram you know, what do you expect? Um so he was running the full mitochondrial support stack right methylene blue SS-31 uh MOTS-c SS SLU right the whole shebang in his last contest prep or last diet that he did and his kidney markers are actually improved.
+
+[24:32](https://www.youtube.com/watch?v=F5G6lxmNrf0&t=1472s) So I I I would say that it's at least for kidney protection protective effects and overall the reduction of oxidative stress and overall stress in your system I think it's a good protective agent. Uh it will just take time to really play out in the real world. Then again who was the first one to talk about mitochondrial health? You're welcome. >> [laughter] >> You're welcome. Uh thanks for sending me to the Omega Amino sale chases awesome elbows finally healing after using GLOW. Got my tirzepatide and got Lena for summer. We'll start low dose 0.25 mg three times a week work my way up. Okay, that's good to hear. Yeah, GLOW works very very well. Yeah, I like it. Post injection pain is a little bit >> [clears throat] >> annoying but uh you know, there's no free rides. Welcome to the Vigorous Crew. We are starting now.

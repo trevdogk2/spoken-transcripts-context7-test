@@ -1,0 +1,17 @@
+---
+title: "TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!"
+channel: Vigorous Steve
+published: 2025-02-15
+url: https://www.youtube.com/watch?v=bk5fkwRCKbY
+chapter: 'There Are Miles Of Unused Vagenes'
+chapter_start: 5082
+---
+# TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate! - There Are Miles Of Unused Vagenes
+
+Video: [TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=5082s), chapter "There Are Miles Of Unused Vagenes"
+
+[1:24:42](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=5082s) later Joshua dude we need to get a [ __ ] drink uh composure Steve get your composure back I was just making I did that fertility video right and then you go through [ __ ] I'm crying dude uh I did that fertility video right you overlay like you know medical graphs of the composition of the sexual organs from men and Fe um men and females and then my we did Ultra sounds on my wife you know to uh to see if the cervix is too short or too long for the pregnancy and stuff so it was normal size and then kind of look at the graphs you oh okay the uh the vagina is this long and the cervix is this long and then the uterus is this long so I just imagining like how many vaginas would it take to fill up a mile can you imagine how many repetitions in a vagina would you need to fill up a mile and would you ejaculate before you fill up a mile obviously if you have a 4-in penis would take you more repetitions than a 6-in penis but a six to seven inch penis might not fill the vagina fully and then you're left with an inch of cold space and then frantically trying to connect your pelvic floor together um at the right angles you can anyway now we're going Way Beyond what this Vigor Q is meant for American Pie no but idiocracy is the one Yeah Yeah by Mike Judge beef is in Butthead Terry Cruz for president yeah man imagine if America had a prisent like Terry Cruz Rondo it's got electrolytes every time I see a video about prime or or these electrolyte drinks I have to think about brondo well it's got electrolytes it's good for plants all right we're at the end of the live stream do you have a reference code for
+
+[1:27:09](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=5229s) Viewer question (read aloud): "do you have a reference code for chase irons' retatrutide?"
+
+[1:27:09](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=5229s) Chase IR says R uh no just go to his website I think he uh he has it for sale there but I don't have a discount code for uh Chase because I would not want to uh have him lose income or uh give me a percent of his sales so if you want to support chase by all means go over to his website purchase it for the full price unless he has a discount code for himself to kind of track where uh the sales are coming from and all I heard was good results so you have a domestic supplier in form of Chase whether that's cartine orti or some other peptides and uh well the chase irons fund for more babies and more home gym equipment is always growing the vine mild times actually I should take Joshua Perry to uh Anthony's um Speak Easy in Las Vegas and then we can get [ __ ] wasted talk about Ed's movies h all right let's scroll back a little bit you may not live long we're talking

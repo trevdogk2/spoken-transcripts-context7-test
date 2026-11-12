@@ -1,0 +1,13 @@
+---
+title: "Operation Gyno \"The Finale\" Live Blood Work & Food Allergy Review + PED Protocol Adjustments"
+channel: Vigorous Steve
+published: 2025-01-09
+url: https://www.youtube.com/watch?v=-OG4Ie4R73k
+chapter: 'Steve Did The See Food Diet While On Vacation & Got Major Digestive Issues'
+chapter_start: 109
+---
+# Operation Gyno \"The Finale\" Live Blood Work & Food Allergy Review + PED Protocol Adjustments - Steve Did The See Food Diet While On Vacation & Got Major Digestive Issues
+
+Video: [Operation Gyno \"The Finale\" Live Blood Work & Food Allergy Review + PED Protocol Adjustments](https://www.youtube.com/watch?v=-OG4Ie4R73k&t=109s), chapter "Steve Did The See Food Diet While On Vacation & Got Major Digestive Issues"
+
+[01:49](https://www.youtube.com/watch?v=-OG4Ie4R73k&t=109s) the time that I went to the United States for the Mr Olympia I started getting some uh digestive issues and when I say digestive issues major digestive issues now I probably had some Digest of issues before I went to the United States but because here in Thailand I I basically eat the same thing every single day besides Sunday when I go out with a nice meal with my wife and even then it's pretty reserved um maybe one chocolate lava cake or something like that maybe one muffin maybe one cheesecake not in total that's just once per Sunday I choose one dessert and then maybe some snacks at home it's still reasonably um you know benign reasonably vanilla maybe some sardo bread you know whoopy dude it's not very exciting so when I go on holiday whether that was the United States or Holland or Dubai or uh the UK and recently New Zealand where I was for Christmas everything goes so I eat whatever I want I don't consider myself a bodybuilder even though I might might go to the gym I um yeah I eat I do the seafood diet I basically seafood and I eat it if I feel the need to eat it to the dismay of my stomach because uh well when you have a food allergy or some issues with your digestive tract some foods don't sit well with you so I had some major digestive issues in the United States a little bit of digestive issues when I was in Dubai and the Netherlands uh major in the UK then I went to the Netherlands again after the UK for the announced game seminar and then when I was in New Zealand um let's not get started my stomach was Lally here yeah not a good idea so uh when I came back from uh New Zealand uh luckily I flew business and of course the food in business class is absolutely phenomenal so I ate that too and I was even more bloated by the time I was at passport control here in Thailand never going to do that again um so by the time

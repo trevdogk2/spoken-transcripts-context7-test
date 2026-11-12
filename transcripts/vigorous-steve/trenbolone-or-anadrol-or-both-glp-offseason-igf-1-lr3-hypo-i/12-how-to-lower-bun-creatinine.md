@@ -1,0 +1,13 @@
+---
+title: "Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!"
+channel: Vigorous Steve
+published: 2025-02-08
+url: https://www.youtube.com/watch?v=Jp07kf7YaTI
+chapter: 'How To Lower BUN & Creatinine'
+chapter_start: 1161
+---
+# Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More! - How To Lower BUN & Creatinine
+
+Video: [Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=1161s), chapter "How To Lower BUN & Creatinine"
+
+[19:21](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=1161s) for a while but eg4 shells reading was above 60% or above 60 in blood pressure in check any way to lower dose nope no I know it's kind of a by I know it's kind of a byproduct of working out by by Alt and a is relatively lower it's just part of the game man if you eat meat if you eat uh creatine monohydrate if you train hard your creatinin is going to be elevated but you can lower your blood urine n you're going to lower both blood UA nitrogen and creatinine by drinking more water and taking uh what estal extract or the estoy 4 extract at 100 milligrams twice per day um using a blood pressure medication to help with the urine flow right and lower lowering the water retention allowing for more filtration through the kidney so it's it's just a total package but check your assist out and see and do a 24-hour urine collection test to see if there's any kidney damage I find it very unlikely and if that's the case then well you come off cycle you lower your protein and you do everything you need to do to bring your GFR up again and it's the the Real the true GFR right based on your 24-hour Ur in collection test checking your serum creatinin and serum cyst adeny through your urine creatinin and urine cyst adeny while checking uh urinary albumin levels as well so the blood Ur nitrogen and creatinine being elevated is common and if you know that your kidneys are working fine then I would not worri about it too much but if you see a trend of both of them going upwards and they keep going upwards even though you're trying to do everything right then yeah I would start to get worried so I've had my blood nitrogen as high as 35 what was it milligrams per deciliter and creatinine 1.95 milligrams per decil um and now it's way lower even though I'm bigger than I used to be so you know change your diet and change your uh don't train so much to failure that also increases your craing levels and now I leave leave a couple rips in reserve but I take less gear than I used to all right let's see Anton hey Steve my

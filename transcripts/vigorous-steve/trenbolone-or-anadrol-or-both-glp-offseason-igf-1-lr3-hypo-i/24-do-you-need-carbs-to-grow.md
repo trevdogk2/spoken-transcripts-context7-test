@@ -1,0 +1,13 @@
+---
+title: "Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!"
+channel: Vigorous Steve
+published: 2025-02-08
+url: https://www.youtube.com/watch?v=Jp07kf7YaTI
+chapter: 'Do You Need Carbs To Grow?'
+chapter_start: 2542
+---
+# Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More! - Do You Need Carbs To Grow?
+
+Video: [Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=2542s), chapter "Do You Need Carbs To Grow?"
+
+[42:22](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=2542s) weight on keto uh do you know anyone who from scratch bulked up a significant amount on a keto diet how did it go it went great you guys know that it was in a good mood High libido uh good energy levels it's just calories and nutrients man you don't need carbs necessarily to grow uh but not everybody responds well to keto just not like everybody responds well to carbohydrates so you hear all these bodybuilders saying high protein or moderate protein high carbs and uh low fat and if that works for you I don't care whatever works for them man if if it keeps them shredded and fully pumped and and and they make great gains then yeah by all means and if uh you know moderate high protein high fat and and low to zero carbs works for you then do that um the only it doesn't matter what what like what I did or other people do it matters if it works for you or not and the only real way of knowing it is by giving it a try so whatever calories you're eating now shift if you're doing like 40% 40% 20% so 40% protein in calories 40% carbohydrates and 20 20% in fat then shift some of those carbohydrates or all of them to protein and fats and then you do like uh well 50% uh protein and 50% fats or or 50% protein 10% carbs and 40% fats from a chloric perspective see if that works and and start increasing in calories because you never really know until you try it and it doesn't matter what other people do the other people's Cycles don't matter other people's training philosophies don't [ __ ] matter other people's caloric intake doesn't matter it the only thing that matters in bodybuilding is what works for you and you can take other people as an inspiration and say yeah but it works for Ronnie colan well I got news for you are not [ __ ] Ronnie Coleman you're not me you're not Dave Palumbo you're not uh Dennis wolf you're not anybody else but yourself so you got to figure it out and uh and if it works you keep it and if it doesn't work then you change to something else do pepites like BBC want 57 tb500

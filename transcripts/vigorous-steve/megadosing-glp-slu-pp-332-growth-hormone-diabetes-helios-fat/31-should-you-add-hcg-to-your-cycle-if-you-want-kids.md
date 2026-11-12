@@ -1,0 +1,21 @@
+---
+title: "Megadosing GLP & SLU-PP-332, Growth Hormone Diabetes, Helios Fat Loss, Bioglutide Update"
+channel: Vigorous Steve
+published: 2025-09-13
+url: https://www.youtube.com/watch?v=Dky7Yzj9iSg
+chapter: 'Should You Add HCG To Your Cycle If You Want Kids Later On?'
+chapter_start: 3507
+---
+# Megadosing GLP & SLU-PP-332, Growth Hormone Diabetes, Helios Fat Loss, Bioglutide Update - Should You Add HCG To Your Cycle If You Want Kids Later On?
+
+Video: [Megadosing GLP & SLU-PP-332, Growth Hormone Diabetes, Helios Fat Loss, Bioglutide Update](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3507s), chapter "Should You Add HCG To Your Cycle If You Want Kids Later On?"
+
+[58:27](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3507s) Mayor, 46 years old, HRT since 10
+
+[58:27](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3507s) Viewer question (read aloud): "46yo trt since 10 years trt++ since 2 years. 175 test, 91 primo/week 10mg var/day startet 50mg npp/week. Should i stack hcg in case I wanna restore own production some day or 0 chance thatfor anyway"
+
+[58:29](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3509s) years. No, he accepts. HRT for 10 years. HRT ++ from two years old. And then in 2027 it will be on HRT ++++ actual cycles . 175 tests, 91 applications week, 10 milligrams anovara per day, started with 50 milligrams MPP per week. Worth it combine ACG if I want to someday restore one's own production, otherwise there is zero chance of that. Well, if you are 46 and you are all Do you still want to have children? you will need at least three months. I don't know whether Do you want to have children? or not. I am completely stopped taking HRT, dude. From me end. Damn it, me. Take it away, it's over. IN I have one daughter, two embryos in development. Damn it, get the hell out of me. end. My libido wonderful, especially in train. Hmm, mine wife is still hot . I earn well. What still needed for good libido, Dude? I am eating. great, right? So, I look good. IN I am beautiful...I have there is no dad bot. IN I'm wonderful, you know, I get compliments. from beauties in gym. Like, Steve, you have really good shape for dad. So no start calling I'm just a dad. Yes, girl. Um, but yes, if you want to impregnate someone in at this age, be please start taking HCG. Um, Nandlon has some negative consequences for parameters fertility, watch the video about steroids vs.
+
+[59:40](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3580s) fertility, where am I I'll explain all this to you, too. will need stop taking, as only you will be ready to get pregnant someone. And testosterone if you want to have more chances to get a girl pregnant or a boy, because steroids increase oxidative stress, and the Y-chromosome, or male sperm, more prone to oxidative stress. So, taking steroids, you destroy everyone men's spermatozoa, and this means that you have higher probability to get a girl pregnant . I discuss all this in section "Steroids" against fertility " and "How to get pregnant" wife after years using explosive equipment ". But in your case, if you don't want anyone get pregnant, 200 testosterone, 100 prime, 50 NPP and 10 milligrams of anavar per day, add more one plus to this TRT. Enjoy, dude. It's like, uh, 300 of 420 milligrams steroids per week. Add a little growth hormone for to a greater extent. Buy Damn Harley-Davidson. Crush yourselves. AND then to hell with everyone blondes. Have her age, brunettes, a fiery crotch or whatever, dude.
+
+[1:00:41](https://www.youtube.com/watch?v=Dky7Yzj9iSg&t=3641s) But you are just in the best area for a nice Harley-Davidson. AND when you look pumped up on Harley-Davidson, make sure that the steering wheel is a little higher, you know, with a mirror below so you can to look under oneself armpits. And then you You bend over and think: " What the hell? "" Look in the rearview mirror you look and think: "What the hell What the hell, brother? It's simple. madness". And then everyone around looking at you like: "It's simple madness". "They say:" Can I sit down? "" I say: "Well, I don't have back seat, so you know where "You need to sit down." A in front, like Aerosmith. You are 46 years old. I'm sure you are. Do you remember this video? It's incredible. Uh, SLU PP332, dude. I have memes for a few days now.

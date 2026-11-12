@@ -1,0 +1,21 @@
+---
+title: "Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics"
+channel: Vigorous Steve
+published: 2025-08-09
+url: https://www.youtube.com/watch?v=RVoNhhm6COA
+chapter: 'What Can You Add To Supercharge Your HRT?'
+chapter_start: 4404
+---
+# Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics - What Can You Add To Supercharge Your HRT?
+
+Video: [Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4404s), chapter "What Can You Add To Supercharge Your HRT?"
+
+[1:13:24](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4404s) Hey, Steve. As 46-year-old father of two, not competing or advanced at any level, dialed in my HRT with Dave L. Dave Lee. Oh, yeah. Dave Lee. Yes. Uh, you can't put L like that. Dave Lee is not a guy that takes L's. Dave Lee, he's a legend, dude. [ __ ] nice guy. And he looks like a [ __ ] biker. Even though I don't. Dave, if you're watching, are do you drive motorcycles? You look like the perfect guy to drive like with a Harley. I can totally see Dave Lee in a Harley at the end of the day listening to AC/DC just like I did and uh you know some de leopard just riding around contemplating his next move in the TRT community looking to recon my dad bought even more. What would a good HRT protocol be? Test Scream four clicks per day. So, I don't really like test cream, but dude, if you got your HRT dialed in with Dave Lee, then you don't need me. Dave knows your [ __ ] So, you might be on a little bit of DHEA, a little bit of test, um maybe pregnantone if you need it, but you know, if you want to get leaner, you the stuff that we add, the fat burners, um it's not HRT+ really. HRT+ is like mostly about the hormones. So you would do hormone replacement therapy and maybe you know something along those lines like primo but all the fat burners we run are not really HRT+ approved. This is just research chemicals right the SLU MSI SS31 mental blue mirror climbrol all these all these fat burners to help you improve your body composition.
+
+[1:15:13](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4513s) carnitine. Okay. That carnitine would be HRT plus approved because carnitine is a biioidentical hormone or biioidentical amino acid. Is it? Yeah, it's amino acid. Um, so that would be HRT+ approved. And then methionine and otooline that's also amino acids. Um, so that would be HRT plus approved. But SLU I think Dave Lee would seven studies. The [ __ ] bro. Of course Steve recommended this [ __ ] Miy, no human studies. what are you doing? Even though it's a bidentical hormone that your mitochondria produce, SS31 is a synthetic and there's actually a good amount of scientific evidence in humans. So, if you want to run a mitochondrial peptide and you need human studies to back it up, SS31 is the one you need to go with. Yes, we'll do a deep dive on it when I get my head of my out of my ass and I stop being lazy and actually get back to work. But just allow me this moment with my daughter and my family and my cats for [ __ ] sake. Um, I would just look into the mitochondrial support stack, man. That gives you a lot of energy. You'll be energetic. You'll be in a good mood, especially with methyline blue being a Maui inhibitor.
+
+[1:16:25](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4585s) Um, your serotonin dopamine levels will go up a little bit. And uh, and then with SLU and the and the mods and the SS31, yeah, it's it's probably not Davely approved. Uh, it's certainly vigorous Steve approved. I'm running it right now and it's 1:00 in the morning. I've been running around all day. I've went to the gym, set some PRs. Well, for this cycle, not not compared to the past. I've been uh doing stuff all day and uh I'm I'm going strong, man. On 2,500 calories,
+
+[1:16:51](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4611s) Viewer question (read aloud): "Has your opinion on Masteron as a TRT add on changed/adjusted to help with drier look and reducing estrogen? Something like 120 Test-C/wk and 60 Mast/wk over 2-3 injections/wk"
+
+[1:16:53](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4613s) getting leaner by the day. The safety super has your opinion on

@@ -1,0 +1,17 @@
+---
+title: "GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat"
+channel: Vigorous Steve
+published: 2026-01-03
+url: https://www.youtube.com/watch?v=S8M-kPa-0UI
+chapter: 'Long-Flight Stack'
+chapter_start: 1472
+---
+# GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat - Long-Flight Stack
+
+Video: [GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1472s), chapter "Long-Flight Stack"
+
+[24:32](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1472s) Flying 14 hours, dropped GH a week ago. Any other recommendations to maximize my experience, time zone, energy, bloating? So, usually when I travel, uh it's business. It helps. It's three times the price, but it's well worth it, man. You can lay down flat and roll around a little bit. You get some good food even though usually when I travel alone, like when I go to the Arnold Classic, I'll be fasting. If I travel with my wife, it's usually an event, so on the uh 18th and 23rd or 24th of January, we fly business class one whole hour to Koh Samui. I will not be fasting. It's only 1 hour. But for a 14-hour flight, I would drop all the things that potentially retain water. Don't eat anything in the flight, uh which sucks, but hey, we got tirzepatide and liraglutide to blunt your appetite. Just drink water so you don't hold any water uh while you're flying. You don't have to take a dump in toilet uh on the bathroom, right? Which which are very small and used by well, general population, which toilets in the bathroom or the toilets in the airplane are freaking nasty after like 1 hour.
+
+[25:45](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1545s) So, I wouldn't want to use those sitting down. And then uh you just go to the bed uh bathroom to pee a couple times. And then when you arrive, you could take some sleeping aids. Whether that's melatonin or Benadryl or [ __ ] diazepam, that's up to you. I usually take a Benadryl. Knocks me right out. Benadryl and a glass of wine. >> [laughter] >> No, Steve. No. Just uh yeah, I have some Benadryl here that I bought in the US and that seems to be the best sleep aid that makes me least loopy the next day. So, I take a Benadryl as soon as I get into the plane. Uh business class, lay down and uh well, economy, I'm like hunched over with my chin in my chest and I'm drooling down my uh you know, my clav- my cleavage into my belly button. It's a nasty sight, but at least I'm sleeping, so I don't have to observe myself. Um and then as soon as you arrive, you take a modafinil or strong coffee or dihexa or bromantane and get the day started. And then you can look into SR9009, which helps with the regulation of circadian rhythm, right? You take it for 3 days, maybe 10 mg three times per day. Morning uh afternoon and and late afternoon, so let's say what? Uh 7:00 and 11:00 and 4:00, give or take like 4 to 5 hours in between. 10 mg per serving. You do that for 3 days with a little bit of dihexa or bromantane or uh Adderall if you prefer.
+
+[27:10](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1630s) And then you're good to go, man. Good to go. Hoping the New Year kicks off with zero height protocol questions, a good deep dive, and lots of deep dives. So, all the the kids will always make new accounts and try to get their height protocol in, man. But deep dives, we're working on it. We are working on it.

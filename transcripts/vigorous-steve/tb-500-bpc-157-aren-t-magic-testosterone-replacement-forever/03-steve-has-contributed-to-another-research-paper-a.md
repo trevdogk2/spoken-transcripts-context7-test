@@ -1,0 +1,13 @@
+---
+title: "TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!"
+channel: Vigorous Steve
+published: 2025-02-15
+url: https://www.youtube.com/watch?v=bk5fkwRCKbY
+chapter: 'Steve Has Contributed To Another Research Paper! + A Lot Of Content Is Coming!'
+chapter_start: 681
+---
+# TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate! - Steve Has Contributed To Another Research Paper! + A Lot Of Content Is Coming!
+
+Video: [TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=681s), chapter "Steve Has Contributed To Another Research Paper! + A Lot Of Content Is Coming!"
+
+[11:21](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=681s) oh yeah we have another research paper between me me Timothy petkowski and uh a few other research helpers so first we did um right you could try this compound but it might send you nuts how sted suppliers perceive The Underground Market and their hybrid role within it it's linked down below we published that in July 2nd 2024 and this year um Timothy petkowski and myself Adam Bradshaw who also lives here in Thailand so we have two independent researchers living here in Thailand contributing to this uh research paper which is titled anything but antigens how image and performance enhancing drugs can consumes or consumers manage body composition and health through off Lael use of medicines it's an interesting read again the full publication is linked down below um I don't think I'm going to make a separate video about it but there's a couple more research papers and and scientific evidence in the pipeline which will make a separate video for so if you're interested citations are down below and um enjoy that reads as much as I did enjoying contributing to it uh let's see so after that how to get your partner pregnant video which will uh which I I'm done recording and I'm done editing basically the it's just up to the editor after that I'll start preparing or finalizing the methling blue Deep dive which I got about halfway through but I'll probably depending on how fast my editor is done with the how to get your partner pregnant video I'll probably do the bathmate pled DHT protocol in the meantime to uh have more time for the metalic blue Deep dive and they will do the cerebral licon Deep dive so stay tuned a lot of cool content coming and with that my nose is already stuffy oh my god let's see let's get started what the questions Adrian T most shredded guy in the chat not for long though because I'm dieting as well and my my shreds are retarding bro I'm Coming For You Adrian daddy Steve I love movies

@@ -1,0 +1,15 @@
+---
+title: "The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad"
+channel: Vigorous Steve
+published: 2025-05-03
+url: https://www.youtube.com/watch?v=aFs_qHXqWpM
+chapter: 'Wrapping Up! The Next Q&A Will Be Back When It’s Back!'
+chapter_start: 8283
+---
+# The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad - Wrapping Up! The Next Q&A Will Be Back When It’s Back!
+
+Video: [The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=8283s), chapter "Wrapping Up! The Next Q&A Will Be Back When It’s Back!"
+
+[2:18:03](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=8283s) gonna throw in the towel for now. I'm gonna go to bed. I gotta drive a car tomorrow. It's going to be exciting. I haven't done that in years. So, thanks for joining in for the vicor's Q&A. Sorry I can't do this much longer because well, I got I need my Saturday back and uh the kid is on the way. So, I just need to spend a little bit more time with my wife before the kid is born and and take care of all of the things that I've been procrastinating about uh because I've been focusing way too much on work when I really shouldn't because the money is more than enough. So, thanks so much for joining in. Uh, next figure's Q&A will be whenever I have time for it. Could be in a month from now, could be four months from now, could be a year from now, but eventually we'll come back. Just give me a little bit time to sort out my [ __ ] and and take care of this uh, you know, daddy business. And then once everything is sorted, then we'll I'll let you guys know when the vigorous Q&A comes back, albeit that it might be sporadic. And guys, please let me know what you want me to do with the memberships. Do you want me to cancel for you? Do you want to cancel yourself or do you just want to keep sending the money for no benefits? Right. I I don't want to take your $10 uh if I'm if I'm not giving you something in return. Um even though right I do see your memberships and I for all the guys that post it on questions on the YouTube videos that I I make sure that I answer all of those. So maybe we can do the Q&A that way where you're just asking on the latest video and I'll answer your question there, albeit by text. And that's a little bit more manageable than showing up two and a half hours here on a Saturday, which again I want to be spending with my wife. It's been three [ __ ] years.
+
+[2:19:33](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=8373s) Okay, give me give me my [ __ ] Saturday back. All right, guys. I'll see you uh next time, but there will be more videos dropping soon. Okay, peace out. Enjoy your weekend and uh uh yeah, enjoy your Saturdays. Find something else to do, please. It's not the end of the world that we're not doing this anymore. I'm sure you can download Oblivion. It's great. Oblivion is [ __ ] great.

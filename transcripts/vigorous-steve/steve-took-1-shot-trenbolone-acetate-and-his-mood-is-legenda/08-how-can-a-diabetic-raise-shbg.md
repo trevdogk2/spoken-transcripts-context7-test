@@ -1,0 +1,13 @@
+---
+title: "Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A"
+channel: Vigorous Steve
+published: 2024-04-20
+url: https://www.youtube.com/watch?v=BN2d68Job6k
+chapter: 'How Can A Diabetic Raise SHBG'
+chapter_start: 709
+---
+# Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A - How Can A Diabetic Raise SHBG
+
+Video: [Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A](https://www.youtube.com/watch?v=BN2d68Job6k&t=709s), chapter "How Can A Diabetic Raise SHBG"
+
+[11:49](https://www.youtube.com/watch?v=BN2d68Job6k&t=709s) Steve my SBG has always been elevated because of my type 1 diabetes and thyroid medication shbg is 123 nanal per liter yeah that's pretty [ __ ] high how much perer daily to get shbg G near the reference range and will 2.5 milligrams an ofar every day do anything to lower shbg um since you're not producing any insulin I'm I'm assuming you're taking exogenous insulin you might be able to reduce your exogenous insulin by going on testosterone replacement therapy and testost replacement therapy um because testost replacement therapy improves insulin sensitivity although it's only been investigated in type two diabetes not type 1 diabetes as far as I can remember do some additional research um and testosterone daily micro administrations of let's say I don't know 15 to 25 milligrams should reduce your shbg levels quite a bit if that's not sufficient uh or you don't want to inject um besides the insulin that you're already injecting assuming you're injecting insulin um proviron 6.25 milligrams once or twice daily might be enough to offset the shbg free up enough testosterone and not suppress the hpta because provon also lowers EST levels and even though more testosterone frees up it doesn't really convert into Ester because provon also inhibits the aromatized enzyme so it inhibits the SBG and the aromatized enzymes testosterone goes up estral comes down and there's no negative feedback on the hpta um in some individuals but not all individuals you might be able to accomplish the same thing with 2.5 milligrams anavar but if the so um idea is to run to bring shbg down then I would do Prov yeah then I would do pround um but testosterone replacement therapy will probably bring your shbg and libido shbg down and libido up fos Jim asks hey Steve what do you think about Milano 102 the study situation regarding cancer um do you have any no so I I I didn't re really research Milano 102 so much and I just discussed it a little bit earlier so follow the time stamps when um Alvaro JD is done with them computerman asks hello Steve I watched your endurance Deep dive

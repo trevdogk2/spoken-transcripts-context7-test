@@ -1,0 +1,13 @@
+---
+title: "TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!"
+channel: Vigorous Steve
+published: 2025-02-15
+url: https://www.youtube.com/watch?v=bk5fkwRCKbY
+chapter: 'How To Dose Mast To Control E2'
+chapter_start: 4208
+---
+# TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate! - How To Dose Mast To Control E2
+
+Video: [TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=4208s), chapter "How To Dose Mast To Control E2"
+
+[1:10:08](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=4208s) live stream if one to one ratio of test to EQ put my below 15 what ratio would you recommend for for test first I test first for test asra like EST doll 40 60 I would start with a one to1 ratio also and then adjust based on work because Mone in some individuals it doesn't lower estr levels at all it doesn't seem to impair aromatized enzyme activity so um if you don't have any experience with Mone yet then start in a one to1 ratio let's say 500 test 500 Mone check your serum levels of uh testosterone estral four weeks into it and then make an adjustment like EQ itself and several of its metabolites have very potent aromatized inhabiting effects so you when EQ itself blocks you aromatized enzy it might convert into estone which then has you know an overlapping effect in your estr levels then three of its metabolites as EQ metabolites into these metabolites they also block the Aromas enzymes so you basically get four compounds when you take EQ that could potentially block the aromatized enzymes with Prim Bolin it's primabol for sure and in um if you use fungi or mushrooms to biotransform primabol and into metabolites those also have aromatized inhibiting effects but it it doesn't mean that those metabolites are produced when you take primabol and in as a human right fungi or mushroom metabolism is probably different from Human metabolism when it comes to methanone so mstone we couldn't find anything in the scientific evidence that shows that it acts as an aroma neitor it might act as a selective estrogen receptor modulator I mean it was a cancer medication after all the efficacy of Prim and masteron is pretty much the same when it comes to cancer medications but Maston was used as a can cancer medication and primabol was not even though it was investigated as a cancer medication so again you have to start at a one to one ratio do your blood work and take it from there are you guys taking talking about C goolan [ __ ] is [ __ ] toxic to your heart

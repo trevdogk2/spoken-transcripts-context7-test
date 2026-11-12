@@ -1,0 +1,13 @@
+---
+title: "High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?"
+channel: Vigorous Steve
+published: 2025-01-11
+url: https://www.youtube.com/watch?v=obhAjOAIBZg
+chapter: 'How To Reduce Indigestion From Orals'
+chapter_start: 1283
+---
+# High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss? - How To Reduce Indigestion From Orals
+
+Video: [High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1283s), chapter "How To Reduce Indigestion From Orals"
+
+[21:23](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1283s) indigestion almost immediately even with taking some lingu curse is Halo would be less offensive on stomach no if if anore causes it then haloes and trinal and the anabal would cause that too if oral steroids cause indigestion watch the acid reflux video which I have I'm not going to link it anymore you guys know how to find it right you guys know how to do the search function if you know how to put a question in here you can put the exact same but the keywords of the question into the search function and you get videos like for free you know let me interject real quick now let me finish this this thing so um if you supplementing with a B hyr chloride whether that's with pepsin or German bitters or not from Doctor's best or another Bea Hy chloride supplements uh and apple cider vinegar whether that's tablets or liquids or uh TKA or otka or Ox b or yeah all these things that kind of help with digestion right might not lower acid reflux to a certain extent but at least help with fat absorption uh but the b or chloride should help by increasing the acidity of your stomach and thus the mouth of the stomach stays closed that's always what I ran or apple cider vinegar that's always what I ran when I was taking oral steroids so um and recently I started with beten hydrochloride to kind of increase the acidity level because I got some adverse reaction from apple cider vinegar last couple of months so again I'm trying to reinvent my digestion as we go along um so give beaten hydrocloride or apple cider vinegar a try when you take your anavar sublingually and if that doesn't solve it in a week then take the Anar out and then give your digestion a break make sure you supplement with adequate amounts of glutamine and um yeah just glutamine to um make sure you have adequate building blocks for your stomach lining because if you increase the acidity of your stomach then your stomach lining needs to be thicker as well and for that you need supplemental glutamine five grams to 10 grams per day all right man so let me inject real quick with a

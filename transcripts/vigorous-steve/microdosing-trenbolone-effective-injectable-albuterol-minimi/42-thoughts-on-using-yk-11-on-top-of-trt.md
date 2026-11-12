@@ -1,0 +1,19 @@
+---
+title: "Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?"
+channel: Vigorous Steve
+published: 2025-01-18
+url: https://www.youtube.com/watch?v=Lbhi0_xs7yk
+chapter: 'Thoughts On Using YK-11 On Top Of TRT'
+chapter_start: 5942
+---
+# Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP? - Thoughts On Using YK-11 On Top Of TRT
+
+Video: [Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=5942s), chapter "Thoughts On Using YK-11 On Top Of TRT"
+
+[1:39:02](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=5942s) would you recommend only yk11 for a trt
+
+[1:39:03](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=5943s) Viewer question (read aloud): "Coach! Would you recommend only YK-11 for a TRT+ person looking for a bit of safe anabolism? Love your show, brother!"
+
+[1:39:05](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=5945s) plus person looking for a bit of safe analism love your show and I would just do anavar because I don't think that yk11 is really anabolic by itself I mean it was shown to be a partial Agonist for the Androgen receptor and again the in the beginning of yk1 you don't really notice much it really starts to have a slowly Progressive increasing effect after a couple of weeks and I think that's from the fall of Statin inhibiting myen um whereas like with anidrol super drol you get or anif for you get an immediate response right a non genomic sensor nervous system response um that actually get stronger if you take a pre-workout with yk11 I got none of that just seem to slowly build up so I would rather consider it more like a follow start in srog where you get like the effects from a peptide a secondary effect then you actually get an anabolic effect from its interaction with the Androgen receptor uh now again I didn't I I took yk11 sublingually I haven't take in haven't taken injectable yk11 so maybe you get more of an effect higher bioavailability from that Administration route but if you're a TT plus person I would just take anavar or trinal because how much F stattin do you need how much how much of an effect do you really need on trt man you're not that big you know I think this compound really shines if you're like on on on growth hormone or insulin or igf1 and a fat cycle of a gram of steroids and you're pushing against the plateau and then you need this follow STA and to push you past it but I mean you feel free to give it a run but you know the joint drying out effects is that really worth it you know like I didn't experience much because I was on [ __ ] nandrolone and trestolone and joints of Steel by Ma and then you know all the collagen and all the honic acid and all that [ __ ] so I didn't really experience much of the side effects but they did start to manifest after week six and seven give or take but if you're just on TT plus and you're a hobbyist I would rather take Anar man I think yk11 is more for advanced guys but feel free to run it and report back to us in a couple weeks and let me know how you like it LOL chase irons is laughing out loud s sorry I didn't join in yesterday man I had that lasc eye surgery and um I I I took a Valium and I was [ __ ] knocked out for like 17 hours I took a Valium that I was knocked out for 7 hours that I had a meal the the my eyes were still hurting and then I took another Valley of and 5 milligrams per time I'm such a drug abuser well it's bodybuilding and then I was knocked out and then I woke up and I my eyesight was uh Jesus Christ it's bright um my eyesight was absolutely
+
+[1:42:09](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=6129s) fantastic Josh God look at that picture dude holy [ __ ] freak my HDL is always low I'm still

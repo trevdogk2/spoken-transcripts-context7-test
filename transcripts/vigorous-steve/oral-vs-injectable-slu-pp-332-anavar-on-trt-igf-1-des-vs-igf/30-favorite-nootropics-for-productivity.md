@@ -1,0 +1,17 @@
+---
+title: "Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics"
+channel: Vigorous Steve
+published: 2025-08-09
+url: https://www.youtube.com/watch?v=RVoNhhm6COA
+chapter: 'Favorite Nootropics For Productivity'
+chapter_start: 3528
+---
+# Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics - Favorite Nootropics For Productivity
+
+Video: [Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics](https://www.youtube.com/watch?v=RVoNhhm6COA&t=3528s), chapter "Favorite Nootropics For Productivity"
+
+[58:48](https://www.youtube.com/watch?v=RVoNhhm6COA&t=3528s) Uh favorite neutropic stack for productivity. I've been working around 12 hours per day between social media and a full-time job. Since quit that, come on. Me and Chase already told you to quit your full-time job. Stop that [ __ ] Focus on your business. By the time I get to the gym, I have no mental energy left. Um Oh, you're also cutting, right? So, it doesn't help. Um, you have to cycle through your neutropics because you build up a tolerance and some of them they have, you know, some serotonin or dopamineergic effects which might overlap and then you feel a bit wired and weird. So I would do maybe two weeks or two days per week on 25 milligrams to 50 milligrams rotame. Same for modafanil and and um those are are quite good for productivity and then you can take a couple days sax and slank or just someax or just sank. Um alpha gpc you can take pretty much every day. Uh gorilla mind energy or respawn you know a couple times a week. So I would just cycle through your neutropics and pick a job that matches the neutropic the best or vice versa. Right? So let's say let's say today I got a particular job to do and I notice that this job is produced a lot better.
+
+[59:55](https://www.youtube.com/watch?v=RVoNhhm6COA&t=3595s) If I take medafanil okay today is a modafanil and this particular job. You tack off all the boxes. You let the meta medapanyl do its job and metabolize and then next day you probably have a different job to do and then you take uh broantane or sax or slang. For me, for verbal fluency, for fastness of talking, uh, being in a good mood, you know, a little bit jokey, a little bit, uh, naughty, a little bit over sexualized, and, you know, dad jokes, Respawn and Gorilla Energy is the best, is absolutely the best for these kinds of live streams. Gorilla Respawn or Gorilla Energy, hands down, the best, right? I'm giddy. I'm funny. I think I am. I'm laughing at my own jokes. I should be funny for [ __ ] sake. Don't you [ __ ] disagree with me because the ban button is right there. But if I need to do some deep research then yeah, dex and a new pept absolutely man. Yeah, dex and a new pept. I might sneak in a sec a second new pept in the afternoon because I haven't taken a dex and a new pept in like eight weeks because I haven't really worked like that. And for um for like a long day of cryptocurrency analysis, uh bet your [ __ ] ass cheeks it's going to be 50 millantine, man. Holy [ __ ] You can absorb those charts and look right into it and uh know exactly where to get your buy orders. I mean, I put a good amount of money in uh Pepe.
+
+[1:01:20](https://www.youtube.com/watch?v=RVoNhhm6COA&t=3680s) It's already up 20%. That was a good trade. And I pivoted to Ethereum. Salana is waiting. Salana can wait, but uh I'm I'm leveraging into altcoins, bro. Yeah. Not small amounts either. Uh for

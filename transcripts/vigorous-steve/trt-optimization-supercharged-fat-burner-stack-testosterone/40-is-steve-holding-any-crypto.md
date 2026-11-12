@@ -1,0 +1,19 @@
+---
+title: "TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies"
+channel: Vigorous Steve
+published: 2025-01-25
+url: https://www.youtube.com/watch?v=6PAD-2YhVig
+chapter: 'Is Steve Holding Any Crypto?'
+chapter_start: 5028
+---
+# TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies - Is Steve Holding Any Crypto?
+
+Video: [TRT+ Optimization, Supercharged Fat Burner Stack, Testosterone Withdrawal, Cult Classic Movies](https://www.youtube.com/watch?v=6PAD-2YhVig&t=5028s), chapter "Is Steve Holding Any Crypto?"
+
+[1:23:48](https://www.youtube.com/watch?v=6PAD-2YhVig&t=5028s) right now thoughts on alt season yeah alt season hasn't started yet um look at the altcoin Bitcoin do dominance chart or the Bitcoin dominance chart let's see holding in crypto yeah I got some xrp got a little bit of Bitcoin and then but I'm not 100% in not 100% in let the two we chart oh look at that RSI you still have a long way to go 88 and a half that's where I'm getting out it's on the two we chart one day where are we yeah it seems to uh let's see sideways since 12th of November how long is that how many days is that oh we went up 20 21% so that's not bad 73 days who knows maybe we'll go sideways for another nine months and it start bumping at the end of the year I don't know dude I would like to see a little retest on the 50-day moving average where's that now that is now at 97,000 oh no 98,9 999,000 that would be nice let's right at the downwards resistance of the previous one I mean it already retested there twice but I I'll just buy whatever is trending man thought Al alt season will start when the Bitcoin dominance breaks but Bitcoin needs to top before altcoin season really starts and and until that time I would only trade altcoins that are really doing something so Doge was doing something for a while and now it's kind of dying off H bar was doing good I would say Ripple was doing good cardono was kind of DED off uh and and then the rest is just meme coins man I mean trumpcoin pumped and now now it's dying off until it finds a ground and then it will do something let's see if ethereum's well I got in at 0.3 right or 0.03 I bought in a little bit and uh well it hasn't really done anything since and I might buy a little bit more if it hits 0.3 compared to bitcoin again all the Traders don't know what they're what I'm talking about and I might buy some more Dogecoin but right now I'm just trading Bitcoin mostly man and ethereum is moving salana has moved a little bit but that's because of trumpcoin and if trumpcoin is dying off then salana will die off and then uh you know when it really breaks Trend then and again I missed that salana because I I watch charts every day but I was undergoing surgery so I trally missed that salana pump which when it broke Trend I would have definitely bought you know a couple thousand dollars worth and then let it rise until it dies off but I you don't get married to any crypto just trade the ones that are rallying and
+
+[1:26:50](https://www.youtube.com/watch?v=6PAD-2YhVig&t=5210s) that means you have to check the market every day but yeah I'm holding I'm I'm let's say I I have to check I think I'm about 30% and the rest is in Stables yeah not that much I made a couple good trades recently but I'm I'm never 100% in well I was 100% in after the elections yeah then because then you know the market is going to pump hard best drug for PE with without
+
+[1:27:21](https://www.youtube.com/watch?v=6PAD-2YhVig&t=5241s) Viewer question (read aloud): "best drug for pe? with out ed. and thoughts on connor murphy protocol with non supressive prohormone and sarm called 3 ad and ac 262? is this legit?"
+
+[1:27:24](https://www.youtube.com/watch?v=6PAD-2YhVig&t=5244s) erectile dysfunction and thoughts on Conor Murphy protocol next Stone word became a YouTube member welcome to the figur crew what's going to be your cut cycle

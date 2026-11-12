@@ -1,0 +1,13 @@
+---
+title: "Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?"
+channel: Vigorous Steve
+published: 2025-01-18
+url: https://www.youtube.com/watch?v=Lbhi0_xs7yk
+chapter: 'Thoughts On Low Dose GH While On 150 Test + 150 EQ For A Cyclist'
+chapter_start: 1051
+---
+# Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP? - Thoughts On Low Dose GH While On 150 Test + 150 EQ For A Cyclist
+
+Video: [Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=1051s), chapter "Thoughts On Low Dose GH While On 150 Test + 150 EQ For A Cyclist"
+
+[17:31](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=1051s) growth hormone daily added to 150 migam C propen 150 migs EQ per week for 35-year-old Elite cyclist I would love a cyclist Deep dive in the future you don't need to because those videos are already online just look into the injour deep dive that's all you need I have EPO I have um an myal Tri power phosphate I have uh tum right I have I have everything aside cyclist could possibly need and there I specifically mention that cyclists or endurance athletes should stick to trt so that's not trt plus EQ and minimize the growth hormone just to make sure that there's no additional water weight because even two a used growth hormone could put maybe two three pounds one kilo one and half kilos of body weight on you and if that 1 kilo body weight you have to drag up the mountain if you're an elite cyclist that's one kilo for every uh um right push down on the bike and that [ __ ] adds up so you could you could do basically what they do in Dragon Ball Z right you go into the the the the the time chamber and you train with weighted vests in in a high gravity environment basically you make yourself heav heavier while you're training and then you take the growth hormone out two to three weeks before and then you drop these this weight and now you're trained at a much higher body weight while suddenly it drops it you don't have any loss of perform performance because growth hormone is only there for Recovery it doesn't enhance performance it's not like testosterone or EPO or myos Tri triy phosphate does you drop the growth hormone now you're at a lighter body weight but your muscularity and your stamina and your strength in your endurance is based on three pounds lighter so guess what you're going to fly that's what I would do so you don't need a cyclist Deep dive just type in Endurance on my YouTube channel and you'll get seven videos easy Anton welcome to the vigorous crew uh let's see Mike Freeman Mr Steve

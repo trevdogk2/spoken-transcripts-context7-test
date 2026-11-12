@@ -1,0 +1,19 @@
+---
+title: "High Body Fat TRT Protocols, Primo & Mast Shortage, Mitochondrial Stacks, Can Women “Smell” Gear?"
+channel: Vigorous Steve
+published: 2025-10-11
+url: https://www.youtube.com/watch?v=PIIMw9XyZI0
+chapter: 'What Happened To Retailers In China?'
+chapter_start: 1077
+---
+# High Body Fat TRT Protocols, Primo & Mast Shortage, Mitochondrial Stacks, Can Women “Smell” Gear? - What Happened To Retailers In China?
+
+Video: [High Body Fat TRT Protocols, Primo & Mast Shortage, Mitochondrial Stacks, Can Women “Smell” Gear?](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=1077s), chapter "What Happened To Retailers In China?"
+
+[17:57](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=1077s) Viewer question (read aloud): "Hey Vader Steve , Is it ok to ask, any idea what happened to the retailers in China?"
+
+[17:58](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=1078s) it okay to ask? Any idea what happened to uh retailers in China? Yeah, that they they're under pressure so they can't produce uh Maston or Primo. you know the ones that are producing there they're really risking their stuff. So there's several from what I understand there's several se several chemists in the US right now producing master and primo raw and they're supplying a couple of their friends you know so they they can actually get all the raw ingredients and they know how to produce it from uh you know scratch basically but in China yeah that some ingredients or some raws cannot be produced because they use the same chemical precursors as something like fentinel for example and that's the death penalty right now. So yeah, you're going to have to patiently wait or switch to test and deca or test an EQ which is not the end of the world. Um and again, you know, all the scientific evidence that shows that EQ is terrible for your kidneys has not been reproduced in master in primolan in tremblone in human subjects or animal models. So you can say that EQ is terrible for your kidneys. Look at the scientific evidence. But yes, you stupid [ __ ] you terrible [ __ ] influencer that is evidence-based.
+
+[19:08](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=1148s) Absence of evidence isn't evidence of absence. It simply means that those kidney studies in animals and humans have not been performed on the other steroids. So doesn't mean that they're not kidney toxic. Doesn't mean you don't have to take antioxidants when you mega dose the mastone or the primaalin or the tremblone or whatever. I I think you should hammer the antioxidants quite high. And then they say, "Yeah, but the antioxidants prevents uh, you know, hypertrophy. It blunts the post exercise response." Do I look like a little [ __ ] to you? The guys who complain about that, they're the little [ __ ] You know, the evidence-based little [ __ ] Um, I can't take vitamin C plus workout. I'm going to shrink. Exhausting. So, um, run whatever you have can whatever you have access to. That's what I'm doing. Whatever I can get, I run. And when it runs out, I run something else. And you know what? I let the diet do the work. And the cardio do the work. And I get in shape just as shame, man. My lower back is in. My glutes are starting to feather. I have good separation in my quads. And uh I'm strong as an ox because the deck and the keeps me going. Okay, man. Watery at the end of the day, sure, but who cares? I'm already married. I'm off the market. I'm not a social media, you know, pretty boy. I'm an educator. So, all right, that was enough ranting.
+
+[20:39](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=1239s) Oh, yeah. Here, Paul. Nurses are the profession most likely to cheat on their significant other. Yeah, I read about that as well. So, that's why I always go to the hospital, do my blood work. It's not just for blood work, bro.

@@ -1,0 +1,19 @@
+---
+title: "Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics"
+channel: Vigorous Steve
+published: 2025-08-09
+url: https://www.youtube.com/watch?v=RVoNhhm6COA
+chapter: 'How To Increase HDL While On Cycle'
+chapter_start: 1024
+---
+# Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics - How To Increase HDL While On Cycle
+
+Video: [Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics](https://www.youtube.com/watch?v=RVoNhhm6COA&t=1024s), chapter "How To Increase HDL While On Cycle"
+
+[17:04](https://www.youtube.com/watch?v=RVoNhhm6COA&t=1024s) asks, "Hey, Steve from Dubai.
+
+[17:06](https://www.youtube.com/watch?v=RVoNhhm6COA&t=1026s) Viewer question (read aloud): "Hi steve from dubai , im classic physique competitor currently on 700 mast / 700 test / 280npp my hdl 14 all other lipid profile on point is there anythinging i can do rather than reduce mast?"
+
+[17:06](https://www.youtube.com/watch?v=RVoNhhm6COA&t=1026s) What's up, bro? I'm classic for C competitor currently running 700 mronone, 700 test, 280 milligrams NP. My HL is 14. Other lipids are on point. Is there anything I can do rather than reduce Mrone?" Well, even if you reduce Master 700 test and 280 milligrams NP, excuse me. I mean, that's the bubbles talking. um your HDL is not going to be perfect. So if you follow a low-fat diet, increasing the fats obviously will help with highdensity lipoprotein transportation. You can look into citrus bergamut and amla extract. That's the combination that I'm running right now that gives you a couple extra points of HDL. Um but on steroids, man, it's never going to be perfect. Daily fasted cardio, citrus bergamont, amla extract. That's pretty much it on how you can increase HDL without increasing your fat intake. And the reasons why my HDLs are never that low compared to most competitors is because I eat a good amount of healthy fats. I have salmon every day. I have walnuts every day. I have good steak every day. I have, you know, chicken and maybe some pork. I know you guys probably can't eat pork uh over there in Dubai, but I can't. I don't have any, uh, you know, restrictions like that. So that also has a good amount of healthy fat because I get the best [ __ ] meats I can obviously and that increases your HDL also. Now it's just part of the game. So if you're currently cutting, which this cycle is not really a cutting cycle, but then again I'm running 300 deca, 300 test, and 150 mint and I'm getting lean. So you can basically cut on anything obviously. But yeah, your HDL is never going to be low if you're restricting or your HL is never going to be high if you're restricting your fat intake. Unfortunately, that's just part of the game. And that's why we do cruises where we just take tests, eat healthy, fatten up a little bit, and then uh you know, you go to Meeting Co.
+
+[19:00](https://www.youtube.com/watch?v=RVoNhhm6COA&t=1140s) and atmosphere and all these fancy restaurants where you can get some nice steaks and nice healthy fats, you know, get some Lebanese food, get some Iranian food, you get face first into the hummus, bro, your HDL will be okay, you know, it's it's not much you can do, man. It's just part of the game. As long as your LDL is fine and you're not creating yourself or giving yourself a lot of oxidative stress to form these foam cells that could potentially cause plaque buildup and you're not your blood is not too acidic causing a lot of calcium to leak into the blood which can then bind to the foam cells and cause actual plaque buildup calcifying your arteries. Right? If you're doing everything right, low oxidative stress, low inflammation, and eating healthy, taking a little bit of PEDs and low HDL, it's part of the game, but it's not the end of the world. Yeah. Uh, Mr. Mrs. Bluecollar Bodybuilding.

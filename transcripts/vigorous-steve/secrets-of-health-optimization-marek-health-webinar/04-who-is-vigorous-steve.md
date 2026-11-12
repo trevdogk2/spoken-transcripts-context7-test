@@ -1,0 +1,13 @@
+---
+title: "Secrets Of Health Optimization - Marek Health Webinar"
+channel: Vigorous Steve
+published: 2024-03-25
+url: https://www.youtube.com/watch?v=viVab4N35k8
+chapter: 'Who Is Vigorous Steve?'
+chapter_start: 51
+---
+# Secrets Of Health Optimization - Marek Health Webinar - Who Is Vigorous Steve?
+
+Video: [Secrets Of Health Optimization - Marek Health Webinar](https://www.youtube.com/watch?v=viVab4N35k8&t=51s), chapter "Who Is Vigorous Steve?"
+
+[00:51](https://www.youtube.com/watch?v=viVab4N35k8&t=51s) 50 minutes or so we're going to go over all things uh related to health optimization mostly from a male Health optimization perspective um let me first explain who I am if for the guys that don't know me I was an 11 11e drug-free bodybuilder so from the age of 15 years old to about 26 years old I was purely bodybuilding without any performance enhancing drugs then when I was 26 years old I decided to take the plunge after um so many years of doing research online and never really felt ready and back then we didn't really have hormone replacement therapy all we had was steroid cycles so after I took the plunge I took performance financing drugs at various dosages for about about 14 years and now for the last year I've been cruising quote unquote cruising on atg monotherapy to Restort a sec function and get my wife pregnant but more on that later um I have a bachelor of information engineering at the University of Amsterdam uh when I was 21 years old to about 26 years old I was a financial business consultant which was very very interesting a good time of my life until the economic crisis of 2008 2009 and 2010 hit during that time I traveled through Asia southeast Asia mostly but also China Mongolia and you know other parts of Asia for an entire year there was eye opening after that uh or before that time I already came to Thailand but after that year of backpacking I decided to move to Thailand where I've been living um for well I think since let's say 2013 fulltime so that's the last 11 years uh I've been a bing building colle for about 12 to 13 years I'm now retired because I'm a full-time YouTuber apparently that's a profession nowadays and I make a lot of YouTube videos I mean most of you guys remember me from my YouTube channel I was a presenter at Swiss Symposium which was always a lifetime goal and this is where I met a lot of the team from mer health stevenh and a lot of other guys Dr Adam hodus was a great uh weekend to you know spend some good time for the with the guys over at meric health and now I'm a webinar presenter for meric health so mission accomplished a lot of people ask

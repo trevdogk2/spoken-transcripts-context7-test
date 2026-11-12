@@ -1,0 +1,15 @@
+---
+title: "Is Epicatechin A WORTHY Half-Natty Follistatin-Secretagogue With STEROID-Like Gains?"
+channel: Vigorous Steve
+published: 2025-04-03
+url: https://www.youtube.com/watch?v=7lQkiHsdsNI
+chapter: '(-)-Epicatechin Vs. (+)-Epicatechin'
+chapter_start: 63
+---
+# Is Epicatechin A WORTHY Half-Natty Follistatin-Secretagogue With STEROID-Like Gains? - (-)-Epicatechin Vs. (+)-Epicatechin
+
+Video: [Is Epicatechin A WORTHY Half-Natty Follistatin-Secretagogue With STEROID-Like Gains?](https://www.youtube.com/watch?v=7lQkiHsdsNI&t=63s), chapter "(-)-Epicatechin Vs. (+)-Epicatechin"
+
+[01:03](https://www.youtube.com/watch?v=7lQkiHsdsNI&t=63s) , there are two versions of epicatechin. There is positive epicatechin and negative epicatechin. They are enantiomers, which means they are mirror images, but they vary in their biological activity. Negative epicatechin is more common in food sources and appears to offer more benefits compared to positive catechin. So, let's start comparing them directly, head to head. Regarding the breakdown of enantiomers, the negative epicatechin is a 2R, 3R stereoisomer and the positive epicatechin is a 2S, 3S stereoisomer. The presence of negative epicatechin is found in raspberry roots and green tea, also known as Camellia sinensis, from which most of the extracts come. It is also found in cocoa beans, dark chocolate products, grapes, grape seeds, and acai seeds. And the positive epicatechin is only found in the Cherokee rose and variants, but is formed mostly from positive catechins found in nuts and seeds. So, if you like nuts, you could get free positive epicatechin by converting positive catechin to positive epicatechin.
+
+[02:06](https://www.youtube.com/watch?v=7lQkiHsdsNI&t=126s) Regarding biological activity, negative epicatechin has many more benefits. It increases follistatin levels and reduces myostatin, has potent antioxidant activity, blood pressure-lowering effects, potential anti-inflammatory and anti-cancer properties, and improves mitochondrial efficiency and biogenesis . And the positive epicatechin only has moderate antioxidant activity and improves mitochondrial efficiency and biogenesis as well, but to a much lesser degree compared to the negative one. The negative epicatechin has greater bioavailability compared to the positive one. The negative epicatechin has a half-life of between 1.2 and 3.1 hours, with an average of 2.5 hours, so frequent dosing is recommended. And the most epicatechin has a half-life of 1.2 to 4.9 hours, but I wouldn't suggest eating these nuts that often. So, let's focus on the lesser epicatechin, not the more, because it's more readily available as a dietary supplement or found in food sources. The benefits are much greater, and most of the scientific evidence comes from the lesser epicatechin. But from now on , we'll simply say that the least epicatechin is the epicatechin we're looking for, and we won't differentiate between less and more, because otherwise, well, it starts to get complicated, and so many mores and lesss turn this video into a calculation. That's not what we're looking for, obviously. The

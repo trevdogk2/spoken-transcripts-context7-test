@@ -1,0 +1,19 @@
+---
+title: "Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!"
+channel: Vigorous Steve
+published: 2025-02-08
+url: https://www.youtube.com/watch?v=Jp07kf7YaTI
+chapter: 'What Buffets Does Steve Like?'
+chapter_start: 4780
+---
+# Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More! - What Buffets Does Steve Like?
+
+Video: [Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=4780s), chapter "What Buffets Does Steve Like?"
+
+[1:19:40](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=4780s) Viewer question (read aloud): "Glad to hear the healing is going well my friend!! Finally got to the Marriott buffet tonight - was solid! What was the other buffet you liked Steve?"
+
+[1:19:41](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=4781s) is going well my friend finally got to the Marriot Buffet tonight it was solid uh what other buffets you like oh [ __ ] yeah we need to hook up dude I'm a mobile again I can finally walk so that also means I can finally go to the hotel buffets um what are face do I like s reges a Sunday Branch it's last time I when there was about 5,000 bots so it's alcohol included [ __ ] I was so plastered dude unlimited cocktails Stephie you're really a bodybuilder you drink so much so yeah once in a while when I drink it's good I drink properly and then I don't drink for three months right the last time I drank was like two months ago so give me a [ __ ] break uh no it's not true is it one and a half months yeah one and a half months next time I drink is probably April so it'll be four months in between I think that's fine um so yeah sand reges uh right next to R dumy BTS station Sunday Branch that's absolutely phenomenal um marot Marquee bouffet I really liked uh and that's honestly it man there's a there's a couple like in bouett like a breakfast buffets but usually you can't go wrong with the Marriot man the breakfast buffet at every marad is just AB absolutely Stellar um the Marriot in soy 4 right across from Nana that or soy soy 2 uh that's also a good one I haven't been to another buffet in a very long time I went to all of the buffets and then every time you go back to the married Marquee or Marriot sword 2 because it's just 10 times better I haven't tried copper yet but maybe that's something we can go together now that I'm uh on both feet again Mustafa asks hey Steve I use 100
+
+[1:21:23](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=4883s) Viewer question (read aloud): "Hi steve, i use 125 sustanon per week and just started using hcg 250 3x aweek. Took blood test and my Test went down from 25nmol before taking hcg to 10 after hcg"
+
+[1:21:24](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=4884s) 25 milligram syston per week and just started using atg 250 hours three times per week took blood test and my test levels went down from 25 before taking HG to 10 after the HG uh did you switch brands of systen on because I found that a a very weird result yeah I find that a very weird result so like if you inject syston once a week and you check it seven days afterwards okay your testosterone might be 10 animals but it it should be around 25 right M middle towards the top of the reference range and that much sust on and the HG well 250 I three times for week doesn't raise your testosterone estra levels that much right for that you'd really need 500 iOS three times per week like I discussed in the atg Deep dive uh so if you change brands of cyon or there's a difference between your injection date and the blood draw then there's your problem and well if you're using underground lab Lab susten on and underground labs atg then well again your mileage might vary Al is a good time Australia's

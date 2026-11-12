@@ -1,0 +1,15 @@
+---
+title: "Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics"
+channel: Vigorous Steve
+published: 2025-08-09
+url: https://www.youtube.com/watch?v=RVoNhhm6COA
+chapter: 'Results Is What Matters At The End'
+chapter_start: 4619
+---
+# Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics - Results Is What Matters At The End
+
+Video: [Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4619s), chapter "Results Is What Matters At The End"
+
+[1:16:59](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4619s) master is a TRT add-on change adjust help with dryer look and reducing estrogen something like 120 milligrams testosterone cipinate per week 60 milligrams of mastro per week over two to three injections again 60 milligrams mastone is is child's play man that's what babies use that's a female dose I would do a 1:1 ratio of testosterone with mastone and you can run any other add-on to your HRT or TRT plus protocol if you want to it just depends on how much of an effect you get for you to justify the dose and how much it affects your blood work. You can run anything on a TRT plus protocol, man. Whether that's Mastron or E EQ, [ __ ] tren, whatever you want. Whatever goal you have, you can add it in. I I never thought that Mastron was a bad addition. But if you want to go for anabolism, then I would rather go for Primo. And some people have a different opinion on that. They [ __ ] love Mastron. If Mastron was a guy and had a big penis, that would certainly give Masterron a [ __ ] for free 247. Um, and I'm of the firm opinion that Primobalin is a much more suitable anabolic agent. And if that's not the case and Master is more anabolic for you, then fine, go for it. In the end, the results sets matter of as a trade-off to your blood work. So, if Master works better for you, go for it.
+
+[1:18:17](https://www.youtube.com/watch?v=RVoNhhm6COA&t=4697s) If Primo works better for you, go for it. In the end, it it matters that you reach your goals and you stay healthy, right? are reasonably healthy because taking performance enhancing drugs is never healthy. That's otherwise health management wouldn't be in place. You have a goal a certain dose that you can tolerate and blood work that changes that you can tolerate and manage or whatever compound combination. Dude, I'm I'm doing a cut with test deca and talone and and a little bit of an aromatizing, right? Most people say, "Why would you do that? You're you're not going to get lean." I'm getting [ __ ] leaner and stronger. my joints feel pretty [ __ ] good for the amount of weights that I'm lifting, you know, slow and controlled. And so, dude, if it works, go for it. And don't let anybody else tell you otherwise. But I've I've noticed that as long as you train hard and you diet correctly, then pretty much everything works and the rest is just optimization. Uh, Eliia Barasadas,

@@ -1,0 +1,13 @@
+---
+title: "Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?"
+channel: Vigorous Steve
+published: 2024-05-25
+url: https://www.youtube.com/watch?v=mxti9X3a2vU
+chapter: 'How Significantly Does Anavar Free Thyroid Hormones?'
+chapter_start: 1962
+---
+# Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection? - How Significantly Does Anavar Free Thyroid Hormones?
+
+Video: [Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?](https://www.youtube.com/watch?v=mxti9X3a2vU&t=1962s), chapter "How Significantly Does Anavar Free Thyroid Hormones?"
+
+[32:42](https://www.youtube.com/watch?v=mxti9X3a2vU&t=1962s) feeling uh or how significant is the freeing up thyroid hormones effect from anavar is it dose dependent yes of course it's dose dependent um but it you know lowering lowering thyroid binding globulin from anavar is not exclusively reserved to anavar it also helping with other steroids but in a lot of steroids it simply hasn't been investigated so with anavar has been investigated because of course they're looking at Klein felter and um Turner syndrome which thyroid hormones are important because it helps with growth obviously of in cases of stunted growth um so they investigate that but I mean with trimone who the [ __ ] cares right it's it's not made for humans so they don't really investigate that and so we don't know right there's there's a lot of steroids we don't know and a couple steroids where it's established um so I think that all steroids free up thyroid hormones by lowering thyroid binding globulin um and that just means that it's probably also advised to supplement with a little bit of T4 even if you're just doing a a basic cycle of test anavar and maybe some premium balling and especially when you get older and you could supplement plenty of iodine and selenium and eat healthy all the carbs and stuff but it you know by freeing up the thyroid hormones or your available D4 to convert into D3 and your available free T3 to boost metabolism is just higher but it also means you go through it faster just like your shbg drops and now you have more testosterone free in the bloodstream being available to aromatize of five he for reduce right so then we have to put other practices in place so you just things speed up let's put it that way you go on steroids and th speed up whether it's growth of the hair the skeletal muscle the nails the skin Etc and and Metabolism regulates that including thyroid hormones so that means you have to eat more and pay attention to your micronutrients so you don't get yourself into a deficit what's a good female

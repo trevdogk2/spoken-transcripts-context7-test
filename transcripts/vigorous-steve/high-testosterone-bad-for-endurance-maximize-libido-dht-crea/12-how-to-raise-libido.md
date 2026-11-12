@@ -1,0 +1,15 @@
+---
+title: "High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?"
+channel: Vigorous Steve
+published: 2025-01-11
+url: https://www.youtube.com/watch?v=obhAjOAIBZg
+chapter: 'How To Raise Libido'
+chapter_start: 1640
+---
+# High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss? - How To Raise Libido
+
+Video: [High Testosterone Bad For Endurance? MAXIMIZE Libido, DHT Cream HPTA Shutdown, Anadrol Fat Loss?](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1640s), chapter "How To Raise Libido"
+
+[27:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1640s) Viewer question (read aloud): "Recently added mast to trt (30mg test C, 20mg mast P ED). Have completely lost libido and pumps in the gym but I feel amazing mentally and have more energy. Anything i can do to get my libido back?"
+
+[27:20](https://www.youtube.com/watch?v=obhAjOAIBZg&t=1640s) masteron to my TT protocol 30 milligram costone C9 20 milligrams Master appropriate every day have completely lost albo and pumps in the gym but I feel amazing mentally and have more energy anything I could do to get my libido back so we don't know what's causing your libido reduction so it's time to do some blood work um check your toal testosterone free testosterone check your estr levels maybe estone levels check your DHA DH sufate pregnanolone levels right check your SBG levels did your liido go down because your estrogen went down because Maston is acting as a reversely bonding aromatized inhibitor we don't know did um your Libo go down because you have more free testosterone more free DHD more free estrogens and more fre Maston because your sex Bing globin levels went down we don't know so before you make any changes before I can give you any advice do some blood work and report back next week or in two weeks when you have some blood work results and in the meantime watch the libido videos to uh get a firm grasp on why it's important to have normal hormone balance and uh maybe supplement with some GHA pregnant alone and uh oxytocin and SX because that's probably cheaper and faster fter to acquire than doing blood work but if that doesn't solve the problem then you still need to do blood work and report back to us or schedule a consultation which are man kind of expensive now it's from necessity otherwise I'm on the phone every [ __ ] day the whole day so in this case uh I would say it could be low estrogen could be low SBG but yeah bring your SBG up what are you going to do you're going to fast for a week when you could also increase your liido by eating more food right is your estrogen low what are we going to do add in atg add in DHEA maybe your estrogen is not low maybe Mone is not inhibiting your aromatized enzyme activity and your estrogen is just as high and then adding in the DH and atg is actually um increasing your EST levels and now your dick still doesn't work maybe masteron is not for you maybe you need primabol blood work bro blood work blood work what work and then we'll take it from there Chris asks methods on

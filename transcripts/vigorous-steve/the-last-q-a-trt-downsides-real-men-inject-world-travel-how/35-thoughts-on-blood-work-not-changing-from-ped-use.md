@@ -1,0 +1,17 @@
+---
+title: "The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad"
+channel: Vigorous Steve
+published: 2025-05-03
+url: https://www.youtube.com/watch?v=aFs_qHXqWpM
+chapter: 'Thoughts On Blood Work Not Changing From PED Use'
+chapter_start: 4336
+---
+# The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad - Thoughts On Blood Work Not Changing From PED Use
+
+Video: [The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4336s), chapter "Thoughts On Blood Work Not Changing From PED Use"
+
+[1:12:16](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4336s) Viewer question (read aloud): "Full bloodwork every 2 months, and no matter how long of cycle, amount, aas combo, or oral. Health markers barely move, cruise vs blast look identical. Is that genetic, and when do I know to come off?"
+
+[1:12:16](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4336s) full blood work every two months no matter how long of a cycle amount steroid combination or oral health markers barely move plastic and cruing look identical is it genetic or when uh when do I know to come off yeah that's very genetic I know several guys who have the same uh genetic blessings basically they can literally blast their [ __ ] socks off and their blood work barely changes you have what it takes to become an IVB pro hopefully you have the genic uh you know, structure and the work ethic and and the financial backing to uh uh you know, get away with it and and make a name for yourself. And otherwise, enjoy it, man. Because, you know, if you're 20 or 25 or 30 years old and you still have perfect blood fork, that might not be the case when you're 40 or 50. So, enjoy it while it lasts. And while it lasting, maximize it. put on all the [ __ ] uh juicy saucy uh muscle mass that you can. But yeah, it's it's purely genetic, man. 99% of the people will not I'm the same. And I've seen so much blood work, maybe 10,000 blood work at this point over the last 15 years, 20 years. And um it's it's it's a very rare uh occurrence that everything is still good or good enough regardless of how much [ __ ] you're using. So roll with it. Hello. What's the best method to avoid insulin resistance or diabetes while using five use a growth hormone or for in repair? You don't have to worry about that. So the best method is to stop worrying because you will not get insulin resistance or diabetes from five I use of growth hormone per day for injury repair which um you know you're doing for a month at most. I've employed low carbs and retro too. Yeah, there's no chance of insulin resistance of diabetes. Any other advice? All the best. Have a great day. I want you to stand in front of the mirror and point the finger at yourself and stop and tell yourself, "Don't you [ __ ] worry and don't ask these [ __ ] questions because it doesn't make sense. This is not how the body works. If I'm doing low carb diet and taking retro diet, then I will not get insulin resistance or full-blown diabetes even if it's genetically in my family. So, chill the [ __ ] out, bro. Thanks for the 20 pound for 10 pounds." Black licorice hits different.
+
+[1:14:37](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=4477s) Exactly. how much this is the last one for a while. I explained it at the beginning of the video is powered cerebralin for no it's

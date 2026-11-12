@@ -1,0 +1,17 @@
+---
+title: "GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat"
+channel: Vigorous Steve
+published: 2026-01-03
+url: https://www.youtube.com/watch?v=S8M-kPa-0UI
+chapter: 'Can HCG Replace DHEA & Pregnenolone Supps?'
+chapter_start: 4411
+---
+# GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat - Can HCG Replace DHEA & Pregnenolone Supps?
+
+Video: [GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4411s), chapter "Can HCG Replace DHEA & Pregnenolone Supps?"
+
+[1:13:31](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4411s) Matt Dorsey, happy New Year, Steve. Curious on if removing DHEA and pregnenolone makes sense if adding an hCG during my upcoming cruise or just 200 of just 250 mg TRT for 8 weeks before starting the next cycle. Yeah, you can do that, but not everybody produces enough DHEA and pregnenolone on hCG. So, that kind of depends on your age. So, let's say you're uh 21 to 30. If you do 250 mg TRT and and per week, which I think 150 mg TRT is more than enough if you add in the hCG. They are already super physiological. So, 50 mg TRT Monday, Wednesday, Friday, 500 IU's hCG Tuesday, Thursday, Saturday. That will bring you to 2,000 ng/dL for most people already or 1,500 at least. Um and 8 weeks is pretty short, man. Unless your previous cycle was not that high. I would take like three three to four months of cruising before you start your next cycle unless the next cycle is just 250 test and hCG, then it's another increment of your cruise.
+
+[1:14:33](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4473s) Uh but yeah, you can remove it and then see after 4 weeks how low your DHEA and pregnenolone dropped. Pregnenolone you can influence it with mitochondrial aids because pregnenolone is being produced in the mitochondria. So, if you take MATC, SS-31, SLU, methylene blue, etc., that should have a positive effect on your pregnenolone levels. This is one of the reasons why I stopped taking pregnenolone because based on my progesterone levels, I'm assuming that it's good. And I saw that downstream progesterone and DHEA sulfate went up after I started focusing on these mitochondrial peptides. So, I stopped taking pregnenolone. I had a little bit left, so I had to add that in uh cuz I don't want to throw it away. I had to import it. It's expensive. So, finish it, don't buy it again. And I take 25 mg DHEA, and that brings my DHEA sulfate levels to the middle top or like quarter three fourths to the top of the reference range around 500s uh whatever the concentration is. Yeah. So, three quarters to the top of the reference range, but not over that.
+
+[1:15:33](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=4533s) So, I take mitochondrial peptides, 25 mg DHEA per day. 12.5 mg morning and evening. No hCG because um I spent an arm and a leg on hCG to get my wife pregnant. The The wife is pregnant. We got or was pregnant. We have a baby, beautiful daughter, 6 months old, and a couple embryos stored through IVF. So, I'm done with the hCG, man. My libido is fine. >> [laughter] >> All right. [ __ ] on that [ __ ] chin, bro. Look at this. You don't hypertrophy your chin for no reason like that. You should see my lower abs. So, no hCG required. Um but yeah, go by your blood work and take it from there.

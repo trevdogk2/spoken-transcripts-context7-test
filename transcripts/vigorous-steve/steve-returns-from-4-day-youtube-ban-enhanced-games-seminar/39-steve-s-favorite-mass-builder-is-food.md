@@ -1,0 +1,17 @@
+---
+title: "Steve Returns From 4-Day YouTube BAN! Enhanced Games Seminar, GH & GLP Before Bed Fat Loss"
+channel: Vigorous Steve
+published: 2024-12-14
+url: https://www.youtube.com/watch?v=CIvzuCLtbjM
+chapter: 'Steve’s Favorite Mass Builder Is… FOOD!'
+chapter_start: 3079
+---
+# Steve Returns From 4-Day YouTube BAN! Enhanced Games Seminar, GH & GLP Before Bed Fat Loss - Steve’s Favorite Mass Builder Is… FOOD!
+
+Video: [Steve Returns From 4-Day YouTube BAN! Enhanced Games Seminar, GH & GLP Before Bed Fat Loss](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3079s), chapter "Steve’s Favorite Mass Builder Is… FOOD!"
+
+[51:19](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3079s) Builder not including Primo food man come on you know the answer to this doesn't matter what drugs you use I mean I do like the cycle of test De aend uh was great got nice and fluffy nice and juicy The Joint felt really lubricated gyno grew like crazy though so I have to get that surgically removed but that was the goal didn't call it operation gyno for no reason but dude you can grow on anything man it doesn't [ __ ] matter you can cut on anything do I'm I might when I start my cut sometime next year when I'm Healed from the gyno surgery I might just do test deck and to keep the joint lubricated and and you know in the beginning of dieting you turn into a watery mess anyway before the body fat is really gone so what's the point I I could run Primo from the start and then still end up as a watery mess as the you know the body fat levels come down and it the fat is being replaced with water until all everything kind of contracts or it can run test deand to stay strong I think I'm just going to do that testement GH incx retti and uh and then leave the orals for the end when I need it and then maybe replace the deck I meant for a Primo and low dose of train and then in six weeks you see some serious transformation which is just water redistribution not actual fat loss just water redistribution you know from the subcutaneous space to the intermuscular space and then you throw in some yk11 to push past strength blood TOs and then hopefully the deck will be overlapping so I don't get creaky joints and then uh well when this baby hits 88 miles per hour you'll see some serious [ __ ] so whatever you prefer man don't rely on me what the run you can figure that out by yourself yeah Alvaro Alvaro knows man I'm pretty sure Steve's favorite Mass bur Builder is a ton of food you know yeah but we mean drugs [ __ ] test GH insulin now go forth and make it happen I was like a video do I get a cookie now you get more free content which is is unlike you get from other channels high quality content it is all meant to be problematic for
+
+[53:33](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3213s) Viewer question (read aloud): "Will ment be problematic for the pregnancy stuff?"
+
+[53:35](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3215s) pregnancy yeah of course come on man steroids are problematic for pregnancy but especially me and deca and TR so luckily I got that out of the way Steve is it strange to wake up with a fasting blood GL blood glucose of less than four animals per letter when you don't have diabetes it has nothing to do with diabetes it means that you wake up high po right so or you have great insulin sensitivity or you're in a choic restrictive state so again uh the try to determine the cause and then see if it's correlated quick uh favor Steve can you

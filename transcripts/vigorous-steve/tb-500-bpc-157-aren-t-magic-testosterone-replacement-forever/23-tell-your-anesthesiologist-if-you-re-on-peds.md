@@ -1,0 +1,13 @@
+---
+title: "TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!"
+channel: Vigorous Steve
+published: 2025-02-15
+url: https://www.youtube.com/watch?v=bk5fkwRCKbY
+chapter: 'Tell Your Anesthesiologist If You’re On PEDs!'
+chapter_start: 3291
+---
+# TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate! - Tell Your Anesthesiologist If You’re On PEDs!
+
+Video: [TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=3291s), chapter "Tell Your Anesthesiologist If You’re On PEDs!"
+
+[54:51](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=3291s) trt until after surgery to avoid anesthesia complications last time the surgeon said I was hard as [ __ ] to keep sedated uh yeah yeah or you opt for not doing general anesthesia like I did I was awake for the gy surgery and the leg surgery and the lasic eye surgery Steve how can you do that well I've had enough trauma in my life that even lasc eye surgery where there shine lasers in your eyes and you're you're being cut open with a knife and stuff it's not as traumatic as the stuff that I've went through so um yeah I'm scared as [ __ ] for general anesthesia so I discussed with every doctor if no general anesthesia was okay and they're like yeah sure we'll give you some morphine or fentanyl to keep you calm so I got what 50 micrograms fentanyl for the G of surgery it's like oh my [ __ ] God now I can scratch that one off the list of the of the drugs that I've taken uh morphine I've had before from previous surgeries um I can't remember what the dose was but it was enough to kind of keep me calm and then uh yeah and then they go to town on your body sucks so yeah I would avoid certain tiity if the surgery is going to be multiple hours on end and again discuss it with your doctor because the doctors the or your anesthesiologist is the one that keeps you under and if they don't know what you're doing you're taking some sort of compound that prevents the metabolism of your anesthesia or speeds it up then yes you'll have complications so be [ __ ] honest and if you don't feel comfortable being [ __ ] honest with your doctor come to Thailand and don't give a [ __ ] they love it when you're honest especially when you tell your anesthesiologist he's too pretty to be an anesthesi you're way too pretty to be an anesthesiologist what are you doing here it going give you a littleit extra a you're so cute here's some extra morphine here's something to take home said no no no ma'am no no don't want to be a morphine zombie mind is everything

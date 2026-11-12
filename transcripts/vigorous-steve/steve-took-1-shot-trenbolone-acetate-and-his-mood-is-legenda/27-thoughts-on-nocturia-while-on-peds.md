@@ -1,0 +1,13 @@
+---
+title: "Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A"
+channel: Vigorous Steve
+published: 2024-04-20
+url: https://www.youtube.com/watch?v=BN2d68Job6k
+chapter: 'Thoughts On Nocturia While On PEDs'
+chapter_start: 2106
+---
+# Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A - Thoughts On Nocturia While On PEDs
+
+Video: [Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A](https://www.youtube.com/watch?v=BN2d68Job6k&t=2106s), chapter "Thoughts On Nocturia While On PEDs"
+
+[35:06](https://www.youtube.com/watch?v=BN2d68Job6k&t=2106s) milligrams every day I makes uh wake up mids sleep needing to urinate with taking salal mitigate this or something else um no just that's part of the game I I I hold I mean look at my face compared to two weeks ago I'm starting to hold more water now in this HRT plus protocol and for the guys that were following anabolic bodybuilding podcast just now yes I took a a shot tren acetate for the tremon acetate or for the tremon Deep dive because it was 60 pages of notes and I knew it was going to take a multitude of different days to record this video properly because I always stumble over my words and then I just re-record the same sentence again that's why there's so many jump Cuts in my uh videos because I want those videos to be Flawless right I'm a perfectionist it is [ __ ] crippling so I recorded for five days and I'm like I'm not going to talk about Trend um I estimated that I needed about 5 days I'm not going to talk about trend without being or not being on tremone so I took a shot of tremone on Tuesday and uh I gained two kilos but you guys can guess how many milligrams I injected uh let's see if that continues or not so far so good so uh and yes because my water weight increased from being on cycle and using anavar and adding in a little bit of trend and igf1 and GH I hold water at the end of the day and I have to piss up the storm every single night it's just it's part of the game man it's part of the game uh otherwise you can take some desmo pressing desmo pressing which um but if you take tasara and then you dismal pressent acetate a nasal spray control the amount of urine that your kidneys make so you're basically reducing the amount of urine that you produce uh which might not be so good for your metabolic markers when you're running anavar so enjoy the ride man enjoy the ride the good thing about peeing multiple times per night is that when you wake up you look in the mirror you're like holy [ __ ] I look a lot better than yesterday and it happens every day just like it's happening to me good stuff Paul Christian what igf1 Ra

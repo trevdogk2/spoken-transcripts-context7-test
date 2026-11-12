@@ -1,0 +1,13 @@
+---
+title: "The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad"
+channel: Vigorous Steve
+published: 2025-05-03
+url: https://www.youtube.com/watch?v=aFs_qHXqWpM
+chapter: 'How Does Steve Likes His Bikes?'
+chapter_start: 3276
+---
+# The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad - How Does Steve Likes His Bikes?
+
+Video: [The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3276s), chapter "How Does Steve Likes His Bikes?"
+
+[54:36](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=3276s) myself. I really like the Ducatti DFol car. Oh man. So I want I want and I really want to drive the Ducatti XDL V4. They don't have it yet. God, this bike [ __ ] man. So I went to the Ducatti dealer and I I drove the regular Dioval, but I want the XDL. So are you talking about the DFO carbon or XDL? Man, these bikes are you just want to go 200 km per hour on. But I'll settle for the BMW. Man, that thing is like this wide. It literally feels like you have a gigantic penis that you're sitting on. And I feel a little bit naked on those sports bikes because you don't you don't really have anything in front of you. So, you just sit there and you see the road. And I never really like that about the Kawasakis or the uh the Hondas, you know, because you you literally see the no the road, you feel a little bit naked. Now, it's good to go fast, but I I rather want the touring bike. So, I have an NMAX here and I drove a couple uh X-Maxxes and T-Max's, you know, when I rent those in other cities. And then you have always like a little bit of a display and then a little bit of a windshield in front of you. So, you sit there, you feel like you're touring, you know, like on a Harley-Davidson. Harley-Davidson's here, the nice ones, they're like 100k. So, I could buy a car 40k and then a motorbike 40k, but I cannot justify spending 100k in just one [ __ ] motorbike. It's uh I don't know. Well, let's start with the BMW first. If I really like it, then I can always drop 100k on a Harley-Davidson like that uh CVO road or road glide CVO CV Road Glide. Oh, man. I sat on it at the car show. [ __ ] man. That thing you a lot of you feel like you're driving a limousine. It's like I tried every motorbike in the car show recently and then I like the BMW R1250 RT and the CVR Road Glide from Harley-Davidson. Oh man, they didn't have the Ducati, so I went to the Ducati dealership uh like two weeks ago and but they didn't have the XD Evolve V4. I I would buy that in a heartbeat. Yeah, thank God for crypto, man. Dylan, uh let's see. 511 84 kg 8%

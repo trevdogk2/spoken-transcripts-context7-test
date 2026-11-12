@@ -1,0 +1,13 @@
+---
+title: "Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?"
+channel: Vigorous Steve
+published: 2024-05-25
+url: https://www.youtube.com/watch?v=mxti9X3a2vU
+chapter: 'Thoughts On Vegan Protein'
+chapter_start: 1395
+---
+# Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection? - Thoughts On Vegan Protein
+
+Video: [Steroids Boost Metabolism, GH Water Retention, DHT Suspension Protocol & THC Mind-Muscle Connection?](https://www.youtube.com/watch?v=mxti9X3a2vU&t=1395s), chapter "Thoughts On Vegan Protein"
+
+[23:15](https://www.youtube.com/watch?v=mxti9X3a2vU&t=1395s) on vegan protein powder has it complete amino acid profile um I don't think so I think it's lacking locing but a couple other things honestly I haven't looked into it a long time I don't even take whe protein man I take collagen protein which is not a full amino acid profile but it it it is a compliment on my full amino acid profile that I get from animal meat sources so um and I get chicken beef salmon eggs and uh and collagen protein powder every single day and then over the weekend I eat a little bit more freely so today I had extra tuna and extra um I don't know how much is also tuna I know I had a lot of different sushi so I had all the sushi rolles so I don't know um vegans always look a little bit sickly to me so and that they're every time I see their blood work their hemoglobin A1c and their fasting insulin levels are absolutely Skyhigh so I wouldn't say that that's if you have to choose a diet between vegan and carnivore I would say that carnivore is healthier if you're willing to restrict your calories to 2,500 per day because the soon as you go over that then you have to supplement with butter and cheese and all kinds of saturated fats and uh I don't think that's healthy either so just follow a balanced approach yeah and otherwise I have to supplement with bcas but know bcas are made from hair what is it made from it's not very vegan approved uh meric blood work done 35 years old total testost was 651 uh we already I already answered this buddy but thanks for your super chat I be patient sometimes I'm a little bit behind I'm 10 minutes behind now go your stopping trend on time the shirt will burst yeah it's it's very tight now it's uh I could have barely get into it you see this is like before it was like collapsed and now it's like what look at this chest man what the [ __ ] dude what is this what the hell is going on see that just coming off the bone bro imagine motor booting that ask my wife uh does ton strength stay after a

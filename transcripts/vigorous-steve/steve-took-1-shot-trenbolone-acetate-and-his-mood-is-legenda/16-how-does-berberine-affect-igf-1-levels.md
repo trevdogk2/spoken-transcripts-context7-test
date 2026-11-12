@@ -1,0 +1,13 @@
+---
+title: "Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A"
+channel: Vigorous Steve
+published: 2024-04-20
+url: https://www.youtube.com/watch?v=BN2d68Job6k
+chapter: 'How Does Berberine Affect IGF-1 Levels?'
+chapter_start: 1379
+---
+# Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A - How Does Berberine Affect IGF-1 Levels?
+
+Video: [Steve Took 1 Shot TRENBOLONE ACETATE And His Mood Is LEGENDARY For 2 Hours STRAIGHT! Vigorous Q&A](https://www.youtube.com/watch?v=BN2d68Job6k&t=1379s), chapter "How Does Berberine Affect IGF-1 Levels?"
+
+[22:59](https://www.youtube.com/watch?v=BN2d68Job6k&t=1379s) here but berberine impacts on igf1 did you look properly into it or have personal in your Train's data blood work regarding this without going to much into detail uh wondering if the impact on a muscle Coral can just be ignored yes it can be ignored uh just like vitamin C impact on muscle Cru uh yes it does affect it but it's too little to care I agree as in some NE deep researching other stuff now I don't want to have to stop do a deep dive into berberine and blah blah blah blah blah okay so uh evidence shows that berberine reduces igon levels but I feel that it's negligible a berberine might inhibit the dipteral peptase 4 enzymes which actually break down or would otherwise break down igf1 so technically berberine should be able to increase igf levels um this is part of where berberine's speculated insulin sensitizing effect is coming from by inhibiting these enzymes preventing the breakdown of igf1 and Insulin but there is some evidence that burine lowers igf1 levels now that's I think it's less dramatic than ghk copper what people still use for anti-aging purposes it's significantly less dramatic than an reduction igf1 when you have non-alcoholic fatty liver disease or use metformin or selective estrogen receptor modulators or keep your serum estron levels at the bottom of the range I think berberine you could just run worry free and your igf1 levels will not be affected to the point you lose out on animalism yeah hey Steve how long does it take after switching from intermuscular to sub cute to reach stable levels again uh don't worry about it don't worry about it all right we're already done right good nice and short that's what she said okay guys I'm 24 minutes behind so I'm just going to scroll through the uh super chats what's good soon to be coach Sean Sullivan are you the actor uh yeah contact me for the 10-hour consultation package what's the best

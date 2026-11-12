@@ -1,0 +1,19 @@
+---
+title: "High Body Fat TRT Protocols, Primo & Mast Shortage, Mitochondrial Stacks, Can Women “Smell” Gear?"
+channel: Vigorous Steve
+published: 2025-10-11
+url: https://www.youtube.com/watch?v=PIIMw9XyZI0
+chapter: 'Why Are Steroid Users More Likely To Have Daughters?'
+chapter_start: 6194
+---
+# High Body Fat TRT Protocols, Primo & Mast Shortage, Mitochondrial Stacks, Can Women “Smell” Gear? - Why Are Steroid Users More Likely To Have Daughters?
+
+Video: [High Body Fat TRT Protocols, Primo & Mast Shortage, Mitochondrial Stacks, Can Women “Smell” Gear?](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=6194s), chapter "Why Are Steroid Users More Likely To Have Daughters?"
+
+[1:43:14](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=6194s) Viewer question (read aloud): "do you know what is usually percentage of males vs females born after years of high anabolics?"
+
+[1:43:15](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=6195s) percentage of males versus females born after years of high anabolics? uh you have a higher likelihood to get a female uh offspring, female uh child obviously because male chromosomes in the sperm are um the Y chromosomes are more susceptible to oxidative stress. So you have a male Y chromosome sperm and a female X chromosome sperm. And the male Y chromosome by the time they enter the uterus and they're ready to get to the egg, the Y chromosome is has a lot of DNA fragmentation and then the likelihood of fertilization with the Y chromosome with the X chromosome in the uh egg. This is the female that's always an X chromosome is less than the likelihood of an X chromosome in the m the female sperm coming to the female egg with also an X chromosome. Plus, you have redundancy. Now you have two X chromosomes um that can compensate for each other. Right? So long story short, steroids, bodybuilding, this lifestyle creates oxidative stress and then uh the Y chromosomes in the male sperm gets damaged. DNA fragmentation goes up. more DNA is fragmented and they have less likelihood to get a male offspring compared to a female offspring because again you have redundancy in the X chromosome has more uh defense mechanisms against um prooxidants basically. So yeah what you need to do is come off cycle increase your antioxidants and then you have a 50/50 chance.
+
+[1:44:48](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=6288s) So all the guys that conceive unsycling, I got my wife pregnant on train. It's a girl, bro. It's a girl. And I wanted to have a son because I have an empire and and legacy to uh leave that I don't think my daughter would have an interest in or taking over. Maybe you never know, right? But yeah, I I think I've done well in my life that I deserve a son and uh you know, a king must uh you know, give legacy to a son and uh yeah, so I did what I had to do to conceive one boy. Now the the boy embryo is ready and hopefully it will implant just as easy as the the girl embryo did. Uh again, they're all DNA tested and all made sure that they're perfectly healthy, passed all the the different phases before it gets frozen. And then uh once we we're ready for implantation, hopefully it sticks. And then uh we pass the nip test just in case. I might as [ __ ] well do all the tests again. And then I have a son and I want to call him Kronos, but nobody seems to agree with me.
+
+[1:45:54](https://www.youtube.com/watch?v=PIIMw9XyZI0&t=6354s) Why would you name your son Kronos? Doesn't it sound [ __ ] badass, dude? Kronos the destroyer. All right, let's see. No, I don't play around, man. As I get older, I have less patience. And again, I don't I'm not here to please people. If you send a question four [ __ ] times, then you can just get [ __ ] dude. Super chat. Yeah, I'll I'll get the membership or super chat. I'll see it and I'll answer it, you know. But if you start spamming, dude, get [ __ ] Get lost. Uh Fernando Fritus I pulled the growth

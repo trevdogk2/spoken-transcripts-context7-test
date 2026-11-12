@@ -1,0 +1,15 @@
+---
+title: "The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad"
+channel: Vigorous Steve
+published: 2025-05-03
+url: https://www.youtube.com/watch?v=aFs_qHXqWpM
+chapter: 'Will Steve Consider A Members Only Discord Server?'
+chapter_start: 2110
+---
+# The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad - Will Steve Consider A Members Only Discord Server?
+
+Video: [The LAST Q&A: TRT Downsides, REAL Men Inject, World-Travel, How To Start A Business, Becoming A Dad](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=2110s), chapter "Will Steve Consider A Members Only Discord Server?"
+
+[35:10](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=2110s) asks, "Not a PD question. Thanks for all your knowledge, Steve. I'm going to miss the Q&As's. Been a member for 23 months now, and I've learned so much ever since I found you via more plates, more dead and bros with Derek and Leo. In the future, when life is less hectic, have you considered a members only discord server for members to discuss bodybuilding PD questions and ask you questions? And since it's discord uh format, less repetitive questions, I doubt it, but uh since people will be able to search, people don't search anymore, man. Trefer through the chat logs for similar questions might free up some more time while still providing a stable revenue stream for memberships. I believe Chase, my god, this is a wall of text. I believe Chase has a Discord similar format with higher tier memberships for different levels of access. I wouldn't mind helping setting up a Discord or being a mod. Yeah. So, we're working on something like that. I'm working on some sort of member site. I just want to have content first. So, I'm working on all the steroid profiles, right? I know I did deep dives here on the YouTube channel, but there's a lot more scientific evidence to discuss. So, when I say deep, I mean [ __ ] deep. The testosterone article is 250 pages. The Nanderlone article is close to 300 pages. The Winstrol article is uh 100 pages and that's and so it will be I want to have that full for all of the steroids because that's what most steroid people are interested in. Then we'll open up that up. When that's ready, I'm not really sure. Um I'm working as much as I can. I want to. But it'll be ready when it's ready. And when it's ready, you will never have to sign up to any other membership site ever again.
+
+[36:48](https://www.youtube.com/watch?v=aFs_qHXqWpM&t=2208s) It's that simple. I I'll put everybody else out of business because it will have the best content. Now, obviously, it will be growing content just like all the other membership websites. They're still adding in stuff, but I got a really good team that helps me produce content right now. And uh it it's yeah, it will be really really good. and uh you know with all the all the stuff you expect like sources and you know discussions but that's all in the making and when we're recruiting more people I'll let you know [Music] um you know oh god why is everything and these chats. All right, here we are. Uh,

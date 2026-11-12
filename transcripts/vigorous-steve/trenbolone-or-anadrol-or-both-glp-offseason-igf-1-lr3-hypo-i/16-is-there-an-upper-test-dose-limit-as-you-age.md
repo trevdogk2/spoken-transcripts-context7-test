@@ -1,0 +1,13 @@
+---
+title: "Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!"
+channel: Vigorous Steve
+published: 2025-02-08
+url: https://www.youtube.com/watch?v=Jp07kf7YaTI
+chapter: 'Is There An Upper Test Dose Limit As You Age?'
+chapter_start: 1697
+---
+# Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More! - Is There An Upper Test Dose Limit As You Age?
+
+Video: [Trenbolone Or Anadrol Or BOTH? GLP Offseason, IGF-1 LR3 Hypo, Injectable SLU-PP-332 & More!](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=1697s), chapter "Is There An Upper Test Dose Limit As You Age?"
+
+[28:17](https://www.youtube.com/watch?v=Jp07kf7YaTI&t=1697s) dive uh do you think there's an upper limit to testosterone levels on tier t as you age into your 50s 60s and Beyond before health issues are concern or just based on keeping good lab results yeah I'm sure at one point point you just don't feel as good because you metabolize the EXO testosterone slower and and and and maybe things in life will change so if you run 500 test in your 40s maybe that's 300 in your 50s and then 250 or 200 in your 60s and then 150 in your 70s and maybe by 80 you're like [ __ ] this [ __ ] I'm done injecting I have so much scar tissue and I'm I'm kind of too old and I don't give a [ __ ] anymore I'll just take oral DHA right things change man priorities change your body changes um as long as you stay on top of your health and you and you you know approach it with a little bit of intellect and knowledge then I'm sure you can make the appropriate adjustments and and there's plenty of guys that I know that are in their 60 that are running 500 test yeah but maybe they started a little bit later like not like me where you start like 26 and you've been blasting for 15 years and the cracks are already starting to show so you have to be a little bit more careful um but yeah if you start late you know basically the window of exposure instead of um let's say mid 20s to to 40s 15 years is now from 50 to 65 and then you do less uh the same exposure duration but it's it's at a later States in life so you maybe you can enjoy higher doses later on in life and again it depends on what else you do if you've been eating healthy if you have exercise if you live in a low oxygen stress environment right all that thing contributes but I I'm sure for most people eventually as you get older your testosterone levels need to decline uh um when you're taking trt because you probably just don't feel so good and your blood pressure management and that kind of stuff just gets worse and worse and worse which food allergy test did you do

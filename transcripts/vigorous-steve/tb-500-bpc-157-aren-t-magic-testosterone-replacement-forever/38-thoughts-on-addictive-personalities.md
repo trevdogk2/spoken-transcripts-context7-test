@@ -1,0 +1,13 @@
+---
+title: "TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!"
+channel: Vigorous Steve
+published: 2025-02-15
+url: https://www.youtube.com/watch?v=bk5fkwRCKbY
+chapter: 'Thoughts On Addictive Personalities'
+chapter_start: 5647
+---
+# TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate! - Thoughts On Addictive Personalities
+
+Video: [TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=5647s), chapter "Thoughts On Addictive Personalities"
+
+[1:34:07](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=5647s) themselves out to showcasing the parties yeah yeah but everybody parties man it's nothing new it's nothing new augmented athletes I feel like certain person alties hurt the idea of what biohackers are trying to do yeah yeah if you have addictive personality disorder then then then biohacking is not a good idea now to be fair I come from a family with addiction problems and uh I can't stop taking performance enhancing drugs either but the reason I keep doing blood work every month is just just shove it in my face so I can do uh performance announcing drug experiments with some moderation and as soon as I see a red flag then you guys know that I pull the plug um and again like I alluded to earlier probably when I see my daughter's face I will have to make some hard changes or I'll feel incentivized to make some hard changes but up until now uh with my health parameters decent uh even though I might have a well let's say ped addiction uh I think I'm been doing okay so far and at least I was able to monetize it unlike so many people who are addicted like a like a rock star icted to alcohol or or cocaine and stuff and then they uh they become creative and they monetize the [ __ ] out of it to fuel their alcohol and cocaine addiction H introspection now we'll see how this uh this all ends up well I think 600 test and some yk1 a little bit of growth on top I think that's pretty moderate certainly not 5 gr of gear and 189 years of growth hormone and even Cas is doing absolutely fantastic on protocols like that so race to the bottom yeah that seems what it's what it is though I met a few of them at the at the Mr Olympia I'm like Jesus [ __ ] Christ I can't believe how much money you're making for what you're have for what you have an offer but I I guess you know yeah what it what is it maybe that's what people want to see nowadays just degeneracy uh p5p three times 300 milligrams twice

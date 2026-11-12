@@ -1,0 +1,13 @@
+---
+title: "Secrets Of Health Optimization - Marek Health Webinar"
+channel: Vigorous Steve
+published: 2024-03-25
+url: https://www.youtube.com/watch?v=viVab4N35k8
+chapter: 'Questions; TRT Addons: Proviron'
+chapter_start: 3338
+---
+# Secrets Of Health Optimization - Marek Health Webinar - Questions; TRT Addons: Proviron
+
+Video: [Secrets Of Health Optimization - Marek Health Webinar](https://www.youtube.com/watch?v=viVab4N35k8&t=3338s), chapter "Questions; TRT Addons: Proviron"
+
+[55:38](https://www.youtube.com/watch?v=viVab4N35k8&t=3338s) me know if there are any questions great yeah I can't thank you enough for sharing your your wisdom and expertise with all of us um there's a ton of questions here to go through so if any of your questions don't get answered please reach out to your health coach and your mer Health provider they'll be more than happy to meet with you and talk through all of this together um first question from an anonymous attendee what other medications are synergistic with trt Dr hotus recommended lowd dose daily talil and it's been incredibly useful for me are there any other treatments you recommended yeah so talil is always a popular combination with disos replacement therapy um not only for blood pressure management but also to um improve erection quality and enjoyment in the bedroom and again there's some scientific evidence that it improves policis so I I think that's always one of the the first things you can look into if your trt is successful and then the rest are kind of ancillaries um proviron has been known to work for some individuals I usually don't include it on um these kinds of talks because exogenous toone usually suppresses HCG so while HCG might be elevated in the beginning of starting testosterone replacement therapy or when you're um still Drug Free as soon as you go on HRT shbg comes down freeing up more testosterone and libido usually improves now if you if you notice that your shbg is still unfavorable let's say 40 50 60 animals per liter and you're already on trt for a while and you do everything right they maybe look into a low dose per viron starting at 6.25 milligrams once per day I don't believe in starting off at 25 milligrams because then you have four days five days of bliss where your shpg is favorable and your to free testosterone is high industrial libido is great and then you overshoot and now your shbg is too low now you have too much free testosterone now you might get insomnia now you might get too much aromatization into estral and now your libido is off again so start low do some blood work and slowly build your way up on trt from what I've seen most men do well with 6.25 to 12.5 milligrams per viron Daily if they need it at all um a

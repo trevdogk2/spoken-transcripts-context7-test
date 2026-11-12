@@ -1,0 +1,19 @@
+---
+title: "GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat"
+channel: Vigorous Steve
+published: 2026-01-03
+url: https://www.youtube.com/watch?v=S8M-kPa-0UI
+chapter: 'Thoughts On ED & Low SHBG While On TRT'
+chapter_start: 1761
+---
+# GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat - Thoughts On ED & Low SHBG While On TRT
+
+Video: [GLP-1s GONE! GLP Vs. Tirzepatide, Spot Reduce Fat, Superdrol Vs. YK-11, Estradiol Chest Fat](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1761s), chapter "Thoughts On ED & Low SHBG While On TRT"
+
+[29:21](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1761s) >> Uh erectile dysfunction and TRT even with Cialis. What my labs look good on paper, healthy lifestyle, and 120 mg of testosterone on a Wednesday and Friday. So, that's 40 mg three times a week. Labs, testosterone, let's say 1,100, free T free T is 30, SHBG 5. Uh that's pretty low. Estradiol sensitive 29, that's good. Prolactin 10, good. Iron The ferritins uh What? Iron 300, iron 61. I'm going to ignore the 300, it seems unreasonable. So, maybe that's total iron binding capacity or something else. Iron 61 ferritin 98. Um low-fat diet a wife that's not hot Uh uh your labs look fine, man. Your SHBG is low, though. Now, I just There's so much we can discuss and I honestly honestly honestly don't want to spend 20 minutes on this cuz I've discussed it so many times. So, what I'm going to do is recommend you to the how to improve your libido or the first and last libido video that you'll ever watch. It's on my YouTube channel.
+
+[30:27](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1827s) And how to improve your SHBG. Those two will overlap and I think the solution is there. So, long story short, to improve your SHBG is either Nolvadex or another selective estrogen receptor modulator or hCG, but hCG will also increase your testosterone and estradiol, so you might need additional aromatization management. The testosterone will raise SHBG with a couple points, but not as much as hCG or selective estrogen receptor modulators. Thyroid hormones like T4 and T3, you can look into that. But again, it can also raise your heart rate and you know, cause catabolism if you overdo it. So, a somatropin is a great replacement for thyroid hormones, but it doesn't increase your SHBG. And um removing the carbohydrates from your diets because carbohydrates promote insulin release and insulin reduces SHBG levels. So, TRT is low right? It's not In my opinion, it's not the sole root cause of your low SHBG. It could be somewhere else. Could be that your thyroid panel is off. You're you're diabetic and you're not telling us about this right. You're supplementing with insulin, that's why your SHBG is high.
+
+[31:41](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1901s) Are you eating a buttload of simple sugars? That could be the cause. Um And and everything else is fine. So, uh erectile dysfunction could be caused by many different things. So, poor blood flow, maybe needs uh what is it called? Uh the the the shockwave therapy to improve blood flow. Maybe you're stressed. Maybe your cortisol levels are high. Maybe you're not eating enough fats. Maybe you're overtrained, overworked, overstressed, underslept. Uh wife is not hot. Could be a million different things, but it's all explained in those videos and I think the solution is there. But with this what you're presented, the only problem that I see is that your SHBG is a little bit on the low side. Uh but everything else looks good. And based on this blood work that you presented to me, uh I would say that erectile dysfunction shouldn't be there. SHBG is 51.5. >> [sighs] >> I just spent 5 minutes answering your question and you made a typo.
+
+[32:41](https://www.youtube.com/watch?v=S8M-kPa-0UI&t=1961s) Well, you figure it out. You figure it out, bro. Ask correctly. We're not going to do it again.

@@ -1,0 +1,13 @@
+---
+title: "Steve Returns From 4-Day YouTube BAN! Enhanced Games Seminar, GH & GLP Before Bed Fat Loss"
+channel: Vigorous Steve
+published: 2024-12-14
+url: https://www.youtube.com/watch?v=CIvzuCLtbjM
+chapter: 'IVF Gives You Peace Of Mind'
+chapter_start: 3675
+---
+# Steve Returns From 4-Day YouTube BAN! Enhanced Games Seminar, GH & GLP Before Bed Fat Loss - IVF Gives You Peace Of Mind
+
+Video: [Steve Returns From 4-Day YouTube BAN! Enhanced Games Seminar, GH & GLP Before Bed Fat Loss](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3675s), chapter "IVF Gives You Peace Of Mind"
+
+[1:01:15](https://www.youtube.com/watch?v=CIvzuCLtbjM&t=3675s) be worth doing knowing all its benefits yeah in the end you know from the start that you have a healthy baby and we did the nip test and everything and um you know then the nip test is just a confirmation because you know from the beginning that that all the chromosomes are just lowrisk or just perfectly healthy and that you don't have risk for Down syndrome or something like that so yeah so from the beginning we were very chill about it um and then the nip test came and then you see that everything is perfect or low risk and the you know 30 something chromosomes they tested that they can check with the serum analysis from the mother my wife that being and um yeah now it's happy sing man up and up the bull market has started but bull market will end before my baby is born which means gains a plenty plenty of money for baby clothes all right guys let's leave it here my family is coming I just wanted to go live to thank you guys so much for all of your support while I was uh in YouTube Jail uh it was only for four days but we got it done made a few phone calls I got a lot of people offering their help which I highly appreciate um and now we're back uh and besides not being able to receive any super chats uh I think we're in the green well let's see what the views are on the anabolic round table when it drops on Monday Monday the peptide tier list will drop so make sure you watch it I'll promote it on Instagram obviously and then you guys please just do me a solid for once right go right even if you don't want to watch it play in the background press the like button leave a comment or a couple comments strug the algorithm to the point YouTube knows that you guys love me on the first video that's back after the channel got ter terminated for a couple days and then fingers crossed we'll get right back into the algorithm we get our super chats back and then um well it's like this week never happened and Christmas is uh given to me by you guys okay guys uh peace out enjoy your weekend I know I will and we'll see you guys Monday and the next fig Q&A next weekend take care

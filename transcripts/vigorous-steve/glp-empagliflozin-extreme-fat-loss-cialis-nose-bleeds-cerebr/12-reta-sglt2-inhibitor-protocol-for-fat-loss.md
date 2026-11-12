@@ -1,0 +1,21 @@
+---
+title: "GLP & Empagliflozin EXTREME Fat Loss, Cialis Nose Bleeds, Cerebrolysin Vs. Cortexin, AICAR"
+channel: Vigorous Steve
+published: 2025-04-05
+url: https://www.youtube.com/watch?v=0lswGv0maqE
+chapter: 'Reta & SGLT2 Inhibitor Protocol For Fat Loss'
+chapter_start: 1134
+---
+# GLP & Empagliflozin EXTREME Fat Loss, Cialis Nose Bleeds, Cerebrolysin Vs. Cortexin, AICAR - Reta & SGLT2 Inhibitor Protocol For Fat Loss
+
+Video: [GLP & Empagliflozin EXTREME Fat Loss, Cialis Nose Bleeds, Cerebrolysin Vs. Cortexin, AICAR](https://www.youtube.com/watch?v=0lswGv0maqE&t=1134s), chapter "Reta & SGLT2 Inhibitor Protocol For Fat Loss"
+
+[18:54](https://www.youtube.com/watch?v=0lswGv0maqE&t=1134s) so little information. Benjamin, what's wrong? What was Reta's protocol and
+
+[18:58](https://www.youtube.com/watch?v=0lswGv0maqE&t=1138s) Viewer question (read aloud): "hey steve, what was the protocol of reta, and a sglt2 inhibitor? thanks!"
+
+[18:58](https://www.youtube.com/watch?v=0lswGv0maqE&t=1138s) the SL2 inhibitor? Yes, I forgot to include it in the video and then I mentioned it in the Retroite Reta Truth Tide Deep Dive or Dendum Liveream. So, the protocol is basically that you take the appetite suppressant dose. Let's say it's half a milligram, 1 milligram, or 1.33 milligrams of Red True Tight three times a week subcutaneously on Mondays and Wednesdays, and then you take 25 milligrams of Impactlosin before bed in combination with the growth hormone. So, growth hormone stimulates lipolysis, obviously, but it also releases the glycerol backbone from these three triglycerides stored with glycerol in adipose tissue. So you get three fatty acids that you can absorb with carnitine if you want to include it in the combination as well. Tomas retroutite in the morning withdrawal, carnitine in the morning to have sufficient carnitine reserves and sufficient appetite suppression, and glucagon and GAP1 receptor agonism activation act as receptors.
+
+[20:05](https://www.youtube.com/watch?v=0lswGv0maqE&t=1205s) Then you take growth hormone and an SGLT2 inhibitor like Impactful before bed. It could be two, I use growth hormone, four, I use growth hormone, two is more or less where lipolysis reaches its peak. So why would you take more in a single injection if that's what you're looking for? Two, you use growth hormone before going to bed and 25 milligrams of dupyloin or 10 milligrams of dupyloin; These appear to be the most researched and could have some anti-aging benefits by keeping your serum glucose levels within range. Retroutite and growth hormone, although at different times, will stimulate fat loss. Carnitine will take care of the triglycerides, and ACLT2, either implilosin or dproflosin, will take care of the glucose. And now, your serum triglycerides, your serum free fatty acids, don't rise, and your serum glucose levels don't rise to the point where they start releasing insulin, and now any mitigating effect you might have on further lipolysis disappears. So you're always lipolytic and then all you need to do is create that calorie deficit, which is very easy on a retrograde diet.
+
+[21:09](https://www.youtube.com/watch?v=0lswGv0maqE&t=1269s) So you're continuously releasing fat into the bloodstream and then all you need to do is get rid of it. Getting rid of it is glucose coming from the glycemic cholesterol spine. You're literally urinating, assuming you stay hydrated. So it feeds back into the growth hormone carnitine and emplozen, which I think I mentioned in the stimulant-free fat burner package. It's a complete trick. Atlas, and if they're going to beat you up with that, well, DNP and BAM 15 are what you need to investigate. But then you're going in the wrong direction and you keep calling. Is BAM 15 your home? Is DNP your home? And there is no answer. But if you keep calling, I might shoot you with a shotgun right through the opening at crotch level, you know, where you put the cards, right? Mail. The shotgun goes in, the flap opens, and it's like in Pulp Fiction. Guys, do you remember that scene where poor Buck gets shot in the balls? Yes, my name is Buck and I'm here to [ __ ], right? No, no, that's Gil Bill. What's this guy's name? Chat, who got shot in the balls in Pulp Fiction? Mitchell Rogers, I'm not

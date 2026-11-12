@@ -1,0 +1,13 @@
+---
+title: "Secrets Of Health Optimization - Marek Health Webinar"
+channel: Vigorous Steve
+published: 2024-03-25
+url: https://www.youtube.com/watch?v=viVab4N35k8
+chapter: 'Hormone Replacement Basics'
+chapter_start: 1089
+---
+# Secrets Of Health Optimization - Marek Health Webinar - Hormone Replacement Basics
+
+Video: [Secrets Of Health Optimization - Marek Health Webinar](https://www.youtube.com/watch?v=viVab4N35k8&t=1089s), chapter "Hormone Replacement Basics"
+
+[18:09](https://www.youtube.com/watch?v=viVab4N35k8&t=1089s) one when you're ready right you tried HCG monotherapy or enine your testosterone levels came up slightly but you're still not happy and you want a little bit uh you know try something new right you want to see what's behind door number two then testosterone replacement therapy is probably an option testosterone replacement therapy is again like I mentioned before not just testosterone it's hormone replacement therapy that's uh testosterone human coronon atropen the hydro EPI androsterone and pregnanolone and DHA and pregnanolone are both neurosteroids that aren't always required and this is why very important to do your blood work because of course you know DHA and Pregnant levels also decline with age but you see in a lot of younger individuals that do everything right they're healthy they go to the gym they sleep properly they're low stress um or already graduated or they in a good relationship you see that their testosterone levels might still be low but their DHA and pregn levels might be sufficient and when they try ATD monotherapy or encline monotherapy or testosterone replacement therapy in that case testosterone levels come up obviously to let's say 2/3 34s or top of the reference range or slightly over that that DH prone doesn't move their adrenal gland still produce sufficient amounts of DHA pregnant alone and they don't need to go the supplementation route but as you get older just like testosterone levels decline DHEA and Pregnant levels decline also so maybe by the time you're 30 you notice that DHA and pregn supplementation is required maybe it's only dhaa maybe it's only pregnant alone this we you know assess with blood work parameters and again something you have to discuss with your healthcare provider over mic Health to see which of these options is the most um how do you say this the most relevant to you as an individual so once you got that under control through multiple blood work analysis then you might have to put lipid uh lipid Management in place or blood pressure management or estrogen management but we'll get into that a little bit later on so let's discuss

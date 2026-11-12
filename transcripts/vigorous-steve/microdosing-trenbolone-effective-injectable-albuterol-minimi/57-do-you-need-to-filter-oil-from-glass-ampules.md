@@ -1,0 +1,13 @@
+---
+title: "Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?"
+channel: Vigorous Steve
+published: 2025-01-18
+url: https://www.youtube.com/watch?v=Lbhi0_xs7yk
+chapter: 'Do You Need To Filter Oil From Glass Ampules?'
+chapter_start: 8804
+---
+# Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP? - Do You Need To Filter Oil From Glass Ampules?
+
+Video: [Microdosing Trenbolone Effective? Injectable Albuterol, Minimize Face Bloat, Bulking On GLP?](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=8804s), chapter "Do You Need To Filter Oil From Glass Ampules?"
+
+[2:26:44](https://www.youtube.com/watch?v=Lbhi0_xs7yk&t=8804s) filtered syringe to avoid injecting tiny glass particles that might not be visible every time I break it off it's not a clean brake I use 10ml vials thanks yes I actually made a video on that it got no views but I have a video on this topic it might be suitable to use a filtered syringe I've never done this though um but yeah there are micro particles of glass in um shattered ampules um so it might be wise to draw with a filter TR inch but then you have to make sure that the filtered syringe is uh not filtering out the peptides cuz well grow is giant molecule and of course you could compare microns right from the filtered syringe to the Micron size of the growth remone molecule or the brain draft neurotropic factor or other peptides that you're injecting right for the steroids it doesn't matter those molecules are tiny but with peptides well the you know like the molecular weight of testosterone is about 300 something but the molecular weight of of growth Ron is 22,400 so that's a big difference so it means that the molecule significantly bigger significantly heavier and it might not pass through the proper micron filter so that you first need to investigate I haven't done that but that's something you need to do uh that being said I've never used a filter needle ever how much glass I've injected in my body I guess we'll find out Jour ay I have that in my will that I want to donate my body to science and see and do a special examination on my uh my injection insides to see if there's any residual tissue there that's in my will so if I die then we'll uh I don't know Dr Dean and uh and CT CT Kurt Havens can do my autopsy analysis as the final anabolic round table and then let's see how bad it got but yeah it it there is several scientific studies that show that uh depending on the skill of the nurse that there's more or less glass partic but still glass particles when you break it and those are so small that you can't see it and they might end up in the in the syringe yeah no free rides Kos I've been diagnosed with

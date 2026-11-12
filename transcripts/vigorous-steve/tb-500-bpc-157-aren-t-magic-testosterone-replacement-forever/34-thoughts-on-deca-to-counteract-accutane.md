@@ -1,0 +1,13 @@
+---
+title: "TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!"
+channel: Vigorous Steve
+published: 2025-02-15
+url: https://www.youtube.com/watch?v=bk5fkwRCKbY
+chapter: 'Thoughts On Deca To Counteract Accutane'
+chapter_start: 4940
+---
+# TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate! - Thoughts On Deca To Counteract Accutane
+
+Video: [TB-500 & BPC-157 AREN'T Magic! Testosterone Replacement FOREVER? Prevent GH Bloating & Heart Rate!](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=4940s), chapter "Thoughts On Deca To Counteract Accutane"
+
+[1:22:20](https://www.youtube.com/watch?v=bk5fkwRCKbY&t=4940s) milligrams iqan tier three 150 Mills initate with adding in 50 to 100 milligrams de a help for the joints uh yes but on 40 milligrams acutane I'm not sure if that's sufficient to mitigate the negative effects that you'll have on your joints from that much Accutane never tried it on the weight list for gyana surgery risk with Deca yeah Deca can increase the aromatization of testosterone into estral so if you go on if you're on 150 test and you don't need an aromatize enor then adding in 50 to 100 migs none might require you to add in an aromatized inhibitor even though accurate I think had some estrad lowering effects you could try to switch the Accutane for liver 50 gram per day which also has a lot of retinal vitamin A which is you know basically what Accutane is it's a synthetic version of vitamin A I just started taking 50 grams of liver and my skin is noticeably clear yes I'm still got acne at 41 years old it must be the tap water that you can't drink here in Thailand it's never Thailand it's all the the terrible food that I was eating um so maybe make a switch from Accutane to beef liver 50 gr per day not recognized but I do know that they can dry up the skin quite tremendously and it provides a lot of nutrients that Accutane doesn't contain and then you would still need an aromatized inhibitor on 150 test and 50 to 100 milligrams of deca um but then you wouldn't have to worry about um further developing acne but you might still have have to do the gyno surgery and if you're already on the weight list for gyno surgery then well watch all the videos that I did in the operation gyno protocol where I literally grew my gy out to 2 Ines across per side and now surgically removed and I don't think it will ever come back again you know so maybe grow that guy now have like sensitive nips for like three months and then but I did 500 test of 500 DEA had a good time man holy moly I'm strong as [ __ ] and my EST doll was pretty high also all right uh where are we sorry bro I got to it 10 minutes

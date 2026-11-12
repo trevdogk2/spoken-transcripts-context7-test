@@ -1,0 +1,15 @@
+---
+title: "Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics"
+channel: Vigorous Steve
+published: 2025-08-09
+url: https://www.youtube.com/watch?v=RVoNhhm6COA
+chapter: 'What To Do Before Starting A 24 Week Bulk'
+chapter_start: 5050
+---
+# Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics - What To Do Before Starting A 24 Week Bulk
+
+Video: [Oral Vs. Injectable SLU-PP-332, Anavar On TRT+, IGF-1 DES Vs. IGF-1 LR3 Vs. Increlex, Nootropics](https://www.youtube.com/watch?v=RVoNhhm6COA&t=5050s), chapter "What To Do Before Starting A 24 Week Bulk"
+
+[1:24:10](https://www.youtube.com/watch?v=RVoNhhm6COA&t=5050s) Cutting six weeks, then wanting to go into a bulk to push new size and strength PRs. Age 34, 15% body fat, visible abs, but full love handles. Running weekly, 200 milligrams, 30 milligs primo, 5 milligrams MC per week, 5 milligrams 332. What should I change when I go into a 24-week bulk? Um, I would cut until you're 8% body fat because then your bulk is going to be a lot more successful. And if you end up at 12% body fat, after 6 weeks, 6 weeks, you probably get down to 12% on that stack. 10 at best, but it's probably 12. Then by the time you're in your 24week bulk, you'll be 20. 20% body fat, not 20 years old. 20% body fat. And that's very unfuckable, dude. And you know it. If you're full, you have full love handles but slightly visible abs after 24 weeks of bulking, quote unquote, dude, nobody would want to bang you. Maybe maybe if you take him from behind after three glasses of wine, but it's not going to happen. There's always going to be some shredded dude, you know, swooping up the the, you know, the girls that you want to end up with. So, keep dieting. How about you do a 12-week cut and a 20we bulk and then um you run exactly the same protocol all the way through. Albeit that you might have to increase to 300 tests and 500 primo at week at the end of your cut. Probably it's enough to get lean. It's probably better just to run 300 test and 500 primo at the start of your cut. use a higher dose to get shredded while maintaining your strength and then reducing the dose while increasing the food uh while you start bulking because in a bulk you can rely on calories for anabolism and less on steroids. And then the 5 milligrams MOS C and 5 milligrams SLUP PB332 will help with mitochondrial function obviously energy production and help you help you lean because SLU is a uh exercise mimetic and Matsi obviously helps the mitochondria keep firing and uh so you end up at 12% body fat after no 10% body fat after 12 weeks of cutting and then you're maybe 12% body fat by the time you finish your bulk. I think that's a much better idea. Yeah, a higher dose during your cut and then dropping the dose down while you're bulking, but the cut is a little bit longer. I hope you got your money's worth, man. 100 bucks is a lot. It's a lot.
+
+[1:26:47](https://www.youtube.com/watch?v=RVoNhhm6COA&t=5207s) Uh you u youario
