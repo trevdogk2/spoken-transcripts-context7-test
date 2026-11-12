@@ -1,11 +1,12 @@
-# Spoken transcripts: Context7 indexing test
+# Spoken transcripts: Context7 indexing test (format B)
 
-Test dataset for an experiment: does Context7 index and serve spoken content (YouTube video
-transcripts) well out of the box?
+Test dataset for a Context7 indexing experiment: 50 YouTube videos, 25 from Vigorous Steve (mostly livestream Q&A) and 25 from Alex Hormozi.
 
-- `transcripts/vigorous-steve/`: 25 videos from the Vigorous Steve YouTube channel (mostly livestream Q&A).
-- `transcripts/alex-hormozi/`: 25 videos from the Alex Hormozi YouTube channel.
+Each file in `transcripts/<channel>/` is one video:
 
-Each file is one video: title, YouTube URL and publish date, then YouTube's caption track as one
-line per caption segment, `[hh:mm:ss] text` (the standard timed-transcript export). Captions are
-YouTube's (mostly automatic), unedited: no chapters, no speaker labels.
+- YAML frontmatter: title, channel, publish date, URL.
+- `##` headings: the uploader's own chapter titles from YouTube, where the video has them.
+- The text is YouTube's auto-generated captions, grouped into 1-3 minute paragraphs. Each paragraph starts with a clickable `[mm:ss]` link to that moment in the video.
+- `Viewer question (read aloud):` lines are live-chat questions, in the viewer's own words, placed at the moment the host read them out. They are matched from the archived live chat.
+
+The captions are automatic, so they contain recognition errors. There are no speaker labels and no summaries.
